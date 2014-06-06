@@ -1,7 +1,13 @@
 > These files will be included in your book:
 
 About.txt
-chapter3.txt
-chapter1.txt
-chapter2.txt
 episode-01.txt
+episode-02.txt
+episode-03.txt
+episode-04.txt
+episode-05.txt
+episode-06.txt
+episode-07.txt
+episode-08.txt
+episode-09.txt
+episode-10.txt
