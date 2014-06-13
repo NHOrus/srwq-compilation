@@ -59,6 +59,8 @@ You open the door and start pulling the tarpaulin off the few remaining mechs in
 
 "Ladies first, you get first pick."
 
+---
+```
 SELECT YOUR MECH
 
 GESPENST MK2 M - Shadow Mirror version, with full weapons loadout. There are two, one in blue, one in red.
@@ -72,14 +74,16 @@ GUARLION - Painted in blue and white, there is a spare railgun propped up agains
 Mmmm, knives.
 
 CHOOSE YOUR DESTINY.
+```
+---
 
 >Loot knives from Unknown, Tesla Drive from Guarlion; attach both to Randgrith.
 
 You immediately mention this idea to your companions. They share a look before Irm pipes up.
 
-"Uh, you know, Axel wasn't really joking when he said he'd blow this place up in 5 minutes. That's not enough time to field-strip a tesla drive."
+"Uh, you know, Axel wasn't really joking when he said he'd blow this place up in 5 minutes. That's not enough time to field-strip a Tesla drive."
 "Ah, ye can't blame the lass fer a bit of imagination."
-"No, but I can blame her if Axel fricasees me."
+"No, but I can blame her if Axel fricassees me."
 
 "Uhh...I can't decide."
 
@@ -99,7 +103,7 @@ Irm turns to you as he opens up the cockpit of the Guarlion. "What?"
 
 "What?! No Tesla Drive??!?" You cry as the grey mech hover-boosts after Irm and Russel.
 
-Irm's face pops up on a comm window. "That mech is our latest prize catch, a Mao Industries test type called the R-Blade. Rumor has it its based off data from Project SRX."
+Irm's face pops up on a comm window. "That mech is our latest prize catch, a Mao Industries test type called the R-Blade. Rumor has it its based off the data from Project SRX."
 
 Russel's whistle sounds over the comm. "That's some fierce secret stuff. I'm surprised we got to see it 'tall, Lemon would keep that thing in her sight, surely."
 
@@ -114,7 +118,7 @@ A cool, crisp voice cuts into the commstream. "Why thank you, Mr Bagman."
 "You and your friends were going to help Axel, where you not?"
 
 "Right away, Ma'am." Irm turns his Guarlion and blasts off towards the battle, as does Russel.
-You locate Lemon from her comm signal. She's in a well-equipped Assault Dragoon, probably the rumored new Ashsaber, with data cables leading from her cockpit to the Lygeus system. It seems she's monitoring the massive amounts of interdimensional space-time data required to keep the Shadow Mirrors escape going horribly wrong, and annoying her would be a bad plan. But you want to do it, so you will.
+You locate Lemon from her comm signal. She's in a well-equipped Assault Dragoon, probably the rumored new Ashsaber, with data cables leading from her cockpit to the Lygeus system. It seems she's monitoring the massive amounts of interdimensional space-time data required to keep the Shadow Mirrors escape from going horribly wrong, and annoying her would be a bad plan. But you want to do it, so you will.
 
 "Erm, Irm mentioned you had designed some kind of upgrade for this unit?"
 
@@ -123,7 +127,6 @@ A light cold chuckle comes over the comms. "The R-Eins? Oh, if the EFA had given
 "Now run along dear."
 
 You catch up with Irm and Russel as their flying mechs descend into the melee in a canyon leading to the labs. Irm descends in a hail of railgun rounds, taking out one Gespenst before driving his Assault Blade through the drive-trains of two more. He's obviously a skilled melee fighter, but he's also skittish, keeping the Guarlion moving at all times, desperately trying to avoid even the smallest of scratches. You take it he's used to sturdier units.
-
 Russel, in comparison, is practically immobile in comparison, charging into combat with 3 PTs even as they attempt to shoot him out of the sky. He shrugs off their fire and gives one a plasma stake to the cockpit. Another is grabbed by the head and kicked in the crotch, causing the head and main camera to be torn off the neck. The third Gespenst fires its M13 wildly, but Russel advances almost calmly, angling his Gespents' curved armor to prevent any real damage. He draws his Energy Cutter and removes the EFA units right arm and leg in one slash.
 
 However, distracted as he is, Russel fails to see another unit, this time a Schutzwald, round the corner and take aim at the back of his PT...
@@ -131,10 +134,8 @@ However, distracted as he is, Russel fails to see another unit, this time a Schu
 "I FUCK YOU WITH SWORD!!!"
 
 At full boost you kick the Schutzwald with both feet, crushing its left arm as your Blade Tonfas slice up its cannons. Completely off balance, the pilot falls against the wall of the canyon, as you regain your feet, set your blades, and begin cutting.
-
 And cutting.
-
-Deeper. Deeper! Down into the guts!! Squish the pilot!! Break the engine core!!! KILL IT ALL BREAK EVERYTHING YES YES YESYESYES
+Deeper. Deeper! Down into the guts!! Squish the pilot!! Break the engine core!!! KILL IT ALL BREAK EVERYTHING YES *YES* **YES_YESYES_**
 
 "Er, are you a'right, lass?"
 
