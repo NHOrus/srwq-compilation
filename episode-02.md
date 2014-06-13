@@ -16,7 +16,7 @@ You now have a slight problem.
 
 You are in the R-Blade, a prototype stolen by the Shadow Mirrors so they can design the R-Eins. Its doing quite well so far but you've been quite rough on it, it could do with a repair. You've picked up a Mega Beam Rifle and a Lion Railgun to give yourself some more firepower, but you're not sure you have that much ammo left.
 
-Your wingman is Russel Bagman, an Irishman who recruited you into the Shadow Mirrors. He seems to be good at multitasking, as he can pilot a mech as well as he can do intelligence work. He's flying a red Gespenst MkII-M, a well-armed Shadow Mirror with Tesla Drive and Slash Rippers. He's currently carrying the head-cockpit of a Randgrith, containing Ibis Douglas, who insists that the Gespenst belongs to Sliegh Priestly.
+Your wingman is Russel Bagman, an Irishman who recruited you into the Shadow Mirrors. He seems to be good at multitasking, as he can pilot a mech as well as he can do intelligence work. He's flying a red Gespenst MkII-M, a well-armed Shadow Mirror with Tesla Drive and Slash Rippers. He's currently carrying the head-cockpit of a Randgrith, containing Ibis Douglas, who insists that the Gespenst belongs to Sleigh Priestly.
 
 You're accompanied by Latooni Subota in a heavily damaged Randgrith. You remember her from The School as being top of the class at everything and something of a teachers pet. She barely remembers you and seems to be treating you as some sort of distraction so she can get better shots.
 
@@ -85,7 +85,9 @@ Inside, the Tausendfuessler is warming up its engines, and you see Latooni runni
 
 You and Rusself dive into the Tausendfeussler as the engines burst into full power. The EOT reactors generates enough thrust, not only to push the massive transport into the sky, but to force back even the mighty Koryuoh. As the ramp closes, you see its mouth extend into a sea of fangs, and you hear a roar of monstrous rage.
 
-ELSEWHERE
+---
+
+######ELSEWHERE
 
 "Whatever your little toy there is, Axel, getting reinforcements out of thin air isn't going to be enough."
 
@@ -97,7 +99,7 @@ The Nacht ducks under a fist that could have felled a skyscraper, and digs its f
 
 "An army, ten armies, it doesn't matter how many you conjure up Axel, I'll take them all on! I'm the Monster Killer, I took down Zoldark and the Inspectors!! Nothing you can throw at me would ever be enough!!"
 
-Axel gets to his feet, but he knows its too late, as the Nachts heat horn turns red and the Shoulder Claymores open up for the final blow...
+Axel gets to his feet, but he knows its too late, as the Nacht's heat horn turns red and the Shoulder Claymores open up for the final blow...
 
 "Ooh, this guy doesn't even sound like you, Kyosuke."
 
@@ -115,11 +117,13 @@ Armor-piercing bullets smash off the barrels of the Nacht autocannons and its He
 
 The Alt Eisen Riese goes flying into the building next to Axel as the Nacht kicks out, before the blue demon blast into the sky and shoulder-charges the Weissritter, knocking the Oxtongue Rifle out of its hands.
 
-Beowulf lands, and turns to his enemies both new and old. Already, its components are beginning to reassemble themselves, as if it was being rebuild by invisible.
+Beowulf lands, and turns to his enemies both new and old. Already, its components are beginning to reassemble themselves, as if it was being rebuild by invisible hands.
 
-"Even another me....won't be enough."
+"Even another me... won't be enough."
 
-ANOTHER ELSEWHERE.
+---
+
+######ANOTHER ELSEWHERE.
 
 "Dammit!! shouts Bullet. "Kusuha, switch us to Ryukooh, we're going after them!"
 
@@ -135,7 +139,7 @@ Dozens of shadowy after-images of the Zweizergain surround Vindel and Lemon, som
 
 "One lucky shot won't be enough, Helios! The Agyeus system has been improved drastically from the toy you left us. You're not just fighting my planet, you're fighting MY UNIVERSE!!!"
 
-The shadows charge en-masse into the heros formation. Rai blasts one back into nothingness before two more grab the R-2s arms and fling him into the rusting hulk of a failed Grungust prototype. Sanger slices three into six parts before five use their Shadow Slicers together to block his blade. Even the Giest is being overrun, blowing away shadow after shadow as they fly at Gilliam, glowing red with destructive energy.
+The shadows charge en-masse into the heroes' formation. Rai blasts one back into nothingness before two more grab the R-2s arms and fling him into the rusting hulk of a failed Grungust prototype. Sanger slices three into six parts before five use their Shadow Slicers together to block his blade. Even the Geist is being overrun, blowing away shadow after shadow as they fly at Gilliam, glowing red with destructive energy.
 
 "Ugh! Stay focused! We've beaten him once, we can do it again!!"
 
@@ -161,7 +165,9 @@ Theres is a flash. Then the opposite of a flash. On the other side of the field,
 
 The Zweizergain, Ashsaber, and Koryuoh are gone.
 
-NOW BACK TO OUR ACTUAL PROTAGONISTS
+---
+
+######NOW BACK TO OUR ACTUAL PROTAGONISTS
 
 You stow the R-Blade in a crash rig and exit the cockpit. From the outside, its quite obvious you've been incredibly harsh on the unit, the armor is buckled all over the arms and torso and most of the identifying marking have been sandblasted off by the force of all the near-miss explosion.
 
@@ -169,13 +175,13 @@ Looking around, you see what else is the hangar. You see the blue Gespenst and s
 
 Russel is also exitting his unit, holding onto his tweed cap as he hops down off the Gespenst, and Ibis is climbing out of her cockpit. You're not sure you've ever seen a person carrying so many guns before: She has at least 4 pistols on her belt, a holdout pistol in each boot, a belt of grenades over her shoulder, and she's retrieving an SMG from under her pilot seat. Latooni has vanished.
 
-Your long-lost pal Irm's voice calls over the tannoy. "Welcome to Kazahara Airlines, ladies. Things are a little fuzzy at the moment, so perhaps you'd all like to come up to the bridge to have a chat and maybe a light aperatif."
+Your long-lost pal Irm's voice calls over the tannoy. "Welcome to Kazahara Airlines, ladies. Things are a little fuzzy at the moment, so perhaps you'd all like to come up to the bridge to have a chat and maybe a light aperitif."
 
 "Er, what about me?" queries Russel.
 
-"Sorry, there's no Guiness and no Lighter Fluid, so I guess you'll have to go thirsty."
+"Sorry, there's no Guinness and no Lighter Fluid, so I guess you'll have to go thirsty."
 
-WHAT DO YOU DO? DO YOU HAVE A PLAN?
+>WHAT DO YOU DO? DO YOU HAVE A PLAN?
 
 You head up to the cockpit. There you find Irm manning the sensors and comms, an older man who looks a lot like Irm piloting, and Latooni in a corner seat, pouring over some maps and an iTablet.
 
@@ -183,7 +189,7 @@ You head up to the cockpit. There you find Irm manning the sensors and comms, an
 
 "You're asking me? I was just unpacking the Assault Lander from deep storage when Dad called me to say the portal had been compromised. What happened out there?"
 
-"There were...lots of them. And I couldn't even recognise them!! That's not possible! I was trained!!"
+"There were...lots of them. And I couldn't even recognize them!! That's not possible! I was trained!!"
 
 "Not very well."
 
@@ -191,22 +197,21 @@ You swing around to where the comment came from. Latooni hasn't even looked up.
 
 With a THWAP!!, Latooni's glasses go flying as you roundhouse her in the face.
 
-"DON'T GIVE ME THAT BULLSHIT BITCH!! JUST BECAUSE YOU WERE SUCKING ADLERS WRINKLY COCK BETWEEN CLASSES DOESN'T GIVE YOU THE RIGHT TO TALK DOWN TO ME!!!"
+"DON'T GIVE ME THAT BULLSHIT BITCH!! JUST BECAUSE YOU WERE SUCKING ADLERS WRINKLY COCK BETWEEN CLASSES DOESN'T GIVE YOU THE RIGHT TO *TALK DOWN TO ME*!!!"
 
 "Lass, stop it!!" Russel grabs your arms before you get a chance to hit Latooni again. "We're all feeling a bit high-strung, but we can't just turn on each other."
 
 "I dunno..." muses Irm. "Hurting her allies seems to be a hobby of hers."
 
-"Sh-sh-shut UP!!" You jerk around to face Irm, your eyes misting up. "Where....where are our friendly forces??"
+"Sh-sh-shut UP!!" You jerk around to face Irm, your eyes misting up. "Where... where are our friendly forces??"
 
-"Finally, something sensible..." Irm turns to the sensor scopes again. "We have maybe a dozen units leaving the base headed south, and a transport headed southwest. I'm picking up the Soulgain's signal just entering the hills to the west, and that's about it...huh??"
+"Finally, something sensible..." Irm turns to the sensor scopes again. "We have maybe a dozen units leaving the base headed south, and a transport headed southwest. I'm picking up the Soulgain's signal just entering the hills to the west, and that's about it... huh??"
 
 "What is it?"
 
 "I'm picking up friendly signals...to the north, where we're headed. They're about a hundred klicks north of the base, and they just appeared out of nowhere! They couldn't have sneaked up there, there was no time..."
 
 Latooni has recovered her glasses, and has gone back to her maps, although she is rubbing her future black eye.
-
 
 Russel lets your arms go and you take the chance to grab the comms speaker from beside Irm.
 
@@ -228,7 +233,7 @@ Theres a burst of static. "ZHZHZHHZHhe hell?"
 
 Irm grabs the mike back off you. "Are you seriously saying that the world we were going to head to is attacking us first? How the hell does that even work? How would they know we're coming?"
 
-"I don't know and I don't care!! But right now, the Soulgain is damaged, Lemon's dissappeared, and our Beowulf is in retreat, and I'm a little too busy trying to evade these newcomers to worrying about interdimensional physics!!
+"I don't know and I don't care!! But right now, the Soulgain is damaged, Lemon's disappeared, and our Beowulf is in retreat, and I'm a little too busy trying to evade these newcomers to worrying about interdimensional physics!!
 
 You grab the mike back off Irm. "Axel, there's a group of our troops in the north, 100km from the base. You can head there and meet up with them, while we save some of our troops."
 
@@ -250,6 +255,8 @@ Irm finally manages to raise the transport. "This is Transport 32C, we've got 3 
 
 "...and we are, we need to suit up and intercept the interceptors.
 
+---
+```
 DEPLOYMENT
 
 Your Pilots:
@@ -266,6 +273,8 @@ Blue Gespenst
 R-Blade (Still not at 100%)
 Randgrith (Has extra ammo)
 Wierd Thingy
+```
+---
 
 "Actually, now that it's important...what is that thing??"
 
@@ -276,7 +285,7 @@ Ibis perks up at the talk of heavy weapons platforms.
 Ibis looks crestfallen as Irm climbs into the Assault Lander, but perks up when Russel offers her the Red Gespenst. You head over to the Randgrith, where Latooni is offloading the extra missiles and ammo for safe keeping.
 
 "I...er...I'm sorry I broke your face earlier."
-"I'm a full graduate of the School. A black eye isn't going to impair me in any noticable way."
+"I'm a full graduate of the School. A black eye isn't going to impair me in any noticeable way."
 "Still, it was cruel of me to do it. You were only right, I wasn't trained as well as you. You have so many assets that I don't have..."
 
 *pinch*
@@ -285,7 +294,9 @@ Ibis looks crestfallen as Irm climbs into the Assault Lander, but perks up when 
 
 Latooni stands straight as a statue as you walk to the R-Blade. The only reaction she gives is a low squeak.
 
-Anyway, the Taussendfuessler and the Trilobite transport (pic related, thank you MAHQ) both drop altitude, so that your ground units can cover them. Ibis and Russel take off, and you and Latooni hop out as the Tausendfuessler nears the ground, followed by the A-Lander (kinda like the deployment of the Landmaster in Starfox 64).
+---
+
+The Taussendfuessler and the Trilobite transport both drop altitude, so that your ground units can cover them. Ibis and Russel take off, and you and Latooni hop out as the Tausendfuessler nears the ground, followed by the A-Lander.
 
 Latooni turns her scopes in the direction of the TLI, at three dots just coming into view. "Enemy sighted. Two PT types, one with melee equipment and jacket armor, another with a long-range weapon. And one which appears to be a transformable type in flight mode."
 
@@ -293,7 +304,7 @@ Latooni turns her scopes in the direction of the TLI, at three dots just coming 
 
 "Similar design philosophy but vastly different construction. Elements of the Huckebien are evident."
 
-"The Hu-hu-huckebein? The Vanishing Trooper? How would you even know that, no-ones even seen the thing!! It just dissappeared one day!"
+"The Hu-hu-huckebein? The Vanishing Trooper? How would you even know that, no-ones even seen the thing!! It just disappeared one day!"
 
 "The design documents still exist in the Mao Industries databases. Full graduates of the School can gain access to such files. Perverted dropouts cannot."
 
@@ -315,7 +326,7 @@ You chamber a round into your borrowed m13 shotgun, and warm up your thrusters.
 
 You boost straight at the Wuerger, your allies screaming in your ear. The Falken attempts to draw a bead on you, but you dodge the first few shots and then fire from the A-Lander and Randgrith force her to switch targets.
 
-You hear the pilot of the R1 again. "Stop!!! We don't need to fight, we're trying to save the universe!!!", but he's distracted as Russel begins to fire on him, followed reluctantly by Ibis. It's just you and the Weurger.
+You hear the pilot of the R1 again. "Stop!!! We don't need to fight, we're trying to save the universe!!!", but he's distracted as Russel begins to fire on him, followed reluctantly by Ibis. It's just you and the Wurger.
 
 "Oh, not going to play nice, huh? Just fine with me!!"
 
@@ -333,9 +344,9 @@ You come to a screeching stop, and jump back as the vice-like thing on its right
 
 "AAAAAARGH GHOST GHOST GHOST!!""
 
-You drop your shotgun and begin frantically wailing on the Wuerger, raining blow after blow down on a thouroughly confused Arado.
+You drop your shotgun and begin frantically wailing on the Wuerger, raining blow after blow down on a thoroughly confused Arado.
 
-"Ah! Stop!! Katina!!" he yells as he desperatley tries to block your blows with the Stag Beetle Crusher.
+"Ah! Stop!! Katina!!" he yells as he desperately tries to block your blows with the Stag Beetle Crusher.
 
 "I'LL SEND YOU BACK TO HELL!!!"
 

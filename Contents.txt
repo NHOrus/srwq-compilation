@@ -1,13 +1,13 @@
 > These files will be included in your book:
 
 About.md
-episode-01.txt
-episode-02.txt
-episode-03.txt
-episode-04.txt
-episode-05.txt
-episode-06.txt
-episode-07.txt
-episode-08.txt
-episode-09.txt
-episode-10.txt
+episode-01.md
+episode-02.md
+episode-03.md
+episode-04.md
+episode-05.md
+episode-06.md
+episode-07.md
+episode-08.md
+episode-09.md
+episode-10.md
