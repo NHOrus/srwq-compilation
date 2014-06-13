@@ -164,7 +164,7 @@ No-one responds immediately, then a mechanical voice interjects.
 
 *While the Raioh is a high-end Super Robot, the capabilities of these new units are not to be underestimated. Perhaps you could acquiese to a little support?*
 
-![alt text](http://www.xl-shop.com/xlshop/product_images/BAN/Faiz-Autovajin-2.jpg "DGG-XAM4")
+![alt text][DGG-XAM4]
 
 Pic related strides out of the Trilobite, and joins you.
 
@@ -192,3 +192,4 @@ Axel leaps up to the top of the ridge, and has a good look at the scene.
 
 ---
 #####THREAD OVER
+[DGG-XAM4]: http://i.imgur.com/7pCTY2R.png "DGG-XAM4 Dumi"
