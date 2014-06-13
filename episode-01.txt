@@ -229,7 +229,9 @@ Irm turns the Guarlion to look at you as you sheath your second tonfa and pick u
 
 "Will you stop being sentimental I DON'T WANT YOU TO *DIIIEEEEE*!!!" You scream as you fire off the R-Blades Head Vulcans. The Guarlions head pops like a ripe melon and sparks fly as its other arm shorts out and falls limp.
 
-Guarlion: 72/3700
+---
+    Guarlion: 72/3700
+---
 
 "DAMMIT, KATINA, WHAT THE HELL!"
 
@@ -237,11 +239,11 @@ Guarlion: 72/3700
 
 By the time Irm switches to his backup camera, you're both gone. Sighing, he heads back to TLI.
 
-The Rathgrith of the Barrison unit commander lies broken on the side of the hill, with the burning wrecks of a half-dozen EFA Gespensts on the slopes below. The three remaing Randgriths fire continuously, holding off EFA advancing up the hill, and the few brash feddies who risk using their tesla drives to gain hieght and bombard ther faltering Valkyria.
+The Randgrith of the Barrison unit commander lies broken on the side of the hill, with the burning wrecks of a half-dozen EFA Gespensts on the slopes below. The three remaining Randgriths fire continuously, holding off EFA advancing up the hill, and the few brash feddies who risk using their tesla drives to gain height and bombard their faltering Valkyria.
 
 From the east, comes a blue blur. Hands aflame with the light of his passion, Axel's Soulgain tears through the enemy advance. One Gespenst is hit with a beam of light and sent flying, raining shrapnel on its allies. Another two are caught in a tornado made of cutting, falling to piece as the Soulgain's armblades twist in their arc of death.
 
-As you arrive from the south, one of the Randgriths falls to its knees as its leg is bit with a beam shot, and tumbles down the slopes, scrabbling desperately for purchase before it tumbles straight into the hands of the relentless EFA. Axel is way to preoccupied with being awesome to help, and there are at least a half-dozen EFA units between you and the stricken pilot.
+As you arrive from the south, one of the Randgriths falls to its knees as its leg is hit with a beam shot, and tumbles down the slopes, scrabbling desperately for purchase before it tumbles straight into the hands of the relentless EFA. Axel is way to preoccupied with being awesome to help, and there are at least a half-dozen EFA units between you and the stricken pilot.
 
 "You save that pilot, I'll go kill everything."
 
@@ -251,6 +253,7 @@ As you arrive from the south, one of the Randgriths falls to its knees as its le
 
 The R-Blade boosts into the sky, weapons poised, while the Red Gespenst flies up the hill toward the downed Randgrith, dangling from a ledge.
 
+---
 #####COMMENCING FIRST ROUTE SPLIT.
 ######KATINA ROUTE
 
@@ -264,11 +267,11 @@ Bursts of flame and shrapnel burst all around you as a blanket of anti-missile-m
 
 200mm AP rounds fly past your head and plunge through the chests of two EFA troopers preparing to flank you.
 
-"No concept of enemy reponse times, reinforcement position, or proper attack vectors."
+"No concept of enemy response times, reinforcement position, or proper attack vectors."
 
 Recognition. "I know you-"
 
-Matrix missiles rain down on the open ground between you and the oncoming hordes, churning the slope into a maze of smoke and craters. You take the oppurtunity to dive into the zone of concealment, beaming a Gespensts arm off as you go.
+Matrix missiles rain down on the open ground between you and the oncoming hordes, churning the slope into a maze of smoke and craters. You take the opportunity to dive into the zone of concealment, beaming a Gespenst's arm off as you go.
 
 "I'd estimate an survival rate of 15% if I had not compromised my position to support you."
 
@@ -276,7 +279,7 @@ Matrix missiles rain down on the open ground between you and the oncoming hordes
 
 Barrison 3 stands tall on the peak of the hill, its guns smoking after the ferocious assault it just unleashed.
 
-"You're hardly the first to recognise me here. Dropouts are common in the lower ranks, it would seem."
+"You're hardly the first to recognize me here. Dropouts are common in the lower ranks, it would seem."
 
 "Well, maybe, but what is the Queen of SCHOOL doing here, on the side of the Shadow Mirrors?"
 
@@ -290,6 +293,7 @@ Without turning around, you sever the arms from the advancing Gespenst, and then
 
 "I don't care."
 
+---
 #####RUSSEL ROUTE
 
 Emptying a second clip from his M95, Russel beats back another EFA advance, as he draws ever-closer to the stranded pilot.
@@ -300,11 +304,11 @@ Emptying a second clip from his M95, Russel beats back another EFA advance, as h
 
 "Sleigh!! Help me!!"
 
-Rusself fires off his last set of Split Missiles and turns to the mysterious pilot.
+Russel fires off his last set of Split Missiles and turns to the mysterious pilot.
 
 "Ah'm a-feared y've got the wrong person, sweetheart. Name's Russel, and if ye don't mind, we need to get ya down from there."
 
-"Ugh...ok." With Russel supporting her, the Randgrith made to a safe position, but with a leg badly damaged. "But I, I don't understand."
+"Ugh... ok." With Russel supporting her, the Randgrith made to a safe position, but with a leg badly damaged. "But I, I don't understand."
 
 "We're in a big fight. You were shot and fell down here. I saved you."
 
@@ -312,14 +316,15 @@ Rusself fires off his last set of Split Missiles and turns to the mysterious pil
 
 "Missy, I don't-" Russel ducks as the EFA open up again. The two scramble down into a hollow for cover. "I don't know who this Gespenst could belong to. I just picked it up from the hanger not half an hour ago. No-one else claimed it, so I figured it was free for the taking."
 
-"I....see."
+"I... see."
 
 "Now, can we maybe change the subject to us not dying?"
 
-"Ok....But you have to promise me you'll keep that Gespenst safe, Sleigh will be needing it back!"
+"Ok... But you have to promise me you'll keep that Gespenst safe, Sleigh will be needing it back!"
 
 "Er, fine, whatever."
 
+---
 #####ROUTE RECOMBINATION
 
 You cut your way through the Gespensts to where Axel is, as his oversized super robot crushes a Gespenst between its thighs, while its flying fists take out two more. The Soulgain looks none the worse for wear after all the fighting, where even a Super Earthgain unit would at least have taken a few bumps. It's quite the piece of technology.
@@ -328,7 +333,7 @@ You cut your way through the Gespensts to where Axel is, as his oversized super 
 
 "Above!!" shouts Latooni.
 
-A blur of blue flies up over the ridge, and suddenly a rain of metal flies down from the sky. Titanium Cannonballs rain down at supersonic speeds. One hits your mech, snapping off a ten-metee length of wing. Several sink into Russel and Ibis's armor. Latooni's left shoulder shield and arm are shredded beyond use. Barrison 2 dissappears.
+A blur of blue flies up over the ridge, and suddenly a rain of metal flies down from the sky. Titanium Cannonballs rain down at supersonic speeds. One hits your mech, snapping off a ten-metee length of wing. Several sink into Russel and Ibis's armor. Latooni's left shoulder shield and arm are shredded beyond use. Barrison 2 disappears.
 
 The blue blur lands. It's a third again as tall as your mech, twice as wide and, judging by the crater it made, three times the weight. It bears only the lightest of resemblances to its Gespenst brothers. It exudes power, weight, and menace.
 
@@ -336,7 +341,7 @@ The blue blur lands. It's a third again as tall as your mech, twice as wide and,
 
 Axel twists the Soulgains hands into fists, and over the comm you hear his low growl.
 
-"Beowulf!"
+"**Beowulf!**"
 
 Over the ridge comes another wave of Gespenst, marked with the white badge of the Assault Team X-Terminators. The true elites of the EFA military have come to end the battle.
 
@@ -354,6 +359,8 @@ Blasting back up the hill to escape the fire from the oncoming EFA, you hear an 
 
 Everyone turns towards the TLI, and the white light of hope coming from Lygeus. Even Axel breaks off from his battle, with the wrecking ball of the Nacht making a furrow in the earth as it follows him.
 
+---
+```
 THIS IS THE FINAL DECISION FOR TONIGHT. YOU HAVE TWO OPTIONS.
 
 1) ENTER PORTAL, HEAD TO OG-VERSE, LULZ ENSUE, FUCK UP BANPRESTO'S STORYLINE.
@@ -361,18 +368,21 @@ THIS IS THE FINAL DECISION FOR TONIGHT. YOU HAVE TWO OPTIONS.
 2) KICK REASON TO THE CURB, STAY IN SHADOW MIRROR VERSE, MEET SM VERSIONS OF ENTIRE CAST.
 
 /m/ has decided...by not deciding.
+```
+
 
 Originally I thought, just go to the OGverse, it'll be fun there changing the canon storyline. Then people started talking about SM versions of pretty much everyone. Then I started thinking about the possibilities, so I thought, well maybe we should stay in SM-verse.
 
 But then, at crunchtime, /m/ can't decide. It wants both, the OGverse to fuck up and the SMverse to explore. Well, if this thread has taught me anything, its that if you can't decide between two choices, take both.
 
 So you get both /m/. Welcome to Opposite Day.
+---
 
-SECRET ROUTE NUMBER 3: AND THEN EVERYTHING WENT WRONG IN THE MOST AWESOME WAY POSSIBLE.
+######SECRET ROUTE NUMBER 3: AND THEN EVERYTHING WENT WRONG IN THE MOST AWESOME WAY POSSIBLE.
 
-Carrying the head-cockpit of Ibis' Randgrith like the rugby balls of his youth, Russel blasts towards TLI. You're hot on his heels, and Latooni pushs her Randgrith to the limit, firing back at the EFA as she goes.
+Carrying the head-cockpit of Ibis' Randgrith like the rugby balls of his youth, Russel blasts towards TLI. You're hot on his heels, and Latooni pushes her Randgrith to the limit, firing back at the EFA as she goes.
 
-You're about halfway to the portal when it turns red. You're two-thirds of the way there when objects start flying out.
+You're about halfway to the portal when it **turns red**. You're two-thirds of the way there when objects start flying out.
 
 Transports. Mecha. Jets. Half a space cruiser. Bodies.
 
@@ -380,7 +390,7 @@ As you arrive at the scene, two objects in particular stand out: The Ashsaber, l
 
 "What. The hell." Russel speaks for you all: The Zweizergain was the core of the whole plan, the link between the two worlds. What the hell is it doing back here?
 
-And then, something emerges through the portal.
+And then, *something* emerges through the portal.
 
 Vindel drags the broken Zweizergain into a sitting position, and spits out a single word.
 
@@ -388,11 +398,11 @@ Vindel drags the broken Zweizergain into a sitting position, and spits out a sin
 
 "If you're still as smart a man as you were, Vindel, you'll stay down. I killed you once already, I don't want to do it again."
 
-"Wh...what do you mean, again?"
+"Wh... what do you mean, again?"
 
 "The time-shunt was a feature of the XN system that I never figured out how to control. Each time I've seen it operate, it sends its user back in time relative to the universe they just left. Had you used it, you would have arrived several months in the relative past, before the Neo DC War or Inspectors, allowing you to predict what was about to happen and quickly turn yourselves into a powerful political entity in the Earth Sphere again. And now we use it to come here, and we end up arriving you even leave to come to our world."
 
-"What are you...why are you here?"
+"What are you... why are you here?"
 
 "You came to our world, attempted to start your campaign of pointless conflict, and then we defeated you. We were willing to leave it at that. But now things have changed, Vindel. Far more than a few lives in either world, far beyond anything even I had imagined.
 
@@ -401,5 +411,7 @@ Vindel drags the broken Zweizergain into a sitting position, and spits out a sin
 Then, the mechs begin to pour through.
 
 END MISSION 1
+
+---
 
 OH GOD WHAT HAVE I DONE.
