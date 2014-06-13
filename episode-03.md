@@ -2,19 +2,19 @@
 
 ## SHADOW MIRROR QUEST (AKA SRW Q)
 
-####SRWQ Mission 3: It's not /tg/, it's /u/
+###SRWQ Mission 3: It's not /tg/, it's /u/
 
 You are the Shadow Mirror version of Katina Tarask. You wear frilly dresses and don't afraid of anything.
 
-You and the other Shadow Mirrors were about to escape destruction by the EFA by travelling to another dimension, when an army of mechs from that dimension arrived to...do something. It wasn't entirely clear what was happening, but then things started exploding. You and your allies climbed into a Tausendfuessler and escaped the Tesla-Liecht Institute, but you were followed.
+You and the other Shadow Mirrors were about to escape destruction by the EFA by traveling to another dimension, when an army of mechs from that dimension arrived to...do something. It wasn't entirely clear what was happening, but then things started exploding. You and your allies climbed into a Tausendfuessler and escaped the Tesla-Liecht Institute, but you were followed.
 
 Then the ghost of your best friend Arado, who you strangled with a power lead in a fit of psychotic rage 2 months ago, came back from hell to claim your soul for your many sins.
 
 Or at least that's how you see it.
 
-#####Your allies:
+####Your allies:
 
-Irmgard Kazahara: Womaning super robot pilot and son of one of Shadow Mirrors main scientists. Hasn't realised he's not in charge, you are. Piloting a modified Gust Lander.
+Irmgard Kazahara: Womaning super robot pilot and son of one of Shadow Mirrors main scientists. Hasn't realized he's not in charge, you are. Piloting a modified Gust Lander.
 
 Latooni Subota: Cold, dispassionate strategist and sniper. Graduate of the School, who kicked you out for being too crazy. Thinks this makes her better than you. You intent to teach her who's boss later. In bed. Piloting a Randgrith.
 
@@ -26,7 +26,7 @@ Johnathan Kazahara: Scientist dude. Too old for your tastes. Flying the Tausendf
 
 The Transport: Apparently full of more minions and mechs. Landed just a short distance from your Tausendfeussler.
 
-#####Your Enemies:
+####Your Enemies:
 
 The Transforming thing with the overly dramatic guy in it: Fighting your Gespensts.
 
@@ -42,7 +42,7 @@ The Devil Ghost of Arado: A part of your mind registers that this is probably ju
 
 "IT WASN'T MY FAULT!! YOU BROKE OUR PROMISE!! THAT SLUT DIDN'T DESERVE YOU!!! IT JUST HAPPENED!!"
 
-You are holding desperately onto the leg of the Wild Wuerger, raining blow after blow on it, as Arado desperately manuvers to try to throw you off. Your R-Blades tonfa is now tearing chunks of the Jacket Armor off, exposing the more vunerable mech inside.
+You are holding desperately onto the leg of the Wild Wuerger, raining blow after blow on it, as Arado desperately maneuvers to try to throw you off. Your R-Blades tonfa is now tearing chunks of the Jacket Armor off, exposing the more vulnerable mech inside.
 
 "D-dammit, Katina, you're forcing me to do something I don't want to..."
 
@@ -72,7 +72,7 @@ The arm cannons are lowered, and the Wuerger starts to lose altitude.
 
 "This fight isn't over UNTIL I SAY IT'S OVER!!!"
 
-The Head Vulcans rattle into the Wuerger's face, cracking one camera. Your left tonfa discarded to grab the leg, you reach out and pull on the Wuergers Cold Metal Sword. However, your yank on the hilt, even at full boost, fails to pull the blade out: It's locked into the arm assembly.
+The Head Vulcans rattle into the Wuerger's face, cracking one camera. Your left tonfa discarded to grab the leg, you reach out and pull on the Wuerger's Cold Metal Sword. However, your yank on the hilt, even at full boost, fails to pull the blade out: It's locked into the arm assembly.
 
 Arado's scream of formless fury is almost as loud as yours. The cannon shells disintegrate your left hand and most of the forearm, and suddenly, with no grip, you're falling.
 
@@ -170,7 +170,7 @@ Pic related strides out of the Trilobite, and joins you.
 
 "What are you meant to be? Some kind of computer?"
 
-I am the Dynamic Unlimited Military Intelligence, Operation AI of DDG-XAM-04. You may call me Dumi-chan.
+*I am the Dynamic Unlimited Military Intelligence, Operation AI of DDG-XAM-04. You may call me Dumi-chan.*
 
 "Doomy???....I like it. Now lets go kick some ass"
 

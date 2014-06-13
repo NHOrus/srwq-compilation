@@ -12,7 +12,7 @@ Unfortunately, today is opposite day, and instead of you invading that world, yo
 
 You now have a slight problem. 
 
-#####Your current forces:
+####Your current forces:
 
 You are in the R-Blade, a prototype stolen by the Shadow Mirrors so they can design the R-Eins. Its doing quite well so far but you've been quite rough on it, it could do with a repair. You've picked up a Mega Beam Rifle and a Lion Railgun to give yourself some more firepower, but you're not sure you have that much ammo left.
 
@@ -26,7 +26,7 @@ Lying on the ground in front of the portal are Vindel Mauser's Zweizergain and L
 
 You haven't seen your command Irm Kazahara since you crippled his mech to force him to return to base.
 
-#####Enemy forces:
+####Enemy forces:
 
 Despite heavy losses, the EFA is still coming toward you, intent on ending the Shadow Mirrors. The regular forces are all but gone, but the elite Assault Team X-terminators have joined the fray, led by Beowulf, the EFA's top ace piloting the supposedly invincible Alt Eisen Nacht.
 

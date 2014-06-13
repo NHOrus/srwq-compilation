@@ -2,7 +2,7 @@
 
 ## SHADOW MIRROR QUEST (AKA SRW Q)
 
-####SRWQ Mission 4: Gonna keep doin' it till the fapfic ruins it
+###SRWQ Mission 4: Gonna keep doin' it till the fapfic ruins it
 
 You are the Shadow Mirror version of Katina Tarask, an ex-student of the School and wearer of frilly dresses. You are equally as angry as your OG counterpart, but you concentrate your anger into even more murderous bursts of rage and manage to be slightly moe at other times.
 
@@ -10,7 +10,9 @@ The Shadow Mirrors were just about to invade the OGverse when something wierd ha
 
 Things are becoming less and less canon and the plot is thickening faster than /m/s penis in the presence of Valsione. It's time for part 4 of Super Robot Wars Quest!
 
-Your lineup:
+---
+
+####Your lineup:
 
 You in the freshly acquired Dynamic General Guardian 03 Raioh. You had an R-Blade but it couldn't stand up to the abuse you were putting on it.
 
@@ -24,7 +26,7 @@ Russel Bagman: An irishman, although he's usually sober so that might be an elab
 
 Doomy-Chan, the Dynamic Ultimate Something Something, an AI which is operated the DGG unit 4. Its a wierd super robot with wheels on its shoulders, apparently meant to support your new mech.
 
-Your current enemies:
+####Your current enemies:
 
 The Loud Dramatic Guy in the Transforming Mech: Apparently wants this all to end peacefully with you talking to them and making sense of all this. His mech is eerily reminiscent of the R-Blade, is white and blue and armed with revolvers. You're not sure how you tear the arms off Gespensts with revolvers, but you're eager to learn.
 
@@ -80,27 +82,27 @@ The Wuerger and the Raioh dance across the sky, the massive super trying to conn
 
 Seeing a chance, Arado dives in and slices the Raioh deeply just above the right eye, but the Camera just about remains on. You reach out to grab him, but he's way too fast...until you recall the arm weapons.
 
-"Plasma Leader!!"
+**"Plasma Leader!!"**
 
 Energy crackles around the Wuerger as a cage of lightning is formed around it. Arado has just enough time to gasp as he is roughly yanked back into your clutches.
 
-"This is what happens to those who defy me. Counter Break!!"
+"This is what happens to those who defy me. **Counter Break!!** "
 
 The Wuergers right leg is sheared off as your kick crushes most of the lower torso. Arado yells as he goes flipping end over end, heading towards the ground.
 
 Meanwhile, Ibis stands dumbfounded over a pile of broken weapons, as the Transforming Mech snaps the last of her Gespensts armament and head at Irm. The Assault Lander pumps out shot after shot, but the mech just doesn't get hit: It's like the pilot knows where the shells are going to go.
 
-"I'll end this madness once and for all!! T-Link Knuckle!!!!"
+"I'll end this madness once and for all!! **T-Link Knuckle!!!!** "
 
-300 tons of Assault Lander is roughly launched into the air by a mech less than a sixth of its wieght, and comes down on its top. It would seem that this mech is even more impressive than it first appeared, since its able to give the laws of physics the finger.
+300 tons of Assault Lander is roughly launched into the air by a mech less than a sixth of its weight, and comes down on its top. It would seem that this mech is even more impressive than it first appeared, since its able to give the laws of physics the finger.
 
 ---
 
-"Right, now for you Dai....Dai...Damn, I can't remember any of the evil Riders names...Dai-Crazy!"
+"Right, now for you Dai... Dai... Damn, I can't remember any of the evil Riders names... Dai-Crazy!"
 
-"I think not! Plasma Leader!!"
+"I think not! **Plasma Leader!!** "
 
-"N-not agaaiiin!" Arado squeals as you once again pull him into your clutches. Grabbing his mech, you wrap the comparitively tiny mech in a bear hug.
+"N-not agaaiiin!" Arado squeals as you once again pull him into your clutches. Grabbing his mech, you wrap the comparatively tiny mech in a bear hug.
 
 "Don't come any closer, Mr. Hero, or I'll give Mr Flopsy a big hug, I'll squeeze him to my chest until the cotton comes out."
 
@@ -116,7 +118,7 @@ The Transformer flies level with you, sizing you up. "You're making a mistake, M
 
 "I..I don't have a whole lot of choice in the matter, Seolla..."
 
-"You...you're actually going to go with her. You cheat! You wannabe cassanova!! I'll-"
+"You...you're actually going to go with her. You cheat! You wannabe Casanova!! I'll-"
 
 "Snip it crochet girl! So, Big Damned Hero, what's it going to be??"
 
@@ -128,15 +130,17 @@ The Transformer flies level with you, sizing you up. "You're making a mistake, M
 
 The R-wing flies off, with the Falken managing some wobbly flight after it.
 
+---
+```
 OBTAINED:
 1 WILD WUERGER
 1 ARADO-KUN
-
-WHAT IS YOUR NEXT MOVE?
+```
+---
 
 You helpfully turn Irm's Assault Lander back over while Latooni and Ibis coax Arado out of his cockpit, and Dumi picks up Russels arms and the other bits and pieces strewn across the battlefield.
 
-"Right team, we can't stay here any longer!" Irm says as he reverses the Lander back into the Tausendfuessler. Katina, get youself and your new computer buddy into the Tribolite, we're taking off. Now."
+"Right team, we can't stay here any longer!" Irm says as he reverses the Lander back into the Tausendfuessler. Katina, get yourself and your new computer buddy into the Trilobite, we're taking off. Now."
 
 You sigh. "Alright. Subota, you take good care of Arado-kun for me, I want him fresh for later..."
 
@@ -148,7 +152,7 @@ Ryoto Hikawa (That's what the tag on his overalls call him anyway) comes over to
 
 "You were in my way, I just got you out of the way."
 
-"I was in the DGG-03's cockpit!! I was going through the warmup sequence when you forced the hatch open, dragged me out of the seat and kicked me onto the gantry. I could have fallen and broken my neck."
+"I was in the DGG-03's cockpit!! I was going through the warm-up sequence when you forced the hatch open, dragged me out of the seat and kicked me onto the gantry. I could have fallen and broken my neck."
 
 "...As I said, you were in my way."
 
@@ -178,13 +182,13 @@ You turn back towards Kai, but now that you're alone with the living legend, you
 
 "...Copies, from another world."
 
-"Yeah! That's what they were saying, that they've come here to....do something."
+"Yeah! That's what they were saying, that they've come here to... do something."
 
 "Something?"
 
 "I....(sweatdrop) I'm not very good at catching details in the middle of a battle."
 
-Kai rubs his jaw completatively. "Well, the two of us aren't going to work this out alone. Let's have a chat with the other ship, see were we stand."
+Kai rubs his jaw competitively. "Well, the two of us aren't going to work this out alone. Let's have a chat with the other ship, see were we stand."
 
 "Well, are you coming?"
 
@@ -206,7 +210,7 @@ On the bridge, Ryoto is sitting in the corner nursing his wounds, while a chines
 
 "No! Stupid AI, I'm the pilot! You can't just take control from me, you're not even supposed to be operational!"
 
-*I'm merely trying to releive you of a pointless task, so you can undertake matters of greater concern. We require technicians far more than pilots right now, the Tausendfuesslers mech complement is severaly damaged and needs repair.*
+*I'm merely trying to relieve you of a pointless task, so you can undertake matters of greater concern. We require technicians far more than pilots right now, the Tausendfuessler's mech complement is several damaged and needs repair.*
 
 "But...but you're a computer!! What if you bluescreen, or get a virus, or go crazy and decide to destroy humanity?"
 
@@ -230,16 +234,17 @@ Dumi helpfully patches you through to Ibis' Gespenst, and sure enough you hear t
 
 ~~skip [^1]~~
 
-Anyway:
-
-IBIS RELATIONSHIP LEVEL UP
-GAINED SKILL: KNOWLEDGE (IBIS'S BACKSTORY) (Which I'll bring up when relevant)
-
 You dry your eyes and turn to Kai.
 
 "I've been on to Lt. Kazahara, and I think I have a better understanding of what's going on now."
 
-SUMMARY
+---
+```
+
+IBIS RELATIONSHIP LEVEL UP
+GAINED SKILL: KNOWLEDGE (IBIS'S BACKSTORY) (Which I'll bring up when relevant)
+
+SUMMARY:
 
 Your Pilots:
 
@@ -254,7 +259,7 @@ Dumi ('A little odd, but if it works, it works')
 Engineers
 Johnathan Kazahara
 Rio Mei Long
-Ryoto Hikawa ('Microchips is right, you're needed over there on the Tausendfeussler')
+Ryoto Hikawa ('Microchips is right, you're needed over there on the Tausendfuessler')
 
 Prisoners
 Arado Balanga ('We need to have a proper chat with this kid...')
@@ -269,30 +274,29 @@ Tausendfuessler: OK
 Trilobite: OK
 Rai-oh: Minor damage, mainly superficial.
 DGG-04: Undamaged
-R-Blade: There aren't enough parts of the two arms left to replace them both. If you cannabilised one, you might be able to fix the other.
+R-Blade: There aren't enough parts of the two arms left to replace them both. If you cannibalized one, you might be able to fix the other.
 Blue Gespenst: You could reattach the arms, but they wouldn't work at full capacity until they were properly overhauled. The chances of them jamming at a critical moment are high.
 Red Gespenst: Pretty much intact, but the paintjob is fucked. The plasma stakes are offline, but there are spare weapons on the Tausendfuessler to rearm it.
-Randgrith: With a few hours work, you can reattach the Linear Bazooka and adjust it so it can fire weapons without falling over. But the torso needs an overhaul, otherwise any majot hit could collapse the superstructure
+Randgrith: With a few hours work, you can reattach the Linear Bazooka and adjust it so it can fire weapons without falling over. But the torso needs an overhaul, otherwise any major hit could collapse the superstructure
 Assault Lander: Mostly intact, although the mark of the R-1s fist is one dent that you'd need more than a hammer to get out of the bodywork. Ammo at 60%, but you can steal some from the Randgrith in an emergency.
-Wilewuerger: The bottom half of the torso is almost completely gone: Theres no way to reattach the right leg, and the left wouldn't take than much persuasion to pop right off. The Tesla Drive is intact thought, so it can fly, but the missing limbs mean its majorly off-balance, so you couldn't rely on it in combat. The Jacket Armor theoretically could be snapped straight back on, but you've torn it to shreds, so theres little point.
+Wildwuerger: The bottom half of the torso is almost completely gone: Theres no way to reattach the right leg, and the left wouldn't take than much persuasion to pop right off. The Tesla Drive is intact thought, so it can fly, but the missing limbs mean its majorly off-balance, so you couldn't rely on it in combat. The Jacket Armor theoretically could be snapped straight back on, but you've torn it to shreds, so theres little point.
 
-REPAIR PRIORITIES PLEASE.
-
-Finally:
-
-PLANS AND OPINIONS
+```
+---
 
 "Irm managed to get through to the remaining Shadow Mirror forces. This is the map of what the current outlay is."
 
-"Axel is in command of a unit in the north. They've secured a transport of some kind, but more importantly, they've managed to capture one of these new pilots and thier machine. To the east we have another, larger group of survivors, led by something called 'Unit W'. Niether Irm nor Axel would explain what that meant, so I assume its some kind of big secret. They had to veer east to avoid enemy reinforcements, putting them further away from us and on the other side of an enemy formation.
+"Axel is in command of a unit in the north. They've secured a transport of some kind, but more importantly, they've managed to capture one of these new pilots and their machine. To the east we have another, larger group of survivors, led by something called 'Unit W'. Neither Irm nor Axel would explain what that meant, so I assume its some kind of big secret. They had to veer east to avoid enemy reinforcements, putting them further away from us and on the other side of an enemy formation.
 
-"Northwest of us should be the remnants of the EFA assault force, uncluding ATX and Beowulf. I don't need to tell you that going that way is a bad idea."
+"Northwest of us should be the remnants of the EFA assault force, including ATX and Beowulf. I don't need to tell you that going that way is a bad idea."
 
 "...You kinda just did."
 
 "Quiet. Now, the only other non-EFA stronghold on the continent is the Neo-DC's California stronghold. It's a mud fort in the middle of nowhere that the EFA won't even bother attacking, but its the only thing within reasonable distance. The only other option would be to go looking for a rebel group in South America or the Caribbeans, or run the Gauntlet past Langley Base to head for the ELF in Europe.
 
 "We all need to discuss this, and quickly."
+
+---
 
 The others:
 
@@ -319,18 +323,18 @@ Ryoto: "....Who let all these crazy people into the Shadow Mirror?"
 Arado: "Please! Lets just go back to my friends! They'll explain everything!!"
 
 ---
+```
+The ELF is the Earth Liberation Front, an anti-EFA resistance group, one of the largest of the many such groups due to being funded by both the Shadow Mirror and other sources. It was essentially the Shadow Mirrors military wing until the EFA broke them in an major campaign 3 months ago. After this, Shadow Mirror was forced to disband its other puppet groups in order to form its own military forces, and begin its escape plan.
 
-The ELF is the Earth Liberation Front, an anti-EFA resistance group, one of the largest of the many such groups due to being funded by both the Shadow Mirror and other sources. It was essentially the Shadow Mirrors military wing until the EFA broke them in an major campaign 3 months ago. After this, Shadow Mirror was forced to disband its other puppet groups in order to form its own military froces, and begin its escape plan.
-
-Katina was in the ELF before she transferred out to TLI. There is still a lot of local support in parts of europe for the ELF, but the vast majority of their forces are either dead or were part of the SM forces that just got decimated.
+Katina was in the ELF before she transferred out to TLI. There is still a lot of local support in parts of Europe for the ELF, but the vast majority of their forces are either dead or were part of the SM forces that just got decimated.
 
 You have no idea if anyone made it. About 90% of SM forces made it into the portal before it turned red. Then about a third of them were vomited back out, mostly in pieces. You're not even slightly qualified to guess what could have happened to the other 60%, and neither is anyone else here. [^2]
 
-Japan is practically a fortress for the EFA, its the base of Project SRX, and the security over that is obscene: It's better protected than the EFA goverment.
-
+Japan is practically a fortress for the EFA, its the base of Project SRX, and the security over that is obscene: It's better protected than the EFA government.
+```
 ---
 
-Kai twitches his mustache. "I was sort of being completist there, I don't actually know of any groups in the are-"
+Kai twitches his mustache. "I was sort of being completest there, I don't actually know of any groups in the are-"
 
 "ELF Brasilia branch, deep cover money laundering and hiding of equipment and personnel. Previously used for smuggling people and materials via Africa, before the EFA occupied the DC's underground base near Dakar."
 
@@ -344,7 +348,7 @@ Anyway. Armaments.
 
 The R-Blades tonfas
 
-The 2 Gespensts between them have 1 M95 MG, 2 M13 Shotguns and 1 Mega Beam Rifle. There are Split Missiles and Plasma Cutters to spare in the TausendFeussler, but no replacement Slash Rippers.
+The 2 Gespensts between them have 1 M95 MG, 2 M13 Shotguns and 1 Mega Beam Rifle. There are Split Missiles and Plasma Cutters to spare in the Tausendfuessler, but no replacement Slash Rippers.
 
 The Randgriths weapons are mainly fixed other than its knife, although you could move the Spider Nets to another unit.
 
@@ -391,19 +395,17 @@ Rio and Ryoto transfer to the Fuessler and get to work on the Bluepenst, while J
 
 Now comes the big moment:
 
-"Is it...safe, to let her near the prisoner?" whispers Irm to Kai.
+"Is it... safe, to let her near the prisoner?" whispers Irm to Kai.
 
 "Probably not, but its safer than not letting her near him."
 
-"Urk...good point."
+"Urk... good point."
 
 The three of you enter the Tausendfuessler's isolation room, where Arado is handcuffed to a wall bracket, with Latooni in the corner, a pistol in one hand and her I-tablet in the other.
 
 "He's been trying to convince me I'm his best friend and we're practically brother and sister, even though I met him maybe 5 times at The School."
 
 "Irm! Kai! You're like the real versions, aren't you? You'll listen, right? You....you're not like HER, right? Oh god, please don't be like her?"
-
-WHAT IS THE FIRST QUESTION YOU WOULD LIKE TO ASK ARADO? OR WILL YOU LET IRM AND KAI ASK THE QUESTIONS? OR WOULD YOU RATHER DO SOMETHING ELSE?
 
 Irm winces as you attempt to turn Arado's testicles to mash potato with your Knee. Latooni shakes her head and tries to ignore you. Kai watched impassively.
 
@@ -413,7 +415,7 @@ Irm winces as you attempt to turn Arado's testicles to mash potato with your Kne
 
 Kai still just watches. Irm, however, looks like he's about to say or do something.
 
-CHANGE TACTICS? NEXT QUESTION? STAGE 2?
+---
 
 [^1]: I'm going to skip over the tearful consolation segment, because I have a penis and thus don't understand such things very well.
 
