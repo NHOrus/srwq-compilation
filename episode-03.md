@@ -12,7 +12,7 @@ Then the ghost of your best friend Arado, who you strangled with a power lead in
 
 Or at least that's how you see it.
 
-Your allies:
+#####Your allies:
 
 Irmgard Kazahara: Womaning super robot pilot and son of one of Shadow Mirrors main scientists. Hasn't realised he's not in charge, you are. Piloting a modified Gust Lander.
 
@@ -26,7 +26,7 @@ Johnathan Kazahara: Scientist dude. Too old for your tastes. Flying the Tausendf
 
 The Transport: Apparently full of more minions and mechs. Landed just a short distance from your Tausendfeussler.
 
-Your Enemies:
+#####Your Enemies:
 
 The Transforming thing with the overly dramatic guy in it: Fighting your Gespensts.
 
@@ -34,7 +34,9 @@ The flying one with the sniper rifle: In a sniper duel with Latooni and Irm.
 
 The Devil Ghost of Arado: A part of your mind registers that this is probably just the version of Arado from the other dimension, but you stopped listening to that part of your brain when Aguila took away Mr Flopsy after you joined The School.
 
-SUDDENLY ACTUAL PLOT
+---
+
+#####SUDDENLY ACTUAL PLOT
 
 "Ack!! Get off me!!! Stop, Katina!"
 
@@ -58,8 +60,6 @@ The Stag Beetle Crusher snags your blade arm, gets a firm grip, and then rips th
 
 Arado points the Wuergers left arm at you. It has a rather nice sword holstered in it, but more to the point, its has 3 heavy-caliber machine cannons that at pointed at the R-blades head.
 
-WHAT DO YOU DO?
-
 "I'm only going to count to three..."
 
 "BAAAAAAWHAWHAWHAAAAW!! I just wanted a friend! The School was so hard, I wanted someone to talk to! Someone to share the heartache! Please....I don't to be alone..."
@@ -76,7 +76,7 @@ The Head Vulcans rattle into the Wuerger's face, cracking one camera. Your left 
 
 Arado's scream of formless fury is almost as loud as yours. The cannon shells disintegrate your left hand and most of the forearm, and suddenly, with no grip, you're falling.
 
-IS THERE ANYTHING IN PARTICULAR YOU'D LIKE TO DO BEFORE YOU HIT THE GROUND??
+>IS THERE ANYTHING IN PARTICULAR YOU'D LIKE TO DO BEFORE YOU HIT THE GROUND??
 
 "FUCKSHITCUNTASSMOTHERFUCKINGPURPLEHAIREDDICKPUSSY!!!" You scream as you fall, firing off your vulcans wildly. Arado flies the Wuerger out of you fire arc.
 
@@ -146,7 +146,7 @@ The Slash Rippers suddenly pop like clay pigeons. Russel turns around to see the
 
 "I can swear if I want!"
 
-"STAND BACK MORTALS, MAKE WAY FOR THE GODDESS OF VICTORY!!!"
+"STAND BACK MORTALS, MAKE WAY FOR THE **GODDESS OF VICTORY!!!** "
 
 Arado sighs. "Not her again..."
 
@@ -162,7 +162,9 @@ Ryusei is temporarily stunned. "A Kamen Rider mech?? That is so damned cool!! If
 
 No-one responds immediately, then a mechanical voice interjects.
 
-While the Raioh is a high-end Super Robot, the capabilities of these new units are not to be underestimated. Perhaps you could acquiese to a little support?
+*While the Raioh is a high-end Super Robot, the capabilities of these new units are not to be underestimated. Perhaps you could acquiese to a little support?*
+
+![alt text](http://www.xl-shop.com/xlshop/product_images/BAN/Faiz-Autovajin-2.jpg "DGG-XAM4")
 
 Pic related strides out of the Trilobite, and joins you.
 
@@ -172,7 +174,9 @@ I am the Dynamic Unlimited Military Intelligence, Operation AI of DDG-XAM-04. Yo
 
 "Doomy???....I like it. Now lets go kick some ass"
 
-INTERLUDE: ELSEWHERE
+---
+
+#####INTERLUDE: ELSEWHERE
 
 Axel approaches the northern camp, and finds a few scattered Gespensts hiding behind a ridge.
 
@@ -186,4 +190,5 @@ Axel leaps up to the top of the ridge, and has a good look at the scene.
 
 "Well now....that is complicated, now that you mention it."
 
-THREAD OVER
+---
+#####THREAD OVER
