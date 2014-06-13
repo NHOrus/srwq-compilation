@@ -131,23 +131,27 @@ Russel, in comparison, is practically immobile in comparison, charging into comb
 
 However, distracted as he is, Russel fails to see another unit, this time a Schutzwald, round the corner and take aim at the back of his PT...
 
-"I FUCK YOU WITH SWORD!!!"
+"I FUCK YOU WITH *SWORD*!!!"
 
 At full boost you kick the Schutzwald with both feet, crushing its left arm as your Blade Tonfas slice up its cannons. Completely off balance, the pilot falls against the wall of the canyon, as you regain your feet, set your blades, and begin cutting.
 And cutting.
-Deeper. Deeper! Down into the guts!! Squish the pilot!! Break the engine core!!! KILL IT ALL BREAK EVERYTHING YES *YES* **YES_YESYES_**
+Deeper. Deeper! Down into the guts!! Squish the pilot!! Break the engine core!!! KILL IT ALL BREAK EVERYTHING *YES* **YES** **_YESYESYES_**
 
 "Er, are you a'right, lass?"
 
-The R-Blade has been covered in hydraulic fluid and shredded brown armor. You realise you're breathing quite heavily into the comm line.
+The R-Blade has been covered in hydraulic fluid and shredded brown armor. You realize you're breathing quite heavily into the comm line.
 
 "Yes. I'm having a ball." You stow one of the blade tonfas and pick up the Schutzwald's handheld weapon.
 
 "Don't just sit there, Bagsy, we have things to do."
 
+---
+```
 OBTAINED: G-RAILGUN
 
 WHAT DO WE DO NEXT?
+```
+---
 
 Irm leads the way, his Guarlion able to pop up to sight enemies and get back down before they return fire. He soon finds a group of five EFA Gespents this way, ducking down into a hollow just before a hail of beam and shell fire takes his units head off.
 
@@ -162,20 +166,17 @@ Irm leads the way, his Guarlion able to pop up to sight enemies and get back dow
 "..."
 
 Russel breaks the awkward moment. "I'll fire my Split Missiles to distract them, that'll give the two of you time to flank them."
-
 You both signal acknowledgement. The missiles arc over the rocks, and strike the ground around the advancing EFA troopers. You and Irm pounce as one.
-
 One pilot is rended as you stab through his cockpit, while putting G-rounds through the face of his friend who was pointing a Beam Rifle at you. You see Irm has cut down one enemy, and sends another reeling with a punch to the head, however, the third is just a little too fast for him to respond.
 
-"I'll do just like Captain Kai taught me!! JET MAGNUM!!! RAAAAGH!!!"
+"I'll do just like Captain Kai taught me!! **JET MAGNUM**!!! RAAAAGH!!!"
 
 The cocky Feddies blow takes the right arm off Irm's Guarlion and sends him reeling, well open for a second attack. Russel is hopping out of cover to support, but he may not make it in time.
-
 The other remaining EFA pilot is trying to recover, picking up his Mega Beam Rifle and aiming it you, when Russel completes his landing on top of him, driving the Gespenst's head into its upper torso and its upper torso into the cockpit. However, Russel is a brawler, not a ballerina, and as the twisted lump of metal falls to the ground, his Gespenst does too. The coat of red paint is not in very good shape by this point.
 
 You're already in motion, however. You've reacted quickly, so quickly in fact only a very small part of your brain registers that you have no idea what you're doing.
 
-"Yeah!! The old one-two!! Just like Captain Kai said. Imma be a hero, just like Captain Kai! Punch terrosists and don't afraid of anyth-"
+"Yeah!! The old one-two!! Just like Captain Kai said. Imma be a hero, just like Captain Kai! Punch terrorists and don't afraid of anyth-"
 
 "OPTION D!!!" You scream as you simultaneously slice off the top half of the Feddie's units head, reverse-kneecap it with the G-railgun, and bodyslam the suit at full blast. The two of you go flying over the Guarlion, landing in a rough roll. The Gespenst's plasma stakes are driven into the ground and the arm torn off as the whole PT is wrenched around.
 
@@ -187,28 +188,38 @@ The R-Blade may not have a Tesla Drive but it is very nimble, and with some coax
 
 And with that, you empty the clip of your railgun into his cockpit. The thing was busted up in the melee anyways.
 
-Russel and Irm decline to comment on your actions as they pick themselves up. You retreive a new weapon.
+Russel and Irm decline to comment on your actions as they pick themselves up. You retrieve a new weapon.
 
+---
+```
 LOST G-RAILGUN
 OBTAINED MEGA BEAM RIFLE
+```
+---
 
-"Well, it could be worse I suppose." says Irm, as he inspected the empty shoulder joint of his Guarlion. "I guess that means no more clsoe combat for me. I'll have to warm up the Breaker Field on this thing, but that means I have to take to the air, where I'd be exposed."
+"Well, it could be worse I suppose." says Irm, as he inspected the empty shoulder joint of his Guarlion. "I guess that means no more close combat for me. I'll have to warm up the Breaker Field on this thing, but that means I have to take to the air, where I'd be exposed."
 
 "No offense Irm boy, but we've taken two whole squads of them by ourselves. There's not much else we can do in this condition, we should head back to TLI and get in the queue for this escape tunnel thing."
 
-You're about to chime in when another transmission interrupts you. "BZZZSSSHHHis Barrison Platoon, they've claimed the hieghts, forcing us back. Captain Almer can't hold them all back, we'll be overrun! Need assistance, pleSHSHBZZZ!!!"
+You're about to chime in when another transmission interrupts you. "BZZZSSSHHHis Barrison Platoon, they've claimed the heights, forcing us back. Captain Almer can't hold them all back, we'll be overrun! Need assistance, pleSHSHBZZZ!!!"
 
 People are always interrupting you today. Its getting really annoying
 
+---
+```
 R-BLADE HP: 2300/3500
 GESPENST HP: 2900/3700
 GUARLION HP: 350/3700
+```
+---
 
 "Russel, you and me will go help our units. Irm, you head back to TLI, you can't fight like that."
 
 Irm turns the Guarlion to look at you as you sheath your second tonfa and pick up the railgun from his Guarlion's dismembered arm. It's a lot lighter than the G-Railgun, but has a high rate of fire.
 
-OBTAINED: GUARLION RAILGUN
+---
+    OBTAINED: GUARLION RAILGUN
+---
 
 "Eh, no offense Ms Tarask, but I'm the commanding officer here-"
 
@@ -216,11 +227,11 @@ OBTAINED: GUARLION RAILGUN
 
 "Going back to base will be pointless if our defense line is overrun! We need to head to support them, or everyone at TLI will be caught in the crossfire! I'm not letting that happen to my dad and my friends!"
 
-"Will you stop being sentimental I DON'T WANT YOU TO DIIIEEEEE!!!" You scream as you fire off the R-Blades Head Vulcans. The Guarlions head pops like a ripe melon and sparks fly as its other arm shorts out and falls limp.
+"Will you stop being sentimental I DON'T WANT YOU TO *DIIIEEEEE*!!!" You scream as you fire off the R-Blades Head Vulcans. The Guarlions head pops like a ripe melon and sparks fly as its other arm shorts out and falls limp.
 
 Guarlion: 72/3700
 
-"DAMMIT KATINA WHAT THE HELL!"
+"DAMMIT, KATINA, WHAT THE HELL!"
 
 "WE'RE GOING RUSSEL! WE DON'T NEED THIS BLOCKHEAD!!!" You half drag Russel away from Irm, who seems rather bewildered by your forthright and dynamic command decisions.
 
