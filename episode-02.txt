@@ -12,7 +12,7 @@ Unfortunately, today is opposite day, and instead of you invading that world, yo
 
 You now have a slight problem. 
 
-Your current forces:
+#####Your current forces:
 
 You are in the R-Blade, a prototype stolen by the Shadow Mirrors so they can design the R-Eins. Its doing quite well so far but you've been quite rough on it, it could do with a repair. You've picked up a Mega Beam Rifle and a Lion Railgun to give yourself some more firepower, but you're not sure you have that much ammo left.
 
@@ -22,15 +22,15 @@ You're accompanied by Latooni Subota in a heavily damaged Randgrith. You remembe
 
 Somewhere behind you, Axel Almer is trying to balance his epic duel with Beowulf with the need to pay attention to what's happening with the portal.
 
-Lying on the ground in front of the portal are Vindel Mausers Zweizergain and Lemon Brownings Ashsaber, both badly damaged when they came flying back out of the portal.
+Lying on the ground in front of the portal are Vindel Mauser's Zweizergain and Lemon Brownings Ashsaber, both badly damaged when they came flying back out of the portal.
 
 You haven't seen your command Irm Kazahara since you crippled his mech to force him to return to base.
 
-Enemy forces:
+#####Enemy forces:
 
 Despite heavy losses, the EFA is still coming toward you, intent on ending the Shadow Mirrors. The regular forces are all but gone, but the elite Assault Team X-terminators have joined the fray, led by Beowulf, the EFA's top ace piloting the supposedly invincible Alt Eisen Nacht.
 
-But that's nothing compared to the bewildering array of machines emerging from the portal. The main one is a massive black construction that looks like someone replaced the bridge of a battleship with the torso of a stylised Gespenst. Surrounding it are a bewildering array of mechs of types, many of which you've never seen before. This is worrying because your School training should let you recognise almost any mech on the planet.
+But that's nothing compared to the bewildering array of machines emerging from the portal. The main one is a massive black construction that looks like someone replaced the bridge of a battleship with the torso of a stylized Gespenst. Surrounding it are a bewildering array of mechs of types, many of which you've never seen before. This is worrying because your School training should let you recognize almost any mech on the planet.
 
 There are at least 15 of the mysterious units:
 2 Grungust-types, including one that looks like it's half-tiger.
@@ -42,6 +42,8 @@ A giant samurai-looking mech, easily the size of Grungust, and another black and
 A group of three units that remind you quite a lot of the R-blade you're piloting, one white and blue wielding revolvers, one massively armored with twin 5-barrel shoulder cannons, and one red one attached to some kind of flight unit.
 
 And behind them, a stream of yellow-brown mechs of a type you know you haven't seen, wielding photon rifles, coming out of the portal in waves.
+
+---
 
 You're still taking all of this in when a comm window pops up on you viewscreen. It's Irm.
 
@@ -55,9 +57,7 @@ You're still taking all of this in when a comm window pops up on you viewscreen.
 
 "Get in here. Now. We're blasting off."
 
-THERE WILL A HALF HOUR DELAY WHILE I GET HOME FROM WORK.
-
-WHAT IS YOUR INITIAL ACTION?
+---
 
 There is a moment of calm as the various sides try to get to grips with what exactly is happening.
 
@@ -69,11 +69,9 @@ The EFA open up first, firing everything they have at the newcomers. The new uni
 
 You're almost there when your sensors show something coming up behind you. Its the big Tiger-Grungust, wielding a pair of nunchucks, and it looks like its about to pounce on you.
 
-WHAT DO YOU DO?
-
 "You!! Stop right there!! We need you t-" The young pilot was ready for a lot of things, but you turning 180 and charging right at him wasn't one of them. You fire both your stolen guns at the things face, and the effect is more like that time you set Seolla's pet kitten on fire than shooting a mech. Something like metallic fur burns off its face as the mech recoils as if in pain.
 
-Both guns empty, you dive between the mechs legs and come up with your blade tonfas drawn. You leap at the things back, intent on a manuever you just came up with right now called 'slice-climbing', but suddenly, faster than you thought possible it whips around, and the nunchucks strike you in the side. You block the blow with your blades, but you still hit the ground hard.
+Both guns empty, you dive between the mechs legs and come up with your blade tonfas drawn. You leap at the things back, intent on a maneuver you just came up with right now called 'slice-climbing', but suddenly, faster than you thought possible it whips around, and the nunchucks strike you in the side. You block the blow with your blades, but you still hit the ground hard.
 
 "Koryuoh's not going to fall for a trick like that! Now hold still or I'll-"
 
