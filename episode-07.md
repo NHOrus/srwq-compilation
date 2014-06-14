@@ -1,5 +1,8 @@
+# Episode 07
 
-SRWQ Mission 7: Maybe you'll finally get to relax for a bit. But I doubt it.
+## SHADOW MIRROR QUEST (AKA SRW Q)
+
+###SRWQ Mission 7: Maybe you'll finally get to relax for a bit. But I doubt it.
 Sciencegar Sciencebolt Wed 27 Jan 2010 17:56:29 No.4438663 ViewReplyOriginalReport
 Quoted By: >>4440736
 Previous Threads:
