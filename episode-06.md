@@ -4,13 +4,13 @@
 
 ###SRWQ Mission 6: Takin' it easy
 
-You are the Shadow Mirror version of Katina Tarask. Educated at The School, you've picked up the contraversial dress code, but not the whole following orders and keeping your crazy to yourself bits. With nothing else to do, you joined the Earth's Liberation Front, which led to membership in Shadow Mirror.
+You are the Shadow Mirror version of Katina Tarask. Educated at The School, you've picked up the controversial dress code, but not the whole following orders and keeping your crazy to yourself bits. With nothing else to do, you joined the Earth's Liberation Front, which led to membership in Shadow Mirror.
 
 On the day the Shadow Mirror were planning to retreat to the OGverse, the OGverse struck first, capturing the Lygues portal for themselves and scattering the Shadow Mirror forces over both their own planet and the Endless Frontier in general. They claimed they did this to stop the fearsome Dark Brain from destroying their dimension, but you're fairly sure that's just a cover story by your old crush Arado Balanga, to explain how he came back from the dead after you choked him to death in a fit of jealous rage.
 
 An incident involving this new Arado picking up a fresh scar resulted in your former teammates locking you up. However, Dumi-chan, the friendly AI that runs a super robot you found, decided to save you from the totally deserved imprisonment, and stole you away on the Trilobite cruiser he had been trusted to fly.
 
-You're now inside the mech hangar of the Trilobite, as your 'friends' Tausendfuessler dives to lower altitude, presumably to equalise the cabin pressure after Dumi ripped a hole in the side.
+You're now inside the mech hangar of the Trilobite, as your 'friends' Tausendfuessler dives to lower altitude, presumably to equalize the cabin pressure after Dumi ripped a hole in the side.
 
 You're alone on the Trilobite with Dumi, or at least you should be. Theres not a whole lot the Tausendfuessler can do to stop you without actually launching mechs: It's a transport shuttle, the Trilobite is a stealth insertion cruiser. The Fuessler is essentially a tin can with wings compared to your new ship.
 
@@ -20,17 +20,17 @@ You're alone on the Trilobite with Dumi, or at least you should be. Theres not a
 
 The DGG-04's head turns and looks at the crushed remains of the Tausendfeussler's port toilet in its hand. *I'm afraid mid-air aircraft maintenance is not one of my functions.*
 
-"But...No!! It wasn't supposed to be like this! All I wanted was everyone to listen to me and maybe service me sexually every so often!!"
+"But... No!! It wasn't supposed to be like this! All I wanted was everyone to listen to me and maybe service me sexually every so often!!"
 
 *From my limited experience, getting large numbers of people to do those kinds of things is not trivial.*
 
-"Look, just...Just save them, and then we..We can make some fake medical evidence!! We'll pretend you can scan my brain, and then you can say that it's not my fault, that I have brain problems from all the stuff the School did to me, put codes and viruses in my head. Then we can get back together again."
+"Look, just... Just save them, and then we... We can make some fake medical evidence!! We'll pretend you can scan my brain, and then you can say that it's not my fault, that I have brain problems from all the stuff the School did to me, put codes and viruses in my head. Then we can get back together again."
 
 You're vaguely aware that your eyes are tearing up at this point.
 
 *That... is one possibility, but its complicated by them not only having doubts in you, but doubts in me due to my actions. We would have to construct a massive web of lies, which given the collection of personalities aboard the Tausendfuessler, would probably only work on some of them.
 
-The other possibility...is for you to cut your ties, and come to meet my friends.*
+The other possibility... is for you to cut your ties, and come to meet my friends.*
 
 "NO! I don't want any of your silly robot friends!! I want my friends!!."
 
@@ -75,7 +75,7 @@ In the medical bay, you feign sleep as Dumi relates his 'findings'. At least, yo
 
 "So you're saying the School's programming failed on her? She wouldn't be the first one." Latooni is as emotionless as ever.
 
-*Failed would probably be the wrong term to use, as it implies the Schools equipment is at fault. Given that I'm detecting traces of hynosis, memory alteration therapy, and outright nerve stapling, in multiple regions of the brain, I don't beleive thats possible. It appears that somehow, her mind is attempting to actively reject all of these changes. The irrational behaviour and inconsistent thought patterns are a result of conflict between the personality that was constructed in her mind using School's equipment, and some process in her brain which is attempting to restore the original.*
+*Failed would probably be the wrong term to use, as it implies the Schools equipment is at fault. Given that I'm detecting traces of hypnosis, memory alteration therapy, and outright nerve stapling, in multiple regions of the brain, I don't believe thats possible. It appears that somehow, her mind is attempting to actively reject all of these changes. The irrational behavior and inconsistent thought patterns are a result of conflict between the personality that was constructed in her mind using School's equipment, and some process in her brain which is attempting to restore the original.*
 
 Kai grunts. "No offense, D.U.M.I., but I find this a little hard to swallow from a computer meant to run an oversized motorcycle."
 
@@ -135,7 +135,7 @@ Also note that the Wildschwein and the 4 Gespensts with it are bearing down on a
 
 Overall it looks like the Shadow Mirrors have better mechs, but the EFA pilots are better. Given how the Shadow Mirrors you fought before were well-trained soldiers, you'd have to guess this is some special EFA unit.
 
-The R-Guns energy reserves are a little depleted from chasing after one of the fastest ships in the OGVerse, but theres more than enough for several Metal Genocider shots. A proper HTB shot wouldn't be possible though: Even if you could bodge together some connection between the Hucky-3 and the R-Gun in a few minutes, the Mk 3's reactor is meant to power the Gunner and Boxer Frames, not a cannon capable of shooting things into the sun. The tronium engine might be able to produce that much power, but it would still melt the Mk3 itself.
+The R-Guns energy reserves are a little depleted from chasing after one of the fastest ships in the OGVerse, but theres more than enough for several Metal Genocider shots. A proper HTB shot wouldn't be possible though: Even if you could badge together some connection between the Hucky-3 and the R-Gun in a few minutes, the Mk 3's reactor is meant to power the Gunner and Boxer Frames, not a cannon capable of shooting things into the sun. The tronium engine might be able to produce that much power, but it would still melt the Mk3 itself.
 
 Viletta activates her laser comms system and locks onto the Wildschwein.
 
@@ -151,11 +151,11 @@ Even a cynic like Vilette never imagined Shine Hausen speaking like that.
 
 The Circle Zanber slices diagonally through the Shadow Mirror standing atop the Hiryu, as his two allies are pinned by the attacks of Shine's four minions.
 
-"Need the range...Metal Genocider!!" A blue beam of pure destruction lances across the hills, passes over the Hiryu's hull close enough for the paint to bubble, and rips a massive chunk out of the nearby cliff-face. But the Schwein had begun moving before Mai had even pressed the trigger.
+"Need the range... Metal Genocider!!" A blue beam of pure destruction lances across the hills, passes over the Hiryu's hull close enough for the paint to bubble, and rips a massive chunk out of the nearby cliff-face. But the Schwein had begun moving before Mai had even pressed the trigger.
 
 "Mai!! Be careful, that pilot could be extremely dangerous!" If Shine has the same abilities as in our world, she'll be tough to beat even in an older mech like the Schwein, and theres a high probability it'll be upgraded to augment her. GEIM, T-Link, Uranus, take your pick, any one of them could make her tough to stop... or even to survive.
 
-Leona has already caught up with Mai, and the Wildschwein has dissappeared behind the Hiryu, seemingly using it as cover.
+Leona has already caught up with Mai, and the Wildschwein has disappeared behind the Hiryu, seemingly using it as cover.
 
 "Mai! Leona! Distract that Wildschwein! I'll do what I can to fix this situation!!" As the R-Gun and Seigarlion fly around the Hiryu, Viletta opens fire on the EFA Gespensts. Photon bursts took the legs off two as she readjusted her comms.
 
@@ -163,7 +163,7 @@ Leona has already caught up with Mai, and the Wildschwein has dissappeared behin
 
 "Wha-?" Alex landed on his feet, then dodged to one side as cannon shells tore up the rock where he'd been. "You're the Irregulars who've been chasing us! What the hell makes you think you can make demands of me?"
 
-The Roches Saber takes the arms off another EFA mech, and the kick puts him down. "The EFA are aiming for the Hiryu. One of their aces is trying to sink it, and the Shirogane is manuvering to fire on it!"
+The Roches Saber takes the arms off another EFA mech, and the kick puts him down. "The EFA are aiming for the Hiryu. One of their aces is trying to sink it, and the Shirogane is maneuvering to fire on it!"
 
 Viletta saw the Seigarlion fly past as shells and missiles trace the path it's taking, or rather, just about to take.
 
@@ -175,7 +175,7 @@ Axel barely manages to catch the Nachts arm, and with a twirl sents the blue beh
 
 "You know I'm right, Axel."
 
-"D-...Dammit! Trooper squad, allow the captured ship crew to manuver the vessel! Shadow Mirrors, begin a fighting retreat!
+"D-... Dammit! Trooper squad, allow the captured ship crew to maneuver the vessel! Shadow Mirrors, begin a fighting retreat!
 
 "I'll have words with you later, Irregular."
 
@@ -199,7 +199,7 @@ Viletta smiles to herself as she fires on the oncoming EFA. Her ice-cool routine
 
 Leona's beam shots dig into the Schwein's rear armor. "Go home princess. You should know you have no future here."
 
-"I..I've already won! I'VE ALREADY WON!!!"
+"I... I've already won! I'VE ALREADY WON!!!"
 
 The angels surround her. Everywhere is both green and pink at once. The young girl screams and lashes out, but she hits only air. The Angelg's blow takes off the Wildschein's head and left arm, and the wailing girl falls to earth.
 
@@ -213,7 +213,7 @@ Lefina Enfield grits her teeth and hits the comm button. "M-mister Axel, you hav
 
 "What are you Irregulars trying to do now, go down in a blaze of glory and take us with you??"
 
-"Please....we only need to make one shot."
+"Please... we only need to make one shot."
 
 "...Oh, I have to see this. Go ahead, girl."
 
@@ -249,7 +249,7 @@ The grainy voice came from the Nacht. "Let it go, Lee. You have a ship to repair
 
 Linjun set his jaw, then stormed out of the hangar.
 
-"Still...insubordination like that is a pretty big mark against you...but not as big as your failure." The scornful voice came from the mechs speakers, with no sign of the pilot.
+"Still... insubordination like that is a pretty big mark against you... but not as big as your failure." The scornful voice came from the mechs speakers, with no sign of the pilot.
 
 "It wasn't my fault!! They had EOT mechs, and psychodrivers!! That's not a force you can take on alone!!"
 
@@ -259,8 +259,8 @@ Linjun set his jaw, then stormed out of the hangar.
 
 "Skip it. Between this catastrophe, your insubordination, and your constant attempts to access ATX mechs, I have more than enough to terminate your transfer. Take whats left of your little piggy, and go back to Japan. Tell Date that if you're the best she can come up with, humanity deserves whatever the next batch of aliens does to them."
 
-Shines hands balled into fists. "You...you...Say that to my face!!"
+Shines hands balled into fists. "You... you... Say that to my face!!"
 
 The laugh is mocking and completely humorless. "Beleive me, little girl, you really don't want me to do that. Now I want you off the Shirogane in half an hour, or I'll throw you off. Understood?"
 
-"Y...yes." Shine turned away, blinking away the tears. I haven't failed. I haven't!! My true mission was to gather intel for the Director, and I have a lot to tell her...
+"Y... yes." Shine turned away, blinking away the tears. I haven't failed. I haven't!! My true mission was to gather intel for the Director, and I have a lot to tell her...
