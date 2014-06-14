@@ -8,27 +8,27 @@ You are the Katina Tarask of the Shadow Mirror Universe. The School taught you h
 
 The Shadow Mirrors have all but been destroyed by unknown but very familiar invaders from the dimension they planned to invade themselves. In your escape, you managed to capture one: Arado Balanga, a young man who should be dead.
 
-Having brutalised Arados testicles to get him ready for interrogation, you back off and let Irm and Kai, the two people who think they're in charge, have their say.
+Having brutalized Arado's testicles to get him ready for interrogation, you back off and let Irm and Kai, the two people who think they're in charge, have their say.
 
 "Oh god...oh god, just keep her away from me."
 
-"I'll try my best." resasures Irm shakily. "Now, explain why you attacked us."
+"I'll try my best." reassures Irm shakily. "Now, explain why you attacked us."
 
-"It wasn't an attack!!! We were just....we had to come! The *Cracks* , they were tearing everything apart!! Nothing was making sense anymore...although not as bad as here!!!"
+"It wasn't an attack!!! We were just... we had to come! The *Cracks,* they were tearing everything apart!! Nothing was making sense anymore... although not as bad as here!!!"
 
 "Slow down son." chimes in Kai. "If you weren't attacking, why are your pals sitting in our base, next to the corpses of half of our forces?"
 
-"I dunno! Gilliam said something about a...a thingummy wave, as we were crossing, that the two forces were on the same path. I, I guess must have crashed into them headlong, or something. It was an accident! We weren't exactly trained for this!"
+"I dunno! Gilliam said something about a... a thingummy wave, as we were crossing, that the two forces were on the same path. I, I guess must have crashed into them headlong, or something. It was an accident! We weren't exactly trained for this!"
 
-"What are the *Cracks* ?"
+"What are the *Cracks?"*
 
-This is the queitest thing you've said all day. This only makes it more pronounced. Irm shivers a little.
+This is the quietest thing you've said all day. This only makes it more pronounced. Irm shivers a little.
 
 "....It was a few months ago. We'd just fought off a big palooka, someone called Dark Brain, massive guy from another dimension. We thought we'd seen the last of him, but then, the Cracks started happening.
 
-"Stuff just started....to change. It would dissappear, and something similar but different would be there in its place. The New York crater dissappeared, and in its place was a big dome with a different city inside, deserted except for tomato plants. A whole colony dissappeared, and in its place was a gigantic laser cannon, crewed by a bunch of German guys who thought they were 'New-types'. We found a floating island full of wierd monster-robots, and a giant red spear at the South Pole.
+"Stuff just started... to change. It would disappear, and something similar but different would be there in its place. The New York crater disappeared, and in its place was a big dome with a different city inside, deserted except for tomato plants. A whole colony disappeared, and in its place was a gigantic laser cannon, crewed by a bunch of German guys who thought they were 'New-types'. We found a floating island full of weird monster-robots, and a giant red spear at the South Pole.
 
-"Then, Ring....Mao Industries just vanished. All the people. There were 20,000 satellites, a hundred drone mecha that defended the place, and a massive microwave generator to power them...but not a single person."
+"Then, Ring... Mao Industries just vanished. All the people. There were 20,000 satellites, a hundred drone mecha that defended the place, and a massive microwave generator to power them... but not a single person."
 
 You replace your knee in Arado's groin. It feels like theres still something left to squish.
 
@@ -36,19 +36,19 @@ You replace your knee in Arado's groin. It feels like theres still something lef
 
 The room suddenly grows extremely quite, except for Arado' anguished gasp of pain. Even Latooni looks up from what she's doing.
 
-"Er, I mean, 'you'll never have children'. Fruedian slip."
+"Er, I mean, 'you'll never have children'. Freudian slip."
 
-"It....it didn't make sense. That was...the point, we had no...idea what was happening, until the Giest appeared."
+"It... it didn't make sense. That was... the point, we had no... idea what was happening, until the Giest appeared."
 
 Kai pulls you away from Arado's testicles and looks into the boys face. "What's a Giest?"
 
-"XN-Giest, a robot that travels dimensions...we destroyed it, blew it to dust, but then it appeared again. Gilliam didn't want to use it, but we had to know..."
+"XN-Giest, a robot that travels dimensions... we destroyed it, blew it to dust, but then it appeared again. Gilliam didn't want to use it, but we had to know..."
 
 "Know what?"
 
-"Dark Brain wasn't dead. We'd killed the him that could exist in our world, but he still existed in all the others. He was....throwing bits of other dimensions at ours, taking our world apart piece by piece, using a channel that was left in our dimension...by you."
+"Dark Brain wasn't dead. We'd killed the him that could exist in our world, but he still existed in all the others. He was... throwing bits of other dimensions at ours, taking our world apart piece by piece, using a channel that was left in our dimension...by you."
 
-Irm looks shocked at this. "By us?! What the hell did we do to your dimens....Oh, you mean Lygues??"
+Irm looks shocked at this. "By us?! What the hell did we do to your dimens... Oh, you mean Lygues??"
 
 "Yeah! That's the L-word-one! Lygeus and Acguy-Arse! Your dimensional travel devices gives Dark Brain what he needs to attack us!
 
@@ -76,7 +76,7 @@ Irm looks shocked at this. "By us?! What the hell did we do to your dimens....Oh
 
 Kai releases his grip from your neck as you slide into unconsciousness.
 
-Irm blinks. "I...I thought that only worked in Star Trek."
+Irm blinks. "I... I thought that only worked in Star Trek."
 
 Kai grunts. "So did I. Maybe she's a Trekkie."
 
@@ -90,7 +90,7 @@ Kai grunts. "So did I. Maybe she's a Trekkie."
 
 "...Let's just go."
 
-You've woken up in the portside toilet of the Tausendfuessler. The door has been locked from the outside somehow, and the inside handle is on the ground beside the door. You've been checked for weapons, you only have your hairpins, a hairbrush, a mobile phone with no credit and a melted chocolate bar you apparently left in your back pocket. There is half a roll of toiler papet, a relatively clean toilet brush, and a discarded porno magazine. The light fixture is broken, but light streams in through a small window.
+You've woken up in the port side toilet of the Tausendfuessler. The door has been locked from the outside somehow, and the inside handle is on the ground beside the door. You've been checked for weapons, you only have your hairpins, a hairbrush, a mobile phone with no credit and a melted chocolate bar you apparently left in your back pocket. There is half a roll of toiler paper, a relatively clean toilet brush, and a discarded porno magazine. The light fixture is broken, but light streams in through a small window.
 
 "BUHUHUHUHUomnomnomWAAAAAAOmnomsniffsniff...."
 
@@ -120,11 +120,11 @@ Suddenly, something is blocking the light from the porthole.
 
 Russel desperately banks the shuttle to the left, shouting. "The Trilobite's out of control! It's going hit us!!!"
 
-Rio barely manages to hold onto a hyraulic cable as Ryoto goes head over heels. "Its that damned AI! It really has gone crazy!!!"
+Rio barely manages to hold onto a hydraulic cable as Ryoto goes head over heels. "Its that damned AI! It really has gone crazy!!!"
 
 There is a horrendous screeching sound, and Ibis dives out of the way as metal fingers crash through the wall of the Tausendfuesslers hangar. There is a final tortured squeal as steel snaps like overstretched gum, and then only the sound of the howling wind blowing past the Tausendfuessler.
 
-The portside toilet is gone.
+The port side toilet is gone.
 
 ####MISSION OVER
 
@@ -154,7 +154,7 @@ Lefina held her breath to keep herself calm. Aliens, rampant computers, interdim
 
 Axel turned to the bridge operator Eun. "What the hell is it now?? Are those three friends of your still tailing us?"
 
-"N-no, its not Vilett...There are signals ahead of us. Our sensors indicate them as EFA-"
+"N-no, its not Vilett... There are signals ahead of us. Our sensors indicate them as EFA-"
 
 "SHIT!! On the Screen."
 
@@ -174,11 +174,11 @@ Shaking off the last of the clay and dust, the Kurogane levels off, and comes to
 
 Tetsuya Onodera adjusts his captains jacket, still ill-fitting even after months. "Well, you can blame Gilliam and his fancy gadget for popping us out down there. If we're supposed to be taking on an entire planet, the least he could do was make us all land on the same spot."
 
-"...I'm afraid our running into the oncoming Shadow Mirrors has gotten us a little more seperated than a bit of digging."
+"...I'm afraid our running into the oncoming Shadow Mirrors has gotten us a little more separated than a bit of digging."
 
 "What? More of the group are missing."
 
-"The Hiryu Kai fell out of the stream early. Viletta, Leona, Lamia and Mai were still inside at the time. Latooni and Shine didn't materialise. Ryuune materialised, then faded out again."
+"The Hiryu Kai fell out of the stream early. Viletta, Leona, Lamia and Mai were still inside at the time. Latooni and Shine didn't materialise. Ryuune materialized, then faded out again."
 
 "What about Masaki??"
 
@@ -208,9 +208,9 @@ The Same Elsewhere, but a few hundred meters away:
 
 "Nothing."
 
-Ratsel raises an eyebrow at Gilliams remark. "Nothing from any of them? That seems perplexing."
+Ratsel raises an eyebrow at Gilliam's remark. "Nothing from any of them? That seems perplexing."
 
-"Brian Midcrid. Graien Grassman. Even Nibhal Mubhal. I've tried every major politician in the Federation committee of our world, as well as a dozen high-ranking military officers. I can't get in contact with any of them. There's no contact office for the Federation Commitee, and all Government radio frequencies are scrambled. The EFA of this world has hidden its face from us."
+"Brian Midcrid. Graien Grassman. Even Nibhal Mubhal. I've tried every major politician in the Federation committee of our world, as well as a dozen high-ranking military officers. I can't get in contact with any of them. There's no contact office for the Federation Committee, and all Government radio frequencies are scrambled. The EFA of this world has hidden its face from us."
 
 Ratsel grimaces. "So we're on our own..."
 
@@ -226,7 +226,7 @@ Gilliam flicked some hair out of his face and rested his chin on his hands. "We'
 
 "...You think we should join up with our old enemies."
 
-"You're the perfect man for putting things together under the table. Go to the DC with Sanger, see what you can do. Even the slightest scrap of information could be vital. I'll do what I can to root out the different factions of the Shadow Mirror. The rest of the team will have to organise into search parties, and start covering ground as best we can, to find Vindel and our lost comrades."
+"You're the perfect man for putting things together under the table. Go to the DC with Sanger, see what you can do. Even the slightest scrap of information could be vital. I'll do what I can to root out the different factions of the Shadow Mirror. The rest of the team will have to organize into search parties, and start covering ground as best we can, to find Vindel and our lost comrades."
 
 "Right. I'll ride faster than the wind, and cook you up a gourmet of intel. Good luck, Gilliam."
 
@@ -246,7 +246,7 @@ But my point is, Gilliam HAS tried everyone he knows. Either they're out of cont
 
 Man, this Elsewhere's getting pretty boring:
 
-"I don't beleive a word of it!"
+"I don't believe a word of it!"
 
 Ryusei gulps. "No, really! It was another you!! And she was going crazy, screaming at Arado about hell and ghosts and stuff!!"
 
@@ -254,7 +254,7 @@ Katina sniffs. "Doesn't sound like me at all."
 
 "Well, I'm not saying she was exactly the same..."
 
-"You're delusional. You've gotten it into your head that theres another version of everyone on this world, and that we're going to meet them all, one by one, and have silly little adventures where we learnt about ourselves and shit. Bunch of comicbook bullshit, that's what it is."
+"You're delusional. You've gotten it into your head that theres another version of everyone on this world, and that we're going to meet them all, one by one, and have silly little adventures where we learned about ourselves and shit. Bunch of comicbook bullshit, that's what it is."
 
 "Can we stop arguing about this and get after them??", pleads Seolla. "I don't want to let that idiot alone with...her, for too long."
 
