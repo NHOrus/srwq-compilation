@@ -1,17 +1,8 @@
+# Episode 06
 
-SRWQ Mission 6: Takin' it easy
-Sciencegar Sciencebolt Mon 25 Jan 2010 21:30:00 No.4432887 ViewReplyOriginalReport
-Quoted By: >>4434117
-Previous threads:
-http://archive.easymodo.net/cgi-board.pl/m/thread/4415513
-http://archive.easymodo.net/cgi-board.pl/m/thread/4419117
-http://archive.easymodo.net/cgi-board.pl/m/thread/4420922
-http://archive.easymodo.net/cgi-board.pl/m/thread/4426965
-http://archive.easymodo.net/cgi-board.pl/m/thread/4429260
+## SHADOW MIRROR QUEST (AKA SRW Q)
 
-We'll be taking this one a little easier, my posts will be a lot more sporadic and the thread could be used for a few days until it fills to autosage level.
-
-Anyway, to set the scene
+###SRWQ Mission 6: Takin' it easy
 
 You are the Shadow Mirror version of Katina Tarask. Educated at The School, you've picked up the contraversial dress code, but not the whole following orders and keeping your crazy to yourself bits. With nothing else to do, you joined the Earth's Liberation Front, which led to membership in Shadow Mirror.
 
@@ -21,161 +12,45 @@ An incident involving this new Arado picking up a fresh scar resulted in your fo
 
 You're now inside the mech hangar of the Trilobite, as your 'friends' Tausendfuessler dives to lower altitude, presumably to equalise the cabin pressure after Dumi ripped a hole in the side.
 
-WHAT DO YOU DO??
-SEED D Cagalli !!U5xc0wG3iH0 Mon 25 Jan 2010 21:35:00 No.4432904 Report
-Quoted By: >>4432929
-Help the Trilobite down and make sure it doesn't crash.
-
-If they think you're sane again they'll let you free. Plus you can't afford to run around on your own.
-Anonymous Mon 25 Jan 2010 21:43:00 No.4432924 Report
-Take this shit to /tg/. That is where quest threads belong.
-Sciencegar Sciencebolt Mon 25 Jan 2010 21:45:00 No.4432929 Report
-Quoted By: >>4433026
->>4432904
-
 You're alone on the Trilobite with Dumi, or at least you should be. Theres not a whole lot the Tausendfuessler can do to stop you without actually launching mechs: It's a transport shuttle, the Trilobite is a stealth insertion cruiser. The Fuessler is essentially a tin can with wings compared to your new ship.
-SEED D Cagalli !!U5xc0wG3iH0 Tue 26 Jan 2010 00:07:00 No.4433026 Report
-Quoted By: >>4433214
->>4432929
 
-Derp. I need to learn to read. Meant make sure the Tausendfuessler doesn't crash. A gaping hole in the side of it isn't good, so cover it, run interference in the event of an attact, etc.
+---
 
-The point is you defend it so that you regain everyone's trust and faith and won't get chained up to a toilet agani.
-Zeta Zaku Tue 26 Jan 2010 01:09:00 No.4433214 Report
->>4433026
-This. As crazy as we are, we certainly didn't intend to rip a giant hole in one of our only rides. Plus we need to start rebuilding some credibility if we want to keep our allies.
-Haken Browning !zHe7DH816A Tue 26 Jan 2010 01:26:00 No.4433284 Report
-Quoted By: >>4433295
->and scattering the Shadow Mirror forces over both their own planet and the Endless Frontier in general.
+"I... I didn't mean like that!! I wanted to be let out, not torn out! Fix it! Fix it now!"
 
-Wait, how do we know we're even in the EF? Linked to it quite directly, maybe, but obviously not a part within that particular whole.
-Zeta Zaku Tue 26 Jan 2010 01:29:00 No.4433295 Report
-Quoted By: >>4433344
->>4433284
-I think he means the forces that collided with the OG-verse characters in transit through the portal, which we never went through.
-Haken Browning !zHe7DH816A Tue 26 Jan 2010 01:46:00 No.4433344 Report
-Quoted By: >>4433351
->>4433295
-And then Shine was a Neige. Blame time distortions, nanomachines, Couch's quest thread, pretty much everything but me and Decade 'cause neither of us could have given her that chest or the elf ears.
-View SameGoogleiqdbSauceNAO A Neige is Commando.jpg, 1MiB, 2200x1600
-Haken Browning !zHe7DH816A Tue 26 Jan 2010 01:48:00 No.4433351 Report
->>4433344
-Forgot depiction of said chest and elf ears.
-
-Might be able to blame Decade for the gunblade, though.
-Gamlin !Xb1uRYUg66 Tue 26 Jan 2010 02:32:00 No.4433522 Report
-Quoted By: >>4433543 >>4433564
-Katina should attempt to get back together with the rest of her crew in a way that convinces them she is more of an asset that liability.
-
-Once again, blaming a lot of her craziness on lasting affects of School drugs/conditioning would be a great excuse. Maybe Dumi has some sort of scanner in its cockpit? Would be easy to write off since it's a DGG. Then there may be some sort of medical bay in the trilobite as an alternative.
-Haken Browning !zHe7DH816A Tue 26 Jan 2010 02:38:00 No.4433543 Report
-Quoted By: >>4433573
->>4433522
-This. Use Dumi/Trilobite med bay to forge a body scan chock full of ampethetamines and Weird Japan Drugs. Throw in some random blood pressure/adrenaline spikes if we can wing it.
-Samefag the Avenger Tue 26 Jan 2010 02:45:00 No.4433564 Report
->>4433522
-This. Gain their trust again. We don't want any more enemies.
-SEED D Cagalli !!U5xc0wG3iH0 Tue 26 Jan 2010 02:48:00 No.4433573 Report
->>4433543
-
-Doing that might explain your actions but they won't regain anyone's trust. At least not without Katina helping the Tausendfuessler out.
-Sciencegar Sciencebolt Tue 26 Jan 2010 03:21:00 No.4433696 Report
-Quoted By: >>4433864
-"I....I didn't mean like that!! I wanted to be let out, not torn out! Fix it! Fix it now!"
-
-The DGG-04's head turns and looks at the crushed remains of the Tausendfeussler's port toilet in its hand. I'm afraid mid-air aircraft maintenance is not one of my functions.
+The DGG-04's head turns and looks at the crushed remains of the Tausendfeussler's port toilet in its hand. *I'm afraid mid-air aircraft maintenance is not one of my functions.*
 
 "But...No!! It wasn't supposed to be like this! All I wanted was everyone to listen to me and maybe service me sexually every so often!!"
 
-From my limited experience, getting large numbers of people to do those kinds of things is not trivial.
+*From my limited experience, getting large numbers of people to do those kinds of things is not trivial.*
 
 "Look, just...Just save them, and then we..We can make some fake medical evidence!! We'll pretend you can scan my brain, and then you can say that it's not my fault, that I have brain problems from all the stuff the School did to me, put codes and viruses in my head. Then we can get back together again."
 
 You're vaguely aware that your eyes are tearing up at this point.
 
-That...is one possibility, but its complicated by them not only having doubts in you, but doubts in me due to my actions. We would have to construct a massive web of lies, which given the collection of personalities aboard the Tausendfuessler, would probably only work on some of them.
+*That... is one possibility, but its complicated by them not only having doubts in you, but doubts in me due to my actions. We would have to construct a massive web of lies, which given the collection of personalities aboard the Tausendfuessler, would probably only work on some of them.
 
-The other possibility...is for you to cut your ties, and come to meet my friends.
-
-WHAT IS YOUR RESPONSE TO THAT???
-Jerid Messa !!AbDOcayw4O/ Tue 26 Jan 2010 03:27:00 No.4433723 Report
-It's a trap, Dumi will lead you to skynet. At least attempt to get back on everyone's goodside. At best Russel and Ibis might side with Katina.
-Anonymous Tue 26 Jan 2010 03:35:00 No.4433744 Report
-attempt to fake residual medical conditions from school
-
-find actual residual medical conditons from school
-Anonymous Tue 26 Jan 2010 03:38:00 No.4433759 Report
-Quoted By: >>4433807
-Let's make a genuine effort to try to get back on everyone's good side. Only go psycho on our enemies in combat and stuff like that.
-
-We will have Latooni...
-
-And Ibis...
-
-And Arado...
-Gamlin !Xb1uRYUg66 Tue 26 Jan 2010 03:40:00 No.4433769 Report
-Who are your friends?
-SEED D Cagalli !!U5xc0wG3iH0 Tue 26 Jan 2010 03:47:00 No.4433794 Report
-Quoted By: >>4433807 >>4433823
-... I don't feel safe trusting Dumi... not after a friend suggested this might be Duminuss's awareness guiding it.
-
-We stick with our friends and soon-to-be harem members. If we behave ourselves when the chips are down they'll trust us.
-Anonymous Tue 26 Jan 2010 03:51:00 No.4433807 Report
->>4433794
->not after a friend suggested this might be Duminuss's awareness guiding it.
-
-Oh shit I didn't think of that. Yeah for now I vote we do >>4433759
-kai !!2vdorzb/J61 Tue 26 Jan 2010 03:58:00 No.4433822 Report
-RESTABLISH TIES
-Sciencegar Sciencebolt Tue 26 Jan 2010 03:58:00 No.4433823 Report
-Quoted By: >>4433832 >>4433836 >>4433837 >>4433850 >>4433857
->>4433794
-From an in-character knowledge perspective, Arado never mentioned anyone except Dark Brain. I don't recall anything specific about Dumi being mentioned in Katinas presence: As far as I can tell, she just sort of accepted him once she got into the Raioh. You literally haven't asked anyone who or what he is, except Dumi himself.
+The other possibility...is for you to cut your ties, and come to meet my friends.*
 
 "NO! I don't want any of your silly robot friends!! I want my friends!!."
 
-A slight pause. Very well. Head to the Trilobites medical bay and lie on the restraining couch. I'll operate the restraints for you. The initial story will be that I rescued you from committing suicide, and have you under sedation. Keep a comm-bead in your ear, and I'll keep you informed of developments as we go.
+A slight pause. *Very well. Head to the Trilobites medical bay and lie on the restraining couch. I'll operate the restraints for you. The initial story will be that I rescued you from committing suicide, and have you under sedation. Keep a comm-bead in your ear, and I'll keep you informed of developments as we go.*
 
-DO YOU GO ALONG WITH THIS PLAN?
-SEED D Cagalli !!U5xc0wG3iH0 Tue 26 Jan 2010 04:00:00 No.4433832 Report
->>4433823
+---
 
-Chalk it up to OOC-knowledge spoiling IC-knowledge. But at the moment this is just paranoid delusions of mine.
-
-We go along with the plan. Dumi should be smart enough to not betray our trust.
-Zeta Zaku Tue 26 Jan 2010 04:00:00 No.4433836 Report
->>4433823
-For now, but since Dumi's the one person we can't intimidate or carouse into doing what we want so far, for obvious reasons, I say we be more careful around him in the future.
-Anonymous Tue 26 Jan 2010 04:01:00 No.4433837 Report
->>4433823
-Ten bucks says if we go along with it, Dumi will take unilateral action and take us off to meet these "friends"
-Gamlin !Xb1uRYUg66 Tue 26 Jan 2010 04:07:00 No.4433848 Report
-Sounds cool. though if Dumi finds actual problems to fix that would be cool too.
-Anonymous Tue 26 Jan 2010 04:08:00 No.4433850 Report
->>4433823
-Go along with this.
-Samefag the Avenger Tue 26 Jan 2010 04:11:00 No.4433857 Report
->>4433823
-Go along with this.
-Sanger Zombolt! Tue 26 Jan 2010 04:13:00 No.4433864 Report
->>4433696
-Wait....don't tell me we missed the opportunity become a cyborg, meet lots of Brave DGGs and go hikari NI NAREEEEE! On everyone's asses....
-Jerid Messa !!AbDOcayw4O/ Tue 26 Jan 2010 04:15:00 No.4433867 Report
-Listen to the AI for now but forever be wary about it. In the mean time, ask Dumi about its origins.
-Sciencegar Sciencebolt Tue 26 Jan 2010 04:28:00 No.4433900 Report
-Quoted By: >>4433908 >>4433922 >>4433939
 The restraints close around you, enough to appear locked, but loose enough that you can wriggle out of them. You turn your head to hide the comm-bead as you listen in to Dumi's chat with the others.
 
 Kai's voice: "Prime directive??"
 
-My programming will not allow me to let the pilot of Dynamic General Guardian Unit 3 die, if any probability of survival exists. This extends outside of actual battle, and even if the pilot is attempting reckless or suicidal actions.
+*My programming will not allow me to let the pilot of Dynamic General Guardian Unit 3 die, if any probability of survival exists. This extends outside of actual battle, and even if the pilot is attempting reckless or suicidal actions.*
 
 Irm snorts. "Sounds like just the thing Katina needs, a robot nanny."
 
-I am conducting an analysis of Katina's mental condition using the Trilobites equipment, and discover the source of the instability. In the meantime, I fear my rash actions means using the Tausendfuessler further is unwise. Transferring completely to the Trilobite is the optimal choice for continued survival.
-DO JOHNATHAN, IRM, RUSSEL, KAI, LATOONI, IBIS, RIO AND RYOTO BUY THIS, AND AGREE TO TRANSFER OVER?
+*I am conducting an analysis of Katina's mental condition using the Trilobites equipment, and discover the source of the instability. In the meantime, I fear my rash actions means using the Tausendfuessler further is unwise. Transferring completely to the Trilobite is the optimal choice for continued survival.*
 
-Majority rules, of course. Dumi will of course give piloting over to the humans once they're aboard.
+---
+```
+Dumi will of course give piloting over to the humans once they're aboard.
 
 However, there's only so much space in the Trilobite for mechs. It's rated for a dozen PT-sized units, but super robots take up 3 spaces, so you would only have 6 slots remaining: Any more than that and you're stacking mechs on top of one another, which would take too much time to put them in, and get them out.
 
@@ -189,58 +64,22 @@ Sleigh's Gespenst, which is fully repaired
 Randgrith that needs an overhaul.
 
 The Tausendfuessler can still fly, but its top speed has been cut in half: It would take over 10 hours to get to California with it lumbering along. The Trilobite is much faster, and could make it in just under 4.
-Anonymous Tue 26 Jan 2010 04:31:00 No.4433908 Report
-Quoted By: >>4433926
->>4433900
-Bring the Assault Lander, Redspenst (I don't think Ibis would let us leave it), Wurger (need to get that thing reverse engineered) and the Randgrith.
+```
+---
 
-But bring the R-Blade's legs to patch up the Wurger.
-SEED D Cagalli !!U5xc0wG3iH0 Tue 26 Jan 2010 04:34:00 No.4433920 Report
-I say we go. Again, Dumi has nothing to gain by betraying our trust as it stands.
-
-For spacing, we ditch the Lander. Irm can help out with piloting the Trilobite or helping his dad with repairs. Everything else gets transferred.
-Anonymous Tue 26 Jan 2010 04:34:00 No.4433922 Report
->>4433900
-I'd say everyone agrees it's better to fly around in something that doesn't have a big hole in it.
-And dump the Randgrith after grabbing all it's ammo, it's way too beat up to bother with.
-Sanger Zombolt! Tue 26 Jan 2010 04:36:00 No.4433926 Report
->>4433908
-Assault lander.
-Redspent.
-Wild Wuerger.
-Bluespent with R-Blade's arm.
-
-
-We already established that the Randgrith was almost beyond repairs, right? And that it's frame and hydraulics were fine paste? Well, let's leave it.
-Anonymous Tue 26 Jan 2010 04:38:00 No.4433939 Report
-Quoted By: >>4433942
->>4433900
-Take everything except the Randgrith.
-
-Question: can we leave the Bluespent's arms and the the R-Blade's instead?
-Anonymous Tue 26 Jan 2010 04:39:00 No.4433942 Report
->>4433939
-I mean, take the R-Blade's arms?
-Jerid Messa !!AbDOcayw4O/ Tue 26 Jan 2010 04:40:00 No.4433943 Report
-Bring the Wurger to reverse engineer, Redspenst, Assault Lander, and Randgrith. The R-Blade has seen the last of its days so whatever is useful, take for spare parts and leave the frame behind. If theres enough room then we'll take the Bluespenst too.
-Sciencegar Sciencebolt Tue 26 Jan 2010 06:09:00 No.4433959 Report
-Quoted By: >>4433972 >>4434001
 The Tausendfuesslers EOT-enhanced reactor overloads, and the ammo-less Randgrith and dismembered torso of the R-Blade melt to scrap in the heat of an atomic fireball.
 
 In the Trilobites hangar sit the Assault Lander, the two Gespensts, the captured PT and a pile of spare ammo, weapons and quickly scavenged parts. It's a tight squeeze, but theres enough room to restart mech repairs.
 
-ARE YOU ABSOLUTELY SURE YOU WANT THE R-BLADES ARMS ON THE BLUEPENST? That would mean no Jet Magnum, remember.
-Sciencegar Sciencebolt Tue 26 Jan 2010 07:31:00 No.4433960 Report
-Quoted By: >>4434000
 In the medical bay, you feign sleep as Dumi relates his 'findings'. At least, you think that should go in quotation marks, what he's saying sounds scarily plausible...
 
 "So you're saying the School's programming failed on her? She wouldn't be the first one." Latooni is as emotionless as ever.
 
-Failed would probably be the wrong term to use, as it implies the Schools equipment is at fault. Given that I'm detecting traces of hynosis, memory alteration therapy, and outright nerve stapling, in multiple regions of the brain, I don't beleive thats possible. It appears that somehow, her mind is attempting to actively reject all of these changes. The irrational behaviour and inconsistent thought patterns are a result of conflict between the personality that was constructed in her mind using School's equipment, and some process in her brain which is attempting to restore the original."
+*Failed would probably be the wrong term to use, as it implies the Schools equipment is at fault. Given that I'm detecting traces of hynosis, memory alteration therapy, and outright nerve stapling, in multiple regions of the brain, I don't beleive thats possible. It appears that somehow, her mind is attempting to actively reject all of these changes. The irrational behaviour and inconsistent thought patterns are a result of conflict between the personality that was constructed in her mind using School's equipment, and some process in her brain which is attempting to restore the original.*
 
 Kai grunts. "No offense, D.U.M.I., but I find this a little hard to swallow from a computer meant to run an oversized motorcycle."
 
-I'm not merely a combat AI, Mr. Kitamura. My functions also include the full analysis and support for the Raioh and its LIOH System, which interfaces with the pilots mind. If I were not capable of psychological and neurological analysis, I would not be able to do my job."
+*I'm not merely a combat AI, Mr. Kitamura. My functions also include the full analysis and support for the Raioh and its LIOH System, which interfaces with the pilots mind. If I were not capable of psychological and neurological analysis, I would not be able to do my job.*
 
 "Hmmph. Well, if you don't mind, I'd like to get a second opinion before we let her out on her own again. This LIOH system is derived from the DC's GEIM system, right?"
 
@@ -248,40 +87,11 @@ The entire Dynamic General Guardian system is based on EOTI research and DC engi
 
 "Well then, once we get to California, we should be able to find someone to back up your findings."
 
-If we are fortunate, yes.
-Gamlin !Xb1uRYUg66 Tue 26 Jan 2010 08:52:00 No.4433968 Report
-Sweet, so let us be off! Once we meet back with Axel I'm sure the fun can start.
+*If we are fortunate, yes.*
 
+---
 
-I propose Axel and Irm get some drinks and toast off to their missing comrades.
-kai !!2vdorzb/J61 Tue 26 Jan 2010 08:54:00 No.4433972 Report
->>4433959
-well if the R-Blade still has the weapons then it would kind of offset the lack of jet magnum
-Anonymous Tue 26 Jan 2010 10:25:00 No.4434000 Report
->>4433960
-OK, get ready to rumble.
-Samefag the Avenger Tue 26 Jan 2010 10:27:00 No.4434001 Report
->>4433959
-Give the tonfas to the Bluespent to make up for his reduced Melee capabilities.
-
-Problem solved.
-Jerid Messa !!AbDOcayw4O/ Tue 26 Jan 2010 10:36:00 No.4434015 Report
-Can we have a Jet Magnum on one arm and a tonfa on the other?
-DS Tue 26 Jan 2010 11:48:00 No.4434117 Report
-Quoted By: >>4434209
-We can't just leave the Tassenfundler! We need its facilities. Transfer the Wuerger to it for now to free up some room for Irm's dad to work.
-
->>4432887
-
-Is this what a Trilobite looks like?
-Anonymous Tue 26 Jan 2010 13:05:00 No.4434209 Report
->>4434117
-Yes
-SEED D Cagalli !!U5xc0wG3iH0 Tue 26 Jan 2010 16:25:00 No.4434471 Report
-Can we put just the R-Blade's left arm on the Gespenst? Left arm has no Jet Magnum so we wouldn't lose anything.
-Sciencegar Sciencebolt Tue 26 Jan 2010 20:14:00 No.4435091 Report
-Quoted By: >>4435425 >>4435432 >>4435630 >>4435759
-SRWQ SPECIAL DISC 1: VillettaQuest
+####SRWQ SPECIAL DISC 1: VillettaQuest
 
 You are Captain Viletta Vadim, current commanding officer of the SRX. Mere hours ago, you were partaking in what could be the most important mission of your life, assaulting the Shadow Mirror universe to prevent Dark Brain from discovering your own. As your group was about to exit the dimensional vortex, Gilliam gave the order to exit the ships. Ryusei, Rai and Aya had just deployed, and you and Mai were just about to launch, when a strange energy wave hit the Hiryu Kai.
 

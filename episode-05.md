@@ -10,7 +10,7 @@ The Shadow Mirrors have all but been destroyed by unknown but very familiar inva
 
 Having brutalized Arado's testicles to get him ready for interrogation, you back off and let Irm and Kai, the two people who think they're in charge, have their say.
 
-"Oh god...oh god, just keep her away from me."
+"Oh god... oh god, just keep her away from me."
 
 "I'll try my best." reassures Irm shakily. "Now, explain why you attacked us."
 
@@ -34,7 +34,7 @@ You replace your knee in Arado's groin. It feels like theres still something lef
 
 "What the hell kind of bullshit is this?!?!? Start making sense or I'll never have your child!!"
 
-The room suddenly grows extremely quite, except for Arado' anguished gasp of pain. Even Latooni looks up from what she's doing.
+The room suddenly grows extremely quiet, except for Arado' anguished gasp of pain. Even Latooni looks up from what she's doing.
 
 "Er, I mean, 'you'll never have children'. Freudian slip."
 
