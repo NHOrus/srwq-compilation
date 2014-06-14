@@ -1,78 +1,13 @@
+# Episode 05
 
-SRWQ Mission 5: This fabulous prize could have been yours.
-Sciencegar Sciencebolt Mon 25 Jan 2010 02:01:16 No.4429260 ViewReplyOriginalReport
-Quoted By: >>4429291 >>4429318 >>4429514 >>4430349
-Previous threads:
-http://archive.easymodo.net/cgi-board.pl/m/thread/4415513
-http://archive.easymodo.net/cgi-board.pl/m/thread/4419117
-http://archive.easymodo.net/cgi-board.pl/m/thread/4420922
-http://archive.easymodo.net/cgi-board.pl/m/thread/4426965
+## SHADOW MIRROR QUEST (AKA SRW Q)
+
+###SRWQ Mission 5: This fabulous prize could have been yours.
 
 You are the Katina Tarask of the Shadow Mirror Universe. The School taught you how to fly robots and wear frilly dresses. Reducing a grown man to tears with a paperclip, a bottle of shampoo and a roll of sellotape is something you learned for yourself.
 
 The Shadow Mirrors have all but been destroyed by unknown but very familiar invaders from the dimension they planned to invade themselves. In your escape, you managed to capture one: Arado Balanga, a young man who should be dead.
-Anonymous Mon 25 Jan 2010 02:05:16 No.4429291 Report
-Quoted By: >>4429308
->>4429260
-Time to get productive.
 
-Ask Arado about the reasons of the invasion. Actually, let Kai and Irm ask all that. Katina will just end up busting Arad'd balls off.
-Haken Browning !zHe7DH816A Mon 25 Jan 2010 02:05:16 No.4429294 Report
-Quoted By: >>4429301 >>4429303 >>4429316 >>4429319 >>4429326 >>4429327
-Attempting to codify our "interrogation" options:
-
-1. Let Irm and Kai handle getting useful information out of Arado
-2. Get Irm and Kai out of the room, and proceed to angrysex
-3. Get Lat involved in said angrysex
-Anonymous Mon 25 Jan 2010 02:06:16 No.4429301 Report
-Quoted By: >>4429331
->>4429294
-Option 3, of course.
-DS Mon 25 Jan 2010 02:07:16 No.4429303 Report
-Quoted By: >>4429331
->>4429294
-
-#1, so Katina can ogle Kai.
-Sanger Zombolt! Mon 25 Jan 2010 02:07:16 No.4429308 Report
->>4429291
-First we do this. We shall molest him later. I also wan't to know if we are in danger of something.
-Anonymous Mon 25 Jan 2010 02:08:16 No.4429316 Report
-Quoted By: >>4429331
->>4429294
-Going with 1 so we can find out status of the enemy. Information is power, and power is good.
-Anonymous Mon 25 Jan 2010 02:08:16 No.4429318 Report
->>4429260
-
-Ask questions first. Rape later.
-Anonymous Mon 25 Jan 2010 02:08:16 No.4429319 Report
-Quoted By: >>4429331
->>4429294
-
-1,2, then, 3
-Zeta Zaku Mon 25 Jan 2010 02:09:16 No.4429326 Report
->>4429294
-All, in said order.
-Samefag the Avenger Mon 25 Jan 2010 02:09:16 No.4429327 Report
->>4429294
-Number 1 of course. I think we already established who's the boss here.
-Haken Browning !zHe7DH816A Mon 25 Jan 2010 02:09:16 No.4429331 Report
-Quoted By: >>4429334 >>4429335
->>4429301
->>4429303
->>4429316
->>4429319
-This was not a choice, but a summary of our agreed-upon course of events from the previous thread.
-Anonymous Mon 25 Jan 2010 02:09:16 No.4429333 Report
-Of course if he starts saying bullshit about not wanting to fight or them being here for some noble cause, Katina should step in and start with the "advanced torture".
-Anonymous Mon 25 Jan 2010 02:10:16 No.4429334 Report
->>4429331
-Approved !
-DS Mon 25 Jan 2010 02:10:16 No.4429335 Report
->>4429331
-
-Well that's what we're doing then! Carry on!
-Sciencegar Sciencebolt Mon 25 Jan 2010 02:10:16 No.4429339 Report
-Quoted By: >>4429349 >>4429355 >>4429357 >>4429365 >>4429375 >>4429377 >>4429388 >>4429390 >>4429406
 Having brutalised Arados testicles to get him ready for interrogation, you back off and let Irm and Kai, the two people who think they're in charge, have their say.
 
 "Oh god...oh god, just keep her away from me."
