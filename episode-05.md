@@ -14,61 +14,13 @@ Having brutalised Arados testicles to get him ready for interrogation, you back 
 
 "I'll try my best." resasures Irm shakily. "Now, explain why you attacked us."
 
-"It wasn't an attack!!! We were just....we had to come! The Cracks, they were tearing everything apart!! Nothing was making sense anymore...although not as bad as here!!!"
+"It wasn't an attack!!! We were just....we had to come! The *Cracks* , they were tearing everything apart!! Nothing was making sense anymore...although not as bad as here!!!"
 
 "Slow down son." chimes in Kai. "If you weren't attacking, why are your pals sitting in our base, next to the corpses of half of our forces?"
 
 "I dunno! Gilliam said something about a...a thingummy wave, as we were crossing, that the two forces were on the same path. I, I guess must have crashed into them headlong, or something. It was an accident! We weren't exactly trained for this!"
 
-KEEP SILENT FOR NOW, OR INTERJECT?
-Anonymous Mon 25 Jan 2010 02:11:16 No.4429349 Report
->>4429339
-Bullshit! Time for the rape!
-Anonymous Mon 25 Jan 2010 02:12:16 No.4429355 Report
-Quoted By: >>4429362
->>4429339
-Keep silent for now; the guy is talking, and that's a change, although I question intelligence gained through force.
-Anonymous Mon 25 Jan 2010 02:12:16 No.4429357 Report
->>4429339
-Still, that's an invasion, and you killed them, sweatheart
-Anonymous Mon 25 Jan 2010 02:12:16 No.4429362 Report
->>4429355
-Force alone anyway.
-
-nudge nudge wink wink
-Anonymous Mon 25 Jan 2010 02:13:16 No.4429365 Report
->>4429339
-Ask about "The Cracks". Also ask about this "interdimensional peace" thing Mr Dramatic was talking about.
-Anonymous Mon 25 Jan 2010 02:15:16 No.4429375 Report
->>4429339
-Hit him and tell him to start making more sense!
-Sanger Zombolt! Mon 25 Jan 2010 02:15:16 No.4429377 Report
-Quoted By: >>4429387
->>4429339
-Stare at him angrily. Ask him for details, and swear to god that if you find out he's lying....well, let's just say his testicles will end up like the Shirogane after getting hit by the Titanic Drill.
-Anonymous Mon 25 Jan 2010 02:17:16 No.4429387 Report
->>4429377
-good
-he ALREADY knows we would do it...
-DS Mon 25 Jan 2010 02:17:16 No.4429388 Report
->>4429339
-
-Make some growling noises and sneer a little. Lick lips if he hasn't reacted yet.
-Anonymous Mon 25 Jan 2010 02:17:16 No.4429390 Report
->>4429339
-Ask him about this wave thingy and the cracks.
-Anonymous Mon 25 Jan 2010 02:18:16 No.4429396 Report
-Stay sullenly quiet but don't look away form him (he's probably still not taking his eyes off us given how nuts we are)
-Anonymous Mon 25 Jan 2010 02:20:16 No.4429406 Report
->>4429339
-Psycho grin at him, Ryoma Nagare style, but stay silent.
-Gamlin !Xb1uRYUg66 Mon 25 Jan 2010 02:26:16 No.4429433 Report
-Stare at arado angrily, but let Irm and Kai continue talking. Wink or lick lips for added head fuckery
-Sciencegar Sciencebolt Mon 25 Jan 2010 02:39:16 No.4429514 Report
-Quoted By: >>4429523 >>4429527 >>4429540 >>4429567
->>4429260
-
-"What are the Cracks?"
+"What are the *Cracks* ?"
 
 This is the queitest thing you've said all day. This only makes it more pronounced. Irm shivers a little.
 
@@ -77,67 +29,6 @@ This is the queitest thing you've said all day. This only makes it more pronounc
 "Stuff just started....to change. It would dissappear, and something similar but different would be there in its place. The New York crater dissappeared, and in its place was a big dome with a different city inside, deserted except for tomato plants. A whole colony dissappeared, and in its place was a gigantic laser cannon, crewed by a bunch of German guys who thought they were 'New-types'. We found a floating island full of wierd monster-robots, and a giant red spear at the South Pole.
 
 "Then, Ring....Mao Industries just vanished. All the people. There were 20,000 satellites, a hundred drone mecha that defended the place, and a massive microwave generator to power them...but not a single person."
-Anonymous Mon 25 Jan 2010 02:40:16 No.4429523 Report
-Quoted By: >>4429709
->>4429514
-This sound kind of farfetched. If he won't tell us the truth...
-Haken Browning !zHe7DH816A Mon 25 Jan 2010 02:41:16 No.4429527 Report
-Quoted By: >>4429550
->>4429514
-Blame Decade, proceed to sexings.
-
-But seriously, make sure Decade takes the fall for this.
-Jerid Messa !!AbDOcayw4O/ Mon 25 Jan 2010 02:42:16 No.4429533 Report
-Oh my, seems OG land has turned into Alpha/Z.
-NuBlackAnon !!z6ldXGL61Wm Mon 25 Jan 2010 02:42:16 No.4429540 Report
->>4429514
-OH GOD SRW ALPHA IS MIXING IN WITH OG
-ONRE HAKEN
-Zeta Zaku Mon 25 Jan 2010 02:44:16 No.4429550 Report
-Quoted By: >>4429565
->>4429527
-I just know somehow, some way, he's going to be fighting the Endless Frontier guys somewhere along the line.
-
-Meanwhile Narutaki has a shouting match with Axel over exactly who's fault this is, Beowulf or Decade's.
-Haken Browning !zHe7DH816A Mon 25 Jan 2010 02:46:16 No.4429565 Report
-Quoted By: >>4429644 >>4429676
->>4429550
-Shhhh....You'll spoiler the first OVA of Lewd Kamen Senshi Haken 1/W00.
-Anonymous Mon 25 Jan 2010 02:46:16 No.4429567 Report
-Quoted By: >>4429589 >>4429709
->>4429514
-bullshit ! stop joking around !
-What's next !? psychic dolphins ?! dinosaur empires ?!
-
-Crush his balls ! Now !!!
-Accel Man Mon 25 Jan 2010 02:49:16 No.4429589 Report
->>4429567
-Katina and Russel piloting the Gespenst W
-Zeta Zaku Mon 25 Jan 2010 02:57:16 No.4429644 Report
-Quoted By: >>4429676
->>4429565
-Oh ho. I suppose I should have seen this coming.
-
-Onore Haken, Onore.
-View SameGoogleiqdbSauceNAO DollDivine Sailor Howzen Prototype.png, 312KiB, 399x599
-Haken Browning !zHe7DH816A Mon 25 Jan 2010 03:01:16 No.4429676 Report
->>4429565
->>4429644
-And on that note, I'm wondering whether to do anything with this prospective 5th Senshi yet.
-
-Back on topic, continue to press Arado for information on the Cracks and Arado's balls 'cause we feel like it.
-Anonymous Mon 25 Jan 2010 03:02:16 No.4429685 Report
-Quoted By: >>4429705
-Ask him to explain how their dimension falling apart makes it okay to invade ours.
-
-Ignore how we were totally planning on bailing out of our shithole dimension for theirs
-Haken Browning !zHe7DH816A Mon 25 Jan 2010 03:03:16 No.4429705 Report
->>4429685
-Remember, they come from a future that experienced that spoilered part going off without a hitch. Not much of a point in hiding it, but don't bring it up unless sufficiently provoked.
-Sciencegar Sciencebolt Mon 25 Jan 2010 03:03:16 No.4429709 Report
-Quoted By: >>4429723 >>4429725 >>4429744 >>4429753 >>4429764 >>4429768 >>4429769 >>4429783
->>4429523
->>4429567
 
 You replace your knee in Arado's groin. It feels like theres still something left to squish.
 
@@ -165,167 +56,6 @@ Irm looks shocked at this. "By us?! What the hell did we do to your dimens....Oh
 
 "Exactly!! We used the Giest to travel in time to before you made the jump, and stop you, so the channel never exists! Then we can use the Giest, which Gill modified to make no channel, to get back, hopefully without getting lost in time as we go. I've had enough copies of us these past hours, I don't want to meet myself too"
 
-COMMENTS AT THIS STAGE?
-Anonymous Mon 25 Jan 2010 03:05:16 No.4429723 Report
->>4429709
->COMMENTS AT THIS STAGE?
-Geist
-Haken Browning !zHe7DH816A Mon 25 Jan 2010 03:05:16 No.4429725 Report
->>4429709
->I've had enough copies of us these past hours, I don't want to meet myself too
-
-And this is the part where we violently shift to deredere.
-Anonymous Mon 25 Jan 2010 03:07:16 No.4429744 Report
->>4429709
-Well this story is obviously bullshit just being told to us so we'll go easy. I reccomend we don't.
-Sanger Zombolt! Mon 25 Jan 2010 03:08:16 No.4429753 Report
-Quoted By: >>4429796
->>4429709
-Please....please tell me we are going to go to other Robot Wars universes....that we won't just stay here in this shithole with all the Mazins, Gundams and Ganmen out there to submit....
-Anonymous Mon 25 Jan 2010 03:09:16 No.4429764 Report
-Quoted By: >>4429807
->>4429709
-This story is crazy and far-fetched, but Arado's not too bright and probably isn't lying unless his higherups are lying to him. Which means we need to track down this Gilliam fellow for straight answers.
-
-Problem is, he's in the middle of the invaders and probably has an incredibly powerful mech. Let's take Arado's story at face value for now.
-Anonymous Mon 25 Jan 2010 03:09:16 No.4429768 Report
->>4429709
-It's time to stop playing along with this guys lies. Fun time!
-Samefag the Avenger Mon 25 Jan 2010 03:09:16 No.4429769 Report
->>4429709
-Uh oh. He mentioned the dead Arado. Prepare for mental breakdown.
-Anonymous Mon 25 Jan 2010 03:10:16 No.4429783 Report
-Quoted By: >>4429788
->>4429709
-Go deredere and cry into his arms cause he mentioned the other Arado.
-Anonymous Mon 25 Jan 2010 03:11:16 No.4429788 Report
->>4429783
-This!
-
-Fucking this!
-Anonymous Mon 25 Jan 2010 03:11:16 No.4429789 Report
-Quoted By: >>4429795 >>4429827
-Believe in Arado. He wold never lie even if it were to save his own life.
-
-Also, discuss with everybody about the possibility of talking with the invaders. This Dark Brain fella is somebody who needs all the love and care of our psychodere!
-Anonymous Mon 25 Jan 2010 03:12:16 No.4429795 Report
->>4429789
-The other Arado went off with that skanky whore and we killed him. Are you sure we should believe this one?
-Sciencegar Sciencebolt Mon 25 Jan 2010 03:12:16 No.4429796 Report
->>4429753
-
-I'm flexible, I chose OG-verse as a start because of a tabletop RPG idea I had, if you can make it to other SRWs or mecha continuities, great.
-
-But first you'd have to hijack either the Zweizergain, XN Giest, or ask Dark Brain really nicely.
-Jerid Messa !!AbDOcayw4O/ Mon 25 Jan 2010 03:14:16 No.4429807 Report
-Quoted By: >>4429816
->>4429764
-
-This, Katina can go dere dere mode after they leave. Except Lat. She has to be there for the rage sex.
-Anonymous Mon 25 Jan 2010 03:15:16 No.4429812 Report
-Quoted By: >>4429828
-Do you really think Katina's gonna believe the words of an enemy so quickly? Even OG Katina never trusted the enemy so soon.
-Anonymous Mon 25 Jan 2010 03:15:16 No.4429816 Report
->>4429807
-I wonder if the School taught them some... techniques
-Sanger Zombolt! Mon 25 Jan 2010 03:17:16 No.4429827 Report
-Quoted By: >>4429837 >>4429847 >>4429949
->>4429789
-IF IT IS A FIGHT THIS DARK BRAIN IS ASKING FOR, A FIGHT HE WILL GET!
-
-BRACE YOURSELVES FOR DIMENTIONAL TRAVELS!
-
-WE WILL BREAK THE UNBREAKABLE Z ALLOY!
-
-WE WILL FIGHT WITH MORE COURAGE THAN GAOGAIGAR HIMSELF AND OUTPOWER THE POWER!
-
-WE WILL ALWAYS BE FIVE STEPS AHEAD OF THE ZERO SYSTEM!
-
-WE WILL BREAK THROUGH THE AT-FIELD OF ANY ANGEL WHO STANDS IN OUR WAY!
-
-AND WE WILL GO FURTHER THAN DOING THE IMMPOSSIBLE, AND WE WILL SUBMIT THE DREADED GURREN LAGANN, MAKING IT OUR PLAYTHING!
-
-AND WHEN WE ARE DONE WITH THESE UNIVERSE, EVERYONE WILL UNDERSTAND THAT WE ARE THE LORDS!
-Anonymous Mon 25 Jan 2010 03:17:16 No.4429828 Report
-Quoted By: >>4429866
->>4429812
-Good point, but he seems really attached to that story. We don't have to trust him, but we're probably not going to get him to change it by threatening him (more). Yell at him some more and let Irm and Kai handle more interrogation.
-Sanger Zombolt! Mon 25 Jan 2010 03:18:16 No.4429837 Report
-Quoted By: >>4429949
->>4429827
-WE WILL SHOW ALL THE UNIVERSES WHAT WE ARE MADE OFF!
-
-THEY HAVE GODS IN THEIR SIDE BUT WE HAVE THE GOD SLAYERS!
-Anonymous Mon 25 Jan 2010 03:19:16 No.4429847 Report
->>4429827
-
-AND WE'LL TAKE MR FLOPSY BACK FROM HELL !!!!
-Anonymous Mon 25 Jan 2010 03:21:16 No.4429862 Report
-Whatever we do, we must...
-
-Add Arado to the harem!
-Sanger Zombolt! Mon 25 Jan 2010 03:22:16 No.4429866 Report
-Quoted By: >>4429876 >>4429889 >>4429890
->>4429828
-I have a better idea. This goes against all that is Katina, but is the most intelligent thing.
-
-Let's leave the room. We are just making him nervous. Leave him with Kai, who is pretty badass and trustworthy, and wait till he ends up interrogating. Also, make Irm stay to look watch.
-
-Lat and Desu exit the room.
-Anonymous Mon 25 Jan 2010 03:23:16 No.4429876 Report
->>4429866
-Sounds pretty out of character to me.
-Sanger Zombolt! Mon 25 Jan 2010 03:24:16 No.4429889 Report
-Quoted By: >>4429898 >>4429912
->>4429866
-Make it seem like we care about his universe, and that we may join sides with him. When he ends up thrusting him, he may give more detailed information without being in a panic.
-Haken Browning !zHe7DH816A Mon 25 Jan 2010 03:24:16 No.4429890 Report
-Quoted By: >>4429913
->>4429866
-This had better end in "and return five minutes later with repurposed power tools."
-Haken Browning !zHe7DH816A Mon 25 Jan 2010 03:25:16 No.4429898 Report
-Quoted By: >>4429927
->>4429889
->When he ends up thrusting him
-OH GOD LOVE TRIANGLE WITH BIG BOSS KAI
-Anonymous Mon 25 Jan 2010 03:26:16 No.4429912 Report
->>4429889
-His story sounds like complete bullshit to me.
-All this talk of saving universes and evil brains and shit.
-I say we move on to more productive methods of interrogation.
-Sanger Zombolt! Mon 25 Jan 2010 03:26:16 No.4429913 Report
-Quoted By: >>4429916 >>4429921
->>4429890
-This works too.
-
-Also, let's see if we can join the OG-verse.
-
-The Shadow Mirrors are all but dead, our command has been decapitated. Might as well not get more enemies than we need to.
-Sanger Zombolt! Mon 25 Jan 2010 03:27:16 No.4429916 Report
->>4429913
-And we get to see them Gundams of course.
-Anonymous Mon 25 Jan 2010 03:28:16 No.4429921 Report
-Quoted By: >>4429937 >>4429939
->>4429913
-How does this serve OUR purpose though?
-Sanger Zombolt! Mon 25 Jan 2010 03:28:16 No.4429927 Report
->>4429898
-THIS WORKS TOO!
-Anonymous Mon 25 Jan 2010 03:29:16 No.4429937 Report
->>4429921
-We may get to use the XN-Geist without major conflicts and then THE UNIVERSE WILL BE OURS!!!!
-Anonymous Mon 25 Jan 2010 03:29:16 No.4429938 Report
-Tbh, I still don't trust SMKai. He could be an EFA spy.
-Anonymous Mon 25 Jan 2010 03:29:16 No.4429939 Report
-Quoted By: >>4430079 >>4430119
->>4429921
->How does this serve OUR purpose though?
-
-Join OG forces
-*advice Katina*
-Acquire second Latooni
-Sciencegar Sciencebolt Mon 25 Jan 2010 03:30:16 No.4429947 Report
-Quoted By: >>4429960 >>4429961 >>4429963 >>4429966 >>4429970 >>4429979 >>4429981 >>4429983 >>4429985 >>4429986 >>4429996 >>4430032 >>4430069 >>4430144
 "...Liar."
 
 "Ugh..."
@@ -350,82 +80,8 @@ Irm blinks. "I...I thought that only worked in Star Trek."
 
 Kai grunts. "So did I. Maybe she's a Trekkie."
 
-ROUTE SPLIT: CHOOSE YOUR PATH
+---
 
-1) What the hell, Sciencegar?!? Katina's smarter than that, retcon this shit now!
-2) Let's see where the OP is going with this
-3) Katina has been compromised. Its time for a new hero!!!
-Samefag the Avenger Mon 25 Jan 2010 03:30:16 No.4429949 Report
->>4429837
->>4429827
-I approve of this. Katina as the overlord from all SRW universes?
-
-Sign me in.
-Anonymous Mon 25 Jan 2010 03:31:16 No.4429957 Report
-All this talk of diplomacy angers the part of me that wants to see Psychodere massacre things.
-Haken Browning !zHe7DH816A Mon 25 Jan 2010 03:31:16 No.4429960 Report
->>4429947
-Option 2. Shit's not deep enough to declare TIME PARADOX or hand off to Latooni.
-Anonymous Mon 25 Jan 2010 03:32:16 No.4429961 Report
->>4429947
->2) Let's see where the OP is going with this
-
-This seems to be damaging our chances to... acquire Arado... but I want to see where you're going with it.
-Anonymous Mon 25 Jan 2010 03:32:16 No.4429963 Report
->>4429947
-Number 1.
-
-I, too, wish to welcome our new overlord: Katina.
-Anonymous Mon 25 Jan 2010 03:32:16 No.4429966 Report
->>4429947
-4 : Make ryoto stop dreaming this and get him back to work
-Anonymous Mon 25 Jan 2010 03:33:16 No.4429970 Report
->>4429947
-2
-Sanger Zombolt! Mon 25 Jan 2010 03:34:16 No.4429979 Report
->>4429947
-Number 2. I can wait.
-Zeta Zaku Mon 25 Jan 2010 03:34:16 No.4429981 Report
->>4429947
-Option 2. This seems like her so far. Plus, you obviously have some sort of plan, so the least we could do is let you run through it before we judge.
-Anonymous Mon 25 Jan 2010 03:34:16 No.4429983 Report
->>4429947
-2. Hey, now Arado's got a neat new scar to show off to Seolla and the rest.
-Anonymous Mon 25 Jan 2010 03:34:16 No.4429985 Report
->>4429947
-
-2, this is getting interesting
-Samefag the Avenger Mon 25 Jan 2010 03:35:16 No.4429986 Report
->>4429947
-As tempting as it is to go universe travelling right now....number 2. Let's flesh out this universe first.
-Anonymous Mon 25 Jan 2010 03:35:16 No.4429996 Report
->>4429947
-2. If I didn't have meta knowledge that Arado's story was probably true, I'd think he was talking out of his arse.
-NuBlackAnon !!z6ldXGL61Wm Mon 25 Jan 2010 03:41:16 No.4430032 Report
->>4429947
-2 bossman
-Anonymous Mon 25 Jan 2010 03:46:16 No.4430069 Report
-Quoted By: >>4430086
->>4429947
-
-Can't we do a bit of 2 *and* 3? Like, with the whole dimensional subplot thing now all in the open... Asakim could- *gets shot for trying to bring that idea in again*
-
-But he'd LIKE Katina's abusive nature because he wants to di- *gets shot even MORE*
-View SameGoogleiqdbSauceNAO Desudere Copy.jpg, 20KiB, 127x99
-Haken Browning !zHe7DH816A Mon 25 Jan 2010 03:47:16 No.4430079 Report
-Quoted By: >>4430108 >>4430119
->>4429939
-Wanting to make an image of this so hard.
-
-Bad news: the Angry Desu image used wants to override memegenerator formatting. Like, it exceeds the "rainbow box" by 10% and I don't see resize options.
-
-Good news: it was initially saved in .png, requiring that I get my hands on Paint.NET to make it a .jpg with compression/quality that doesn't look like ass.
-Haken Browning !zHe7DH816A Mon 25 Jan 2010 03:48:16 No.4430086 Report
->>4430069
-*tries to blow smoke off of Longtomb Special*
-*winds up licking it 'cause the barrel's three feet long*
-Sciencegar Sciencebolt Mon 25 Jan 2010 03:51:16 No.4430099 Report
-Quoted By: >>4430102 >>4430103 >>4430110 >>4430111 >>4430121 >>4430140 >>4430165 >>4430167 >>4430211 >>4430226 >>4430239
 "...locking the door enough?? Shouldn't we have handcuffed her too?"
 
 "We're lucky we had one pair of handcuffs on this glorified schoolbus. Don't the worst she can do in there is kill herself, and that's no great tra-"
@@ -435,109 +91,6 @@ Quoted By: >>4430102 >>4430103 >>4430110 >>4430111 >>4430121 >>4430140 >>4430165
 "...Let's just go."
 
 You've woken up in the portside toilet of the Tausendfuessler. The door has been locked from the outside somehow, and the inside handle is on the ground beside the door. You've been checked for weapons, you only have your hairpins, a hairbrush, a mobile phone with no credit and a melted chocolate bar you apparently left in your back pocket. There is half a roll of toiler papet, a relatively clean toilet brush, and a discarded porno magazine. The light fixture is broken, but light streams in through a small window.
-
-WHAT DO YOU DO?
-Jerid Messa !!AbDOcayw4O/ Mon 25 Jan 2010 03:52:16 No.4430102 Report
->>4430099
-
-Macguyver time!
-Sanger Zombolt! Mon 25 Jan 2010 03:52:16 No.4430103 Report
->>4430099
-First things first: Eat the chocolate.
-Anonymous Mon 25 Jan 2010 03:53:16 No.4430108 Report
-Quoted By: >>4430119
->>4430079
-Er, what?
-Anonymous Mon 25 Jan 2010 03:53:16 No.4430110 Report
-Quoted By: >>4430135
->>4430099
-Turn really REALLY fucking dere.
-
-Oh god I'm scared please let me out *sobs* I'm so sorry ididn'tmeantohurthim
-
-That kind of stuff.
-Haken Browning !zHe7DH816A Mon 25 Jan 2010 03:53:16 No.4430111 Report
->>4430099
-Rageschlick with hairbrush until exhausted. Best way out is to convince them you're worthy of it.
-kai !!2vdorzb/J61 Mon 25 Jan 2010 03:54:16 No.4430117 Report
-Sit and chill for a bit
-Haken Browning !zHe7DH816A Mon 25 Jan 2010 03:55:16 No.4430119 Report
-Quoted By: >>4430137 >>4430189
->>4430108
-Y'know, make an AdviceKatina using >>4429939 as a guide.
-
-But memegenerator.net has been ornery in dealing with the pic attached to >>4430079. Any alternatives out there?
-View SameGoogleiqdbSauceNAO 12.png, 20KiB, 480x320
-Archibald Grims !SonOfAYvRI Mon 25 Jan 2010 03:55:16 No.4430120 Report
-The obvious answer is to put Daitetsu in the Thrud.
-
-
-Also, 'Money can't buy knives.'
-SEED D Cagalli !!U5xc0wG3iH0 Mon 25 Jan 2010 03:55:16 No.4430121 Report
-Quoted By: >>4430163
->>4430099
-
-Rub the chocolate all over your body. Seduce Ibis to come save you.
-Anonymous Mon 25 Jan 2010 03:57:16 No.4430135 Report
->>4430110
-I really like the idea of this.
-Anonymous Mon 25 Jan 2010 03:57:16 No.4430137 Report
-Quoted By: >>4430192
->>4430119
-What's memegenerator's problem with that pic?
-Accel Man Mon 25 Jan 2010 03:58:16 No.4430140 Report
->>4430099
-make a bomb with the cellphone, toilet paper and the hairpins, blow the door
-
-then eat the chocolate, lure Irm with the porno magazine, enter into the jail and hurt Arado with the toilet brush
-DS Mon 25 Jan 2010 03:58:16 No.4430144 Report
->>4429947
-
-Let's go with 2 for now, then cut away to Ryoto's treacherous antics!
-Lord Guilford !UuMJgvNa0Y Mon 25 Jan 2010 04:01:16 No.4430163 Report
->>4430121
-Anonymous Mon 25 Jan 2010 04:01:16 No.4430165 Report
->>4430099
-Take a nap. We need our rest for further antics.
-Anonymous Mon 25 Jan 2010 04:01:16 No.4430167 Report
->>4430099
-Kick the door down.
-
-I got locked in my bathroom once, and couldn't open the door any other way. It worked after half an hour of trying.
-View SameGoogleiqdbSauceNAO ShadowKatina new res.jpg, 20KiB, 127x99
-Anonymous Mon 25 Jan 2010 04:05:16 No.4430189 Report
->>4430119
-Will this do?
-View SameGoogleiqdbSauceNAO AdviceDesu.jpg, 21KiB, 127x99
-Haken Browning !zHe7DH816A Mon 25 Jan 2010 04:05:16 No.4430192 Report
->>4430137
-Was kinda hoping to get the standard border (in blood red, natch).
-
-Someone has apparently beat me to the punch with acceptable results, though.
-Anonymous Mon 25 Jan 2010 04:09:16 No.4430211 Report
-Quoted By: >>4430218
->>4430099
-Eat chocolate. Sleep until they get you out.
-
-Take the opportunity to know what the fuck the OG-verse dudes are doing right now.
-
-I mean, Sanger, Ratesel, Kyoosuke etc etc etc.
-
-What happened to them?
-Anonymous Mon 25 Jan 2010 04:10:16 No.4430218 Report
->>4430211
-Now that you mention it...this could work. Let's take this chance to see what everyone lese is doing.
-Anonymous Mon 25 Jan 2010 04:11:16 No.4430226 Report
->>4430099
-
-Kick the door til our feet bleed, then, DERE ACTION !!!
-Sciencegar Sciencebolt Mon 25 Jan 2010 04:12:16 No.4430232 Report
-Quoted By: >>4430241 >>4430242 >>4430246 >>4430250 >>4430254 >>4430256 >>4430261
->First things first: Eat the chocolate.
-
->Turn really REALLY fucking dere. 
-
->Rub the chocolate all over your body. Seduce Ibis to come save you. 
 
 "BUHUHUHUHUomnomnomWAAAAAAOmnomsniffsniff...."
 
@@ -557,72 +110,13 @@ Ibis's voice sounds from outside. "What are you doing in there?"
 
 Just then, your mobile begins to ring. DO YOU ANSWER IT??
 
-OR SHOULD BE LEAVE IT A MYSTERY FOR NOW AND SEE WHAT OUR OTHER CHARACTERS ARE DOING??
-Sanger Zombolt! Mon 25 Jan 2010 04:13:16 No.4430239 Report
->>4430099
-Get a large flat blade screwdriver (or something similar) and use it to turn the square hole for the handle to withdraw the latch.
-Anonymous Mon 25 Jan 2010 04:14:16 No.4430241 Report
->>4430232
-Lets get a view of what's happening with the other characters.
-Sanger Zombolt! Mon 25 Jan 2010 04:14:16 No.4430242 Report
->>4430232
-THIS THIS THIS!!!
-
-Let's see what our friends the invaders are doing!
-Anonymous Mon 25 Jan 2010 04:15:16 No.4430246 Report
->>4430232
-Answer it
-Lord Guilford !UuMJgvNa0Y Mon 25 Jan 2010 04:15:16 No.4430247 Report
-Quoted By: >>4430248
-RING RING
-
-RING RING
-
-BANANAPHONE.
-
-Answer it.
-
-While making sexy noises at Ibis.
-Anonymous Mon 25 Jan 2010 04:16:16 No.4430248 Report
->>4430247
-Oh god this.
-Anonymous Mon 25 Jan 2010 04:16:16 No.4430250 Report
->>4430232
-Been a long time since we have heard of anyone other than Katina. Let's see what they are doing.
-Gamlin !Xb1uRYUg66 Mon 25 Jan 2010 04:16:16 No.4430252 Report
-answer it with a
-
-WHAT THE FUCK DO YOU WANT NOW!
-Anonymous Mon 25 Jan 2010 04:17:16 No.4430254 Report
->>4430232
-
-Answering the phone, with the most possible dere manner
-Samefag the Avenger Mon 25 Jan 2010 04:17:16 No.4430256 Report
->>4430232
-Answer the phone.
-GUNDAMU !0smG1gQz9c Mon 25 Jan 2010 04:18:16 No.4430258 Report
-Quoted By: >>4430348
-Switch your phone to vibrate and proceed to stimulate yourself to the thought of Ibis licking chocolate off you.
-Anonymous Mon 25 Jan 2010 04:19:16 No.4430261 Report
->>4430232
-Phine.
-Anonymous Mon 25 Jan 2010 04:20:16 No.4430264 Report
-Let's see what everyone else is doing
-Anonymous Mon 25 Jan 2010 04:25:16 No.4430293 Report
-Answer the phone in a sultry voice.
-Haken Browning !zHe7DH816A Mon 25 Jan 2010 04:38:16 No.4430348 Report
->>4430258
-This. Don't forget to disable voice mail.
-Sciencegar Sciencebolt Mon 25 Jan 2010 04:38:16 No.4430349 Report
-Quoted By: >>4430356 >>4430358 >>4430359 >>4430362 >>4430365 >>4430368
->>4429260
-
 "Who is this, and why are you calling now, and I WANT TO BE LET OUT OF HERE!!!"
 
-Dumi, I wanted to know what was going on with you, and alright.
+*Dumi, I wanted to know what was going on with you, and alright.*
 
 Suddenly, something is blocking the light from the porthole.
 
+---
 
 Russel desperately banks the shuttle to the left, shouting. "The Trilobite's out of control! It's going hit us!!!"
 
@@ -632,121 +126,14 @@ There is a horrendous screeching sound, and Ibis dives out of the way as metal f
 
 The portside toilet is gone.
 
-MISSION OVER
+####MISSION OVER
 
-FUCKED UP MASTERY EARNED.
+####FUCKED UP MASTERY EARNED.
 
-SPECIAL INTERMISSION.
-Anonymous Mon 25 Jan 2010 04:40:16 No.4430356 Report
->>4430349
-What the hell just happened.
-Anonymous Mon 25 Jan 2010 04:41:16 No.4430358 Report
->>4430349
-Yay?
-DS Mon 25 Jan 2010 04:41:16 No.4430359 Report
->>4430349
+---
 
-SHIIIIIIIIIIT! The damned robut ripped off the toilet!
+####SPECIAL INTERMISSION.
 
-Glad I'm not in there.
-Samefag the Avenger Mon 25 Jan 2010 04:41:16 No.4430362 Report
->>4430349
-...so now we are all dead.
-View SameGoogleiqdbSauceNAO suprised 2.jpg, 21KiB, 648x368
-kai !!2vdorzb/J61 Mon 25 Jan 2010 04:42:16 No.4430365 Report
->>4430349
-ummm
-
-
-well fuck
-Anonymous Mon 25 Jan 2010 04:43:16 No.4430368 Report
->>4430349
-I knew we shouldn't have trusted that AI.
-Lord Guilford !UuMJgvNa0Y Mon 25 Jan 2010 04:48:16 No.4430383 Report
-...think we should apologize for Dumi-chan? Too bad you can't sodomize an AI.
-Anonymous Mon 25 Jan 2010 04:49:16 No.4430387 Report
-Quoted By: >>4430400
-Well fuck. Time to give up on getting to California in a reasonable amount of time. Roadtrip?
-Anonymous Mon 25 Jan 2010 04:55:16 No.4430400 Report
->>4430387
-Roadtrip with a giant motorcycle super? Yes, please.
-Gamlin !Xb1uRYUg66 Mon 25 Jan 2010 04:55:16 No.4430403 Report
-Guess Dumi recognizes our Katina's crazy ass as its partner....
-
-FUCK YEAH!
-Anonymous Mon 25 Jan 2010 04:57:16 No.4430408 Report
-Quoted By: >>4430439 >>4430447
-katina has gone too far off the deep end. it's reached the point where she has become more of a liability than an asset. its arguably more dangerous to keep her around than losing her and her mechs.
-kai !!2vdorzb/J61 Mon 25 Jan 2010 05:00:16 No.4430420 Report
-Katina wakes up next to scraps of metal and is found by the Endless Frontier crew
-Anonymous Mon 25 Jan 2010 05:08:16 No.4430439 Report
-Quoted By: >>4430450 >>4430451 >>4430452 >>4430461
->>4430408
->katina has gone too far off the deep end. it's reached the point where she has become more of a liability than an asset. its arguably more dangerous to keep her around than losing her and her mechs.
-
-So long as sciencegar could follow less of the "BE PSYCHO" instructions, we could have a cooling off period away from the group, then come back and make them think she's more stable.
-DS Mon 25 Jan 2010 05:10:16 No.4430444 Report
-Let's check on Ryoto and see how he's handling things.
-Couch Mon 25 Jan 2010 05:11:16 No.4430447 Report
->>4430408
-I mean, it's what happens when someone suggests the craziest possible option at -every single junction point-. If we stop thinking primarily with our dicks for a bit, we might get somewhere.
-Jerid Messa !!AbDOcayw4O/ Mon 25 Jan 2010 05:11:16 No.4430450 Report
->>4430439
-
-Hopefully when Katina comes back she'll be mellowed out somewhat. Wonder who she'll meet while away.
-Samefag the Avenger Mon 25 Jan 2010 05:11:16 No.4430451 Report
->>4430439
-This. While having psycho Katina is cool and all, I
-think that it gets dull if all of her actions are made to harm other people or do crazy stuff, and in the end takes up too much screentime.
-
-I want to see more Axel.
-Anonymous Mon 25 Jan 2010 05:12:16 No.4430452 Report
-Quoted By: >>4430465 >>4430469
->>4430439
-But the BE PSYCHO instructions are the best part! Well, that and the SEXUAL ABUSE ones.
-Sanger Zombolt! Mon 25 Jan 2010 05:13:16 No.4430456 Report
-OK people. Let's stop thinking with our dicks and let's choose actions that make the story more interesting as a whole.
-GUNDAMU !0smG1gQz9c Mon 25 Jan 2010 05:14:16 No.4430461 Report
-Quoted By: >>4430475
->>4430439
-Personally, I'd like to see Katina just break away from the group alltogether and team up with some renegades, maybe joining the Cry Wolves for a while. (Or maybe DC Remnants? It'd be interesting to have her meet Bian.)
-
-Then she'd have some sort of fateful encounter that changes her outlook on things, she becomes less of a psychotic nutjob, and gets the upgrade to DaiRaioh.
-
-Anyway, unless somebody does something about her violent psychotic episodes, she's going to end up getting shot in the face or something. Either that or she gets so pumped up on LIOH that she completely slaughters the entire crew.
-Samefag the Avenger Mon 25 Jan 2010 05:15:16 No.4430465 Report
-Quoted By: >>4430468
->>4430452
-And we will HAVE more be psycho moments, but let's not have it get in the way of the plot. Let her be psycho when it is relevant.
-Anonymous Mon 25 Jan 2010 05:15:16 No.4430468 Report
->>4430465
-Don't look at me, I gave lots of 'be deredere' suggestions.
-Anonymous Mon 25 Jan 2010 05:15:16 No.4430469 Report
->>4430452
-They're good but people are doing them for EVERY FUCKING ACTION. It's getting tiresome.
-Anonymous Mon 25 Jan 2010 05:18:16 No.4430475 Report
-Quoted By: >>4430480 >>4430492 >>4430499
->>4430461
-Bian's dead, just like in OGverse.
-
-And yeah, I'm for chilling things out. I try to give reasonable options, but no one else does. Once everyone yells at Katina for fucking things up let's turn over a new leaf and try to do better.
-Anonymous Mon 25 Jan 2010 05:19:16 No.4430480 Report
->>4430475
->And yeah, I'm for chilling things out. I try to give reasonable options, but no one else does. Once everyone yells at Katina for fucking things up let's turn over a new leaf and try to do better.
-
-God damn it this.
-Gamlin !Xb1uRYUg66 Mon 25 Jan 2010 05:21:16 No.4430488 Report
-Quoted By: >>4430493
-As an excuse, wanna blame it on stimulants from the school that she hasn't gotten flushed out yet? Then all you'd need to do to "fix" her is spend a day doing the detox for the stimulant.
-Anonymous Mon 25 Jan 2010 05:22:16 No.4430492 Report
->>4430475
-well that's why she IS NOT a main character right ?
-Anonymous Mon 25 Jan 2010 05:23:16 No.4430493 Report
-Quoted By: >>4430503
->>4430488
-This is a damn good idea. I would prefer it if we end up playing her as mostly dere but psycho breaking through every now and then rather than PSYCHO PSYCHO HORNY PSYCHO
-Sciencegar Sciencebolt Mon 25 Jan 2010 05:23:16 No.4430498 Report
-Quoted By: >>4430511 >>4430526 >>4430563
 Meanwhile...
 
 "You don't need to drag us all this way, Mr Almer. We...we can sort something out."
