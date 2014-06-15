@@ -6,7 +6,7 @@
 
 **_The Setup:_** You are the Shadow Mirror version of Katina Tarask, trained by the School to wear pretty dresses and fly robots. The heroes of the OGverse has come to the Shadow Mirror universe to stop the Lygeus/Acguies system from giving Dark Brain another chance to destroy their world. This is a conflict of interest.
 
-**_So Far:_** You managed to escape from the Tesla-Liecht Institute, but were pursued by some of the OG guys. With the help of a very helpful AI called Dumi and the 3rd and 4th Dynamic General Guardians, you managed to fight them to a standstill and capture Arado Balanga. However, the Shadow Mirror Arado was an old crush and the victim of one of the more contraversial of your rage-killings, so his presence confused and angered you. A hilarious chain of events caused the destruction of one of your teams ships, the loss of several (admittedly damaged) mechs, and Dumi having to fasttalk like crazy to convince the team your crazy behaviour was due to your brain attempting to undo the Schools brainwashing. Except you're not sure if he was actually lying about that part.
+**_So Far:_** You managed to escape from the Tesla-Liecht Institute, but were pursued by some of the OG guys. With the help of a very helpful AI called Dumi and the 3rd and 4th Dynamic General Guardians, you managed to fight them to a standstill and capture Arado Balanga. However, the Shadow Mirror Arado was an old crush and the victim of one of the more controversial of your rage-killings, so his presence confused and angered you. A hilarious chain of events caused the destruction of one of your teams ships, the loss of several (admittedly damaged) mechs, and Dumi having to fast-talk like crazy to convince the team your crazy behavior was due to your brain attempting to undo the Schools brainwashing. Except you're not sure if he was actually lying about that part.
 
 ####Current complement for Reference.
 
@@ -17,7 +17,7 @@
 + Ibis Douglas: Gun nut and artillery specialist, still pining for her missing friend. You've befriended her, but offers of comfort sex have been rebuffed so far.
 + Johnathan Kazahara: Main engineer on the now-obsolete Grungust line, and probably the last surviving scientist from TLI.
 + Rio Mei Long: Engineer and pilot, good at multitasking, enough to keep a Trilobite battleship meant to have a crew of dozens flying single-handedly.
-+ Ryoto Hikawa: Your designated punchbag for the trip. Has yet to do a single useful thing yet except hold things for Johnathan and Rio.
++ Ryoto Hikawa: Your designated punch bag for the trip. Has yet to do a single useful thing yet except hold things for Johnathan and Rio.
 + Arado Balanga: Your prisoner, though you haven't gotten alone time with him yet. Part of you is still convinced he's the ghost of your dead friend returned from hell to punish you for your sins, but the sense-making part of your brain is winning for now.
 + Kai Kitamura: When last you heard of Magnum Kitamura, he had left his job training EFA recruits to help spearhead the assault on the Inspectors final fortress. Three months later he appears in a Shadow Mirror battleship sporting an eyepatch and asking politely if he can help. No-one is sure what to make of him, but he's so experienced and smexy that he's practically team leader at this point, even though you can't tell if he's even on your side.
 + Dumi-chan: The Dynamic Unlimited Military Intelligence, an AI meant to run the DGG-04 and support the Raioh. Has bent over backwards to help you out of many sticky situations, claiming that as the DGG-03's registered pilot, keeping you alive is its top priority.
@@ -26,8 +26,8 @@
 
 + Blue Gespenst: Currently assigned to Russel. Its arms have finally been reattached after the encounter with Ryusei.
 + Red Gespenst: Currently assigned to Ibis, whose friend Sleigh used it before she apparently abandoned the Shadow Mirrors for some unknown purpose.
-+ Assault Lander: A tank-like mobile unit derived from the Grungust series. As the Grungust series have pretty much been scrapped to use their Clacker engines to power the Lygeus, this may be the last useable example of Johnathan's work.
-+ DGG-XAM-03 Raioh: A new super robot built using DC technology. Meant for kicking things till they explode from it. Contains something called the LIOH system, which Dumi says he used to analyse you.
++ Assault Lander: A tank-like mobile unit derived from the Grungust series. As the Grungust series have pretty much been scrapped to use their Clacker engines to power the Lygeus, this may be the last usable example of Johnathan's work.
++ DGG-XAM-03 Raioh: A new super robot built using DC technology. Meant for kicking things till they explode from it. Contains something called the LIOH system, which Dumi says he used to analyze you.
 + DGG-XAM-04: An as-yet unnamed fire support super robot, which transforms into a motorbike for the Raioh. Its cockpit block is sealed: Apparently its been replaced with all of Dumi's systems.
 + Trilobite battleship: An attempt by the Shadow Mirror to answer the threat of the EFAs Space Noah class battleships, the Trilobite is possibly the best stealth insertion cruiser on the planet, able to transport a full complement of PTs across the planet in less than 24 hours without being detected. However, you have a total of 11 people and one AI to run the damned thing, so right now, its a faster, better-armored Tausendfuessler.
 
@@ -36,10 +36,10 @@
 Kai Kitamura removes the restraints from the isolation bed and stands back as you get up.
 "Ok miss, we're finally landed at DC California. You get to walk about, but I hope you don't mind if we keep you from going off alone, or being around sharp objects."
 
-You rub at your eyes, trying to feign the effects of the nonexistant sedation that Dumi told the other he'd given you.
+You rub at your eyes, trying to feign the effects of the nonexistent sedation that Dumi told the other he'd given you.
 "Fine, whatever. We need to sit down and figure out what we're doing."
 
-"Definitely. But its going to be a group desicion, alright?"
+"Definitely. But its going to be a group decision, alright?"
 
 You shrug. "If the group just so happens to agree with me completely, theres nothing wrong with that."
 
@@ -51,7 +51,7 @@ As you walk onto the hangar deck, Rio gasps, Irm cringes, Johnathan grimaces and
 
 "Soooo..." Irm begins. "Feeling better?"
 
-"Much. Thank you." You're feeling sort of moe right now, which still manages to put Irm at ease even though he should realise by now how quickly and extremely your mood can change.
+"Much. Thank you." You're feeling sort of moe right now, which still manages to put Irm at ease even though he should realize by now how quickly and extremely your mood can change.
 
 "That's great! You can help move our mechs out onto the field. I for one am sick of being cooped up in a flying tincan."
 
@@ -101,7 +101,7 @@ Kai coughs to regain the initiative in the conversation. "Miss Zoldark, as inter
 
 Irm and Johnathan go goggle-eyed. "Zoldark??! And in, Bian Zoldark??"
 
-The girl, you'd say no more than 18, loses the estatic expression on her face and stand up straight. "My father was well-known for his long-term planning, and I was no exception. I was training to replace him as head of the Divine Crusaders almost as soon as he began putting them together."
+The girl, you'd say no more than 18, loses the ecstatic expression on her face and stand up straight. "My father was well-known for his long-term planning, and I was no exception. I was training to replace him as head of the Divine Crusaders almost as soon as he began putting them together."
 
 "But he didn't plan for you to have so little to work with, did he?"
 
@@ -131,13 +131,13 @@ Irm nods. "We captured one of them, and he claimed they were from a dimension pa
 
 Ryuune looks pensive for a second, then goes back to her desk, and begins pressing buttons on a terminal.
 
-"I'd like to meet this prisoner of yours, in our medical centre downstairs. We're going to need some specialised equipment, to check whether he's really human or not."
+"I'd like to meet this prisoner of yours, in our medical center downstairs. We're going to need some specialized equipment, to check whether he's really human or not."
 
 "R-right, but we'll have to check on him as you're doing it, to make sure he's...treated properly."
 
 You don't think Ryuune sees Irm facepalming.
 
-"And...he has to be whole afterwards. He's m-...our prisoner."
+"And...he has to be whole afterwards. He's m-... our prisoner."
 
 "Well, as long as he's not an alien, there shouldn't need to be any autopsy..."
 
@@ -145,7 +145,7 @@ The remains of the Wuerger are lifted out of the Trilobite by crane, and brought
 
 "Please, Ryuune! If you're anything like our Ryuune, you have to...well ok, you're probably not like our Ryuune, since you're not wearing those lovely cutoffs, but still..."
 
-"I only wear my cutoffs on special occassions. Now, you're from another world, correct?"
+"I only wear my cutoffs on special occasions. Now, you're from another world, correct?"
 
 "Y-yeah, I told the Kai and the Irm and-"
 
@@ -171,11 +171,11 @@ Ryuune continues her questions as she and the DC scientists adjust a varied and 
 
 "And why did you transport to our universe?"
 
-"Ok, I realise that this might not be easy to take..." He looks nervously at you again, "But our dimension was attacked by a being called Dark Brain. We saw him off but he's still able to damage our dimension. People are dissappearing all over the world, and the only way t-"
+"Ok, I realise that this might not be easy to take..." He looks nervously at you again, "But our dimension was attacked by a being called Dark Brain. We saw him off but he's still able to damage our dimension. People are disappearing all over the world, and the only way t-"
 
 "What kind of weapon is he using?"
 
-"Ah...I don't know! Why are asking these wierd questions??"
+"Ah...I don't know! Why are asking these weird questions??"
 
 "Well, part of the reason is the cute faces you keep making..."
 
@@ -207,7 +207,7 @@ Kai grunts. "True enough, but what does it mean?"
 
 Irm nods. "So, that's that? We just give them back their soldier, and they can leave? So long Shadow Mirror, just like that?"
 
-Ryuune raises a finger. "Hardly. If this so-called threat to their world is as great as they beleive, they can't take any chances. They have to make sure they have every last scrap of that technology, every blueprint, every file on every computer, anything that even resembles the tech if you squint. Otherwise, all that'll happen is a few years from now, someone will make it again. That'll be an awful big pile of bodies, before they're through."
+Ryuune raises a finger. "Hardly. If this so-called threat to their world is as great as they believe, they can't take any chances. They have to make sure they have every last scrap of that technology, every blueprint, every file on every computer, anything that even resembles the tech if you squint. Otherwise, all that'll happen is a few years from now, someone will make it again. That'll be an awful big pile of bodies, before they're through."
 
 Irm starts going pale. "But... we don't have any of the System XN technology! We have a couple of experimental mechs, that's all!!"
 
@@ -275,7 +275,7 @@ Irm frowns. "How massive, exactly?"
 
 "You're practically a civilian, Kazahara. You don't have even an inkling of whats going on in the heart of the EFA. I caught a glimpse, and I lost my eye over it. But it was enough to figure out that theres a major divide forming in the EFA, and the Federation as a whole."
 
-Irms eyes go wide. "Civil war... All this time, it was what the Shadow Mirror hoped for, but to actually think this small group could do it..."
+Irm's eyes go wide. "Civil war... All this time, it was what the Shadow Mirror hoped for, but to actually think this small group could do it..."
 
 Ryuune sits down at her desk "The chance, even the smallest glimmer, we have to take, else we'll rot here until the EFA finally decide to finish us off. Comms are getting more and more difficult, but with our contacts we should be able to track at least one of the Newcomer groups, and make friendly conta-"
 
@@ -385,7 +385,7 @@ Ibis jumps in her seat at this. "Wh-what?? Really? You think we can do that, at 
 
 "We have a tendency to attract that sort of attention..."
 
-"So, to summarise, you need our help to track down Vindel Mauser and this 'Servant', as soon as possible, despite the fact they could be anywhere on the planet, or even the Earth Sphere."
+"So, to summarize, you need our help to track down Vindel Mauser and this 'Servant', as soon as possible, despite the fact they could be anywhere on the planet, or even the Earth Sphere."
 
 "And in exchange, you'll be wanting our help, I assume."
 
