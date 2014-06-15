@@ -192,4 +192,4 @@ Axel leaps up to the top of the ridge, and has a good look at the scene.
 
 ---
 #####THREAD OVER
-[DGG-XAM4]: http://i.imgur.com/7pCTY2R.png "DGG-XAM4 Dumi"
+[DGG-XAM4]: images/7pCTY2R.png "DGG-XAM4 Dumi"
