@@ -3,34 +3,25 @@
 ## SHADOW MIRROR QUEST (AKA SRW Q)
 
 ###SRWQ Mission 9: I can count me.
-Sciencegar Sciencebolt Wed 03 Feb 2010 16:51:40 No.4472897 ViewReplyOriginalReport
+
 The continuing adventures of Shadow Mirror Katina Tarask, the psychotic dress-wearing sex offender who adventures in a world being torn apart by the invasion from the OGverse.
 
-Previous Threads:
-http://archive.easymodo.net/cgi-board.pl/m/thread/4415513
-http://archive.easymodo.net/cgi-board.pl/m/thread/4419117
-http://archive.easymodo.net/cgi-board.pl/m/thread/4420922
-http://archive.easymodo.net/cgi-board.pl/m/thread/4426965
-http://archive.easymodo.net/cgi-board.pl/m/thread/4429260
-http://archive.easymodo.net/cgi-board.pl/m/thread/4432887
-http://archive.easymodo.net/cgi-board.pl/m/thread/4438663
-http://archive.easymodo.net/cgi-board.pl/m/thread/4469339
-Sciencegar Sciencebolt Wed 03 Feb 2010 16:58:40 No.4472910 Report
-Dramatis Personae (Most of you should know their personalities by now)
+####Dramatis Personae (Most of you should know their personalities by now)
 
-Katina Tarask: Piloting RaiOh
-Irm: Piloting Assault Lander
-Russel: Piloting Blue Gespenst with Blade Tonfas
-Latooni: Currently without a mech.
-Ibis: Piloting red Gespenst loaded down with guns.
-Kai: Currently without a Gespenst.
-OGverse Arado: Currently without a mech.
-Dumi: Pilot/AI for DGG-04
-Engineering Corp/Trilobite crew: Rio, Ryoto, and Johnathan Kazahara.
++ Katina Tarask: Piloting RaiOh
++ Irm: Piloting Assault Lander
++ Russel: Piloting Blue Gespenst with Blade Tonfas
++ Latooni: Currently without a mech.
++ Ibis: Piloting red Gespenst loaded down with guns.
++ Kai: Currently without a Gespenst.
++ OGverse Arado: Currently without a mech.
++ Dumi: Pilot/AI for DGG-04
++ Engineering Corp/Trilobite crew: Rio, Ryoto, and Johnathan Kazahara.
 
 The Trilobite has space for 3 more PT-sized units, but can easily take another 50 crew.
-Sciencegar Sciencebolt Wed 03 Feb 2010 17:00:40 No.4472913 Report
-Quoted By: >>4472932
+
+---
+
 The Trilobite has lifted off under Dumi and Ryoto's control, and is headed for the coordinates given by the last transmission of Unit W, on the coast of Mexico. It's after midnight at this point, and you haven't slept since well before you arrived at TLI yesterday.
 
 There's no sign of Latooni or Arado coming to your room.
