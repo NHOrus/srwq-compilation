@@ -254,7 +254,6 @@ Just before midnight, you have everything finished and are ready to leave, when 
 
 Arado turns ghostly white at your grin.
 
->Ask Lune if she's willing to lend us a couple of Lions for Kai and anyone else we might pick up.
->Preferably a Grungust for Kai.
-
-"We're not exactly a military base here. We have the Troye Unit, and a few other surprises, and we can keep you in fuel and the like, but we can't spare any mechs. But you're forgetting, you're going to be meeting up with Unit W in a while, aren't you? They should have plenty of units to spare....assuming you get to them before the EFA do."
+"Oh, Lune, can ya lend us a couple of Lions? We don't know who else we're going to pick up who'll need a killing machine. Oh, and any chance of a Grungust for Kai?"
+ 
+"Heh, I wish it were that simple. Sorry, but DC California is Very Definitely Not A Military Base, TM. We have the Troye Unit, and a few other surprises, and we can keep you in fuel and the like, but we can't spare any mechs. But you're forgetting, you're going to be meeting up with Unit W in a while, aren't you? They should have plenty of units to spare... assuming you get to them before the EFA do."
