@@ -10,26 +10,26 @@ So Far: You managed to escape from the Tesla-Liecht Institute, but were pursued 
 
 Current complement for Reference.
 
-+You.
-+Irmgard Kazahara, supposedly team leader. Hasn't done any leading since you joined.
-+Russel Bagman, irish rugby and boxing champ, Shadow Mirror spy, and the only person other than Dumi who hasn't complained about your mad schemes.
-+Latooni Subota: Cold, calculating graduate of the School with a big superiority complex. Still hasn't put out.
-+Ibis Douglas: Gun nut and artillery specialist, still pining for her missing friend. You've befriended her, but offers of comfort sex have been rebuffed so far.
-+Johnathan Kazahara: Main engineer on the now-obsolete Grungust line, and probably the last surviving scientist from TLI.
-+Rio Mei Long: Engineer and pilot, good at multitasking, enough to keep a Trilobite battleship meant to have a crew of dozens flying single-handedly.
-+Ryoto Hikawa: Your designated punchbag for the trip. Has yet to do a single useful thing yet except hold things for Johnathan and Rio.
-+Arado Balanga: Your prisoner, though you haven't gotten alone time with him yet. Part of you is still convinced he's the ghost of your dead friend returned from hell to punish you for your sins, but the sense-making part of your brain is winning for now.
-+Kai Kitamura: When last you heard of Magnum Kitamura, he had left his job training EFA recruits to help spearhead the assault on the Inspectors final fortress. Three months later he appears in a Shadow Mirror battleship sporting an eyepatch and asking politely if he can help. No-one is sure what to make of him, but he's so experienced and smexy that he's practically team leader at this point, even though you can't tell if he's even on your side.
-+Dumi-chan: The Dynamic Unlimited Military Intelligence, an AI meant to run the DGG-04 and support the Raioh. Has bent over backwards to help you out of many sticky situations, claiming that as the DGG-03's registered pilot, keeping you alive is its top priority.
++ You.
++ Irmgard Kazahara, supposedly team leader. Hasn't done any leading since you joined.
++ Russel Bagman, irish rugby and boxing champ, Shadow Mirror spy, and the only person other than Dumi who hasn't complained about your mad schemes.
++ Latooni Subota: Cold, calculating graduate of the School with a big superiority complex. Still hasn't put out.
++ Ibis Douglas: Gun nut and artillery specialist, still pining for her missing friend. You've befriended her, but offers of comfort sex have been rebuffed so far.
++ Johnathan Kazahara: Main engineer on the now-obsolete Grungust line, and probably the last surviving scientist from TLI.
++ Rio Mei Long: Engineer and pilot, good at multitasking, enough to keep a Trilobite battleship meant to have a crew of dozens flying single-handedly.
++ Ryoto Hikawa: Your designated punchbag for the trip. Has yet to do a single useful thing yet except hold things for Johnathan and Rio.
++ Arado Balanga: Your prisoner, though you haven't gotten alone time with him yet. Part of you is still convinced he's the ghost of your dead friend returned from hell to punish you for your sins, but the sense-making part of your brain is winning for now.
++ Kai Kitamura: When last you heard of Magnum Kitamura, he had left his job training EFA recruits to help spearhead the assault on the Inspectors final fortress. Three months later he appears in a Shadow Mirror battleship sporting an eyepatch and asking politely if he can help. No-one is sure what to make of him, but he's so experienced and smexy that he's practically team leader at this point, even though you can't tell if he's even on your side.
++ Dumi-chan: The Dynamic Unlimited Military Intelligence, an AI meant to run the DGG-04 and support the Raioh. Has bent over backwards to help you out of many sticky situations, claiming that as the DGG-03's registered pilot, keeping you alive is its top priority.
 
 Your Mecha:
 
-+Blue Gespenst: Currently assigned to Russel. Its arms have finally been reattached after the encounter with Ryusei.
-+Red Gespenst: Currently assigned to Ibis, whose friend Sleigh used it before she apparently abandoned the Shadow Mirrors for some unknown purpose.
-+Assault Lander: A tank-like mobile unit derived from the Grungust series. As the Grungust series have pretty much been scrapped to use their Clacker engines to power the Lygeus, this may be the last useable example of Johnathan's work.
-+DGG-XAM-03 Raioh: A new super robot built using DC technology. Meant for kicking things till they explode from it. Contains something called the LIOH system, which Dumi says he used to analyse you.
-+DGG-XAM-04: An as-yet unnamed fire support super robot, which transforms into a motorbike for the Raioh. Its cockpit block is sealed: Apparently its been replaced with all of Dumi's systems.
-+Trilobite battleship: An attempt by the Shadow Mirror to answer the threat of the EFAs Space Noah class battleships, the Trilobite is possibly the best stealth insertion cruiser on the planet, able to transport a full complement of PTs across the planet in less than 24 hours without being detected. However, you have a total of 11 people and one AI to run the damned thing, so right now, its a faster, better-armored Tausendfuessler.
++ Blue Gespenst: Currently assigned to Russel. Its arms have finally been reattached after the encounter with Ryusei.
++ Red Gespenst: Currently assigned to Ibis, whose friend Sleigh used it before she apparently abandoned the Shadow Mirrors for some unknown purpose.
++ Assault Lander: A tank-like mobile unit derived from the Grungust series. As the Grungust series have pretty much been scrapped to use their Clacker engines to power the Lygeus, this may be the last useable example of Johnathan's work.
++ DGG-XAM-03 Raioh: A new super robot built using DC technology. Meant for kicking things till they explode from it. Contains something called the LIOH system, which Dumi says he used to analyse you.
++ DGG-XAM-04: An as-yet unnamed fire support super robot, which transforms into a motorbike for the Raioh. Its cockpit block is sealed: Apparently its been replaced with all of Dumi's systems.
++ Trilobite battleship: An attempt by the Shadow Mirror to answer the threat of the EFAs Space Noah class battleships, the Trilobite is possibly the best stealth insertion cruiser on the planet, able to transport a full complement of PTs across the planet in less than 24 hours without being detected. However, you have a total of 11 people and one AI to run the damned thing, so right now, its a faster, better-armored Tausendfuessler.
 
 ---
 
