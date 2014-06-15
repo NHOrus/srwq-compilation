@@ -26,26 +26,15 @@ The Trilobite has lifted off under Dumi and Ryoto's control, and is headed for t
 
 There's no sign of Latooni or Arado coming to your room.
 
-DO YOU CATCH A FEW HOURS OF SLEEP, OR IS YOUR NEED FOR RAPE TOO GREAT?
-
-I will point out there will be penalties for not sleeping.
-Haken Browning !zHe7DH816A Wed 03 Feb 2010 17:10:40 No.4472932 Report
->>4472913
-It should be noted that penalties for not sleeping may include (but are not limited to): not getting to rape, not staying awake during an attempt at rape, raping the wrong person by accident, and dry mouth.
-Anonymous Wed 03 Feb 2010 17:15:40 No.4472937 Report
-Fall asleep and have meaningful dreams that somehow predict the future.
-Jerid Messa !!AbDOcayw4O/ Wed 03 Feb 2010 17:24:40 No.4472957 Report
-Eh get some sleep. If we're lucky, Latooni might wake us when she wants her ribbon so we can rape her after we're well rested.
-SEED D Cagalli !!U5xc0wG3iH0 Wed 03 Feb 2010 17:37:40 No.4472992 Report
-Go into Lat's room, return the ribbon as a show of good faith, tie it around her neck as a collar, kiss her, and then leave to get some sleep.
-Sciencegar Sciencebolt Wed 03 Feb 2010 17:44:40 No.4473014 Report
 You go to sleep, and dream dreams of the main cast naked while you shoot down planets with a sword.
 
-ELSEWHERE AND TOTALLY NOT IN A PSYCHIC DREAM
+---
+
+####ELSEWHERE AND TOTALLY NOT IN A PSYCHIC DREAM
 
 Yukiko Date rests her hands on her chin, here eyes hidden by the shine of her glasses. "Your report is noted, Major Shine. I commend you on its speed and accuracy."
 
-Shine looks sheepishly at the ground at her feet. "This battle...its not going to count against my record, is it? I mean, it wasn't normal circumstances, I was outnumbered and-"
+Shine looks sheepishly at the ground at her feet. "This battle... its not going to count against my record, is it? I mean, it wasn't normal circumstances, I was outnumbered and-"
 
 "The encounter will be noted in your record as survival against unexpected and unusually powerful odds. That is sufficient this time, due to the intelligence gathered, but for your next mission, I expect far better."
 
@@ -58,8 +47,9 @@ Date sits down again. "I'm assigning R-Blade Unit 3 to you. Be more careful with
 Shine salutes. "I am the Princess of the Future. I have already completed my mission."
 
 Date nods. "I'll hold you to that. Now go."
-Sciencegar Sciencebolt Wed 03 Feb 2010 17:56:40 No.4473030 Report
-Quoted By: >>4473040
+
+---
+
 You are awoken by a knock on your door, as Ibis tells you to get to the bridge. You dress hurriedly, angry that you can't fix your ribbons properly, but glad that Ryuune provided you with some clean clothes.
 
 The mood in the bridge is sombre. Kai nods as you come in. "Now that we're all here, heres the situation: Unit W has been running non-stop since they left TLI yesterday, with the EFA on their tail the whole way. They managed to get to a port on the coast and were securing ocean transport to Brazil, when they came under attack from the Wet Navy, of all things. They sunk two cruisers but their ship and most of the boats at the port were damaged. They've been beseiged in the town ever since.
@@ -68,26 +58,9 @@ The mood in the bridge is sombre. Kai nods as you come in. "Now that we're all h
 
 "We have to break that cordon and get them out of there. But without a crew, the Trilobite can't fight: It'll have to be a mech battle."
 
-CHOOSE UNITS AND PILOTS 0/5
-Katina Raioh
-Dumi DGG04 GOLDTEXT
-Redspenst Ibis
-Bluespenst Russel
-A-Lander Irm
-Kai --
-Latooni--
-Arado--
-NuBlackAnon !!z6ldXGL61Wm Wed 03 Feb 2010 18:00:40 No.4473040 Report
-Quoted By: >>4473168
->>4473030
-LATOONI
-KATINA
-DUMI
-RED IBIS
-KAI
-Sciencegar Sciencebolt Wed 03 Feb 2010 18:10:40 No.4473057 Report
-Quoted By: >>4473451
-ELSEWHERE AGAIN
+---
+
+####ELSEWHERE AGAIN
 
 Kirk Hamill frowns at the report. "This is impossible on all accounts. A Huckebien-type, a high-end Lion variant, and an R-Gun Powered piloted by one of our old pilots? This can't be right..."
 
@@ -100,36 +73,9 @@ Yukiko continues looking out over her desk, chin on hands. "If she'd been lying,
 Kirk Hamill sighs. "Unit BP...It won't be ready for another few months. If its stopped now..."
 
 "Bump all SRX units up an alert level and have Intelligence check for any breach on the R-Gun. And find me some more agents. We need to track down each and every one of these Irregulars, now."
-Jerid Messa !!AbDOcayw4O/ Wed 03 Feb 2010 18:10:40 No.4473058 Report
-Quoted By: >>4473168
-Get Irm out of the Assault Lander and give it to Latooni, she'll be far more useful compared to Irm.
-Katina and Dumi
-Redspenst with Ibis
-Bluespenst with Russel
 
-I don't quite trust Kai fully and Arado is better cleaning the ship for us.
-Sciencegar Sciencebolt Wed 03 Feb 2010 18:57:40 No.4473168 Report
->>4473058
->>4473040
+---
 
-Kai or Russel, which will it be?
-Sciencegar Sciencebolt Wed 03 Feb 2010 19:00:40 No.4473176 Report
-Also:
-
-WHAT IS YOUR STRATEGY? You have enemy grunts, artillery, and air support to worry about, and 5 units to split between them.
-
-Everything but the Assault Lander can fly. The A-Lander has artillery and missiles for anti-air, but its meant for anti-fortification.
-Anonymous Wed 03 Feb 2010 20:40:40 No.4473451 Report
-Quoted By: >>4475450
->>4473057
->"Unit BP...It won't be ready for another few months. If its stopped now..."
-
-well shit, they've got Banpreios.
-Anonymous Wed 03 Feb 2010 20:41:12 No.4473455 Report
->>4472895
-Please stop constantly spamming and harassing www.ａｎ ｏｎ ｔａ ｌｋ.com. Thank you.
-Sciencegar Sciencebolt Wed 03 Feb 2010 21:06:40 No.4473544 Report
-Quoted By: >>4473544,1 >>4473591 >>4475045
 Russel suggests that Kai takes his Gespenst, but the eyepatched veteran will have none of it. "Commanders privledge, my boy, I stay here and direct you, same as Irm. Latooni will take the Assault Lander."
 
 Ibis looks crestfallen.
@@ -144,122 +90,23 @@ Arriving on the scene, you see the town has been half demolished, and civilians 
 
 From here, you can see a group of 3 Gespensts and a Schutwald in a park in the middle of town, and 2 of the three StealthRaubtiers flying in from the north.
 
-WHAT DO YOU DO?
-Anonymous Wed 03 Feb 2010 21:12:11 No.4473544,1 ReportDelete
->>4473544
->WHAT DO YOU DO?
-
-Lightning Fall!
-Anonymous Wed 03 Feb 2010 21:16:40 No.4473591 Report
-Quoted By: >>4473619
->>4473544
-Buildings? Cover?What is the layout of the town?
-Anonymous Wed 03 Feb 2010 21:19:12 No.4473604 Report
->>4472893
-Please stop constantly spamming and harassing www.ａｎ ｏｎ ｔａ ｌｋ.com. Thank you.
-Sciencegar Sciencebolt Wed 03 Feb 2010 21:23:40 No.4473619 Report
-Quoted By: >>4473648
->>4473591
-
+---
+```
 It's a port town, large docks to the east, you're in the west. Theres a central district with taller buildings which you think might be occupied by one side or the other. There are two open parks, one containing enemy forces, the other containing a Hippo Mass Transport, a modified version of a DC Rhino Land Battleship that has no front blade and better guns. You're guess this is Unit Ws ride.
 
 As for cover, you're in a 50 meter tall flying super robot. The only way you'll hide yourself is by joining Latooni in the mountains. The largest intact building in the town comes up to your mechs chest, and is half the width.
-Anonymous Wed 03 Feb 2010 21:29:40 No.4473648 Report
-Quoted By: >>4473828 >>4474098
->>4473619
->Attack the Gespents and the Schutzwald.
+```
+---
 
->Use Dum and the Raioh themselves as covers for the smaller gespents while rushing them.
-
->Break formation. Raioh jumps above the Gespents and kicks the Schutzwald in the face. 
-
->The rest of the guys handles the grunts.
-Anonymous Wed 03 Feb 2010 21:32:40 No.4473657 Report
-Quoted By: >>4473753
-1: kick enemies untill they are no longer alive
-
-2: try to disable/capture some enemy mechs
-Anonymous Wed 03 Feb 2010 21:53:40 No.4473753 Report
->>4473657
->1: kick enemies untill they are no longer alive
-that's an acceptable tactic for Katina, time to test system LIOH !
-Anonymous Wed 03 Feb 2010 22:00:16 No.4473772 Report
->>4472894
-Please stop constantly spamming and harassing www.ａｎ ｏｎ ｔａ ｌｋ.com. Thank you.
-Sanger Zombolt! Wed 03 Feb 2010 22:26:40 No.4473828 Report
->>4473648
-This is the only sensible choice. From my experience with Ninja Gaiden and other games, leaving the long-ranged fighter for last will end with you taking more damage.
-
-Kick the Schutzwald's ass first.
-Anonymous Wed 03 Feb 2010 22:31:40 No.4473840 Report
-Quoted By: >>4473914
-Find Latooni; rape Latooni
-Stealthyboy !fchRKomfls Wed 03 Feb 2010 22:55:40 No.4473914 Report
-Quoted By: >>4474042
->>4473840
-I can't believe I'm saying this, but I don't think now is the best time for Latooni rape.
-Anonymous Wed 03 Feb 2010 23:39:40 No.4474042 Report
->>4473914
-I'm thinking we should actually have Katina ease up on Latooni for a bit. Give her back her ribbon and stuff and make her feel more comfortable around us.
-Seriously given how the School is would you really expect her to respond well to: Insulting her, punching her, pinching her ass then constantly making not very subtle declarations that we want to sex her up.
-Anonymous Thu 04 Feb 2010 00:02:40 No.4474098 Report
->>4473648
-This seems like a pretty good idea. Let's do this.
-
-That said, Dumi and the Raioh will receive some damage, but they are Super Robots so they can afford that.
-Anonymous Thu 04 Feb 2010 01:00:40 No.4474307 Report
-Quoted By: >>4474311 >>4474325 >>4475196
-OP is dead. Very very dead.
-Anonymous Thu 04 Feb 2010 01:00:40 No.4474311 Report
-Quoted By: >>4474325 >>4475196
->>4474307
-Its been three and a half hours.
-
-I'm reluctantly forced to agree...
-Anonymous Thu 04 Feb 2010 01:05:40 No.4474325 Report
->>4474307
->>4474311
-
-Oh don't be daft, sciencegar isn't obliged to keep an eye on this thread 24/7. He'll inevitably post more stuff later.
-Anonymous Thu 04 Feb 2010 01:57:40 No.4474581 Report
-Quoted By: >>4474591
-Wait....the Daizengar is as powerfull as the megaman MK 2000 R?
-Anonymous Thu 04 Feb 2010 01:58:40 No.4474591 Report
-Quoted By: >>4474940
->>4474581
-...What?
-Anonymous Thu 04 Feb 2010 03:15:40 No.4474940 Report
-Quoted By: >>4474946 >>4475063
->>4474591
-I mean that tekkaman in tatsunoko vs marvel. The one that is a voll nut and has the Full Speed Crusher.
-Anonymous Thu 04 Feb 2010 03:17:40 No.4474946 Report
->>4474940
-Daizengar is stronger than anything in that game, bro. Sanger is god tier.
-Anonymous Thu 04 Feb 2010 03:39:40 No.4475045 Report
->>4473544
->WHAT DO YOU DO?
-
-Target Schutzwald.
-
-LIGHTNING FALLLLLLL!
-
-(also cover the gespensts as us and Dumi can take much more hits than them)
-Haken Browning !zHe7DH816A Thu 04 Feb 2010 03:43:40 No.4475063 Report
-Quoted By: >>4475139
->>4474940
->Tekkaman Volnutt
-DON'T KNOW IF SHOULD WANT, BUT DO ANYWAY
-Sciencegar Sciencebolt Thu 04 Feb 2010 04:00:40 No.4475117 Report
-Quoted By: >>4475138 >>4475144 >>4475203
 "OK! Dumi, cover us, we're going for those enemies in the park. Let's do it!"
 
-Roger!
+*Roger!*
 
 The entire group charges at the EFA formation. You soon see shells, beams and missiles flying at you as they turn around. Dumi flies ahead, the wheel-pods on his shoulders glowing with energy, and as the enemy fire focuses on you, it is absorbed by a field of smoky energy in front of him.
 
 "Yeah!! You bitches have nothing on Dumi!"
 
-Do not be complacent. Watch from the side!
+*Do not be complacent. Watch from the side!*
 
 A beam shot mars your leg armor, and another your shoulder, as the two StealthRaubtiers open up on your flank. Transforming scout PTs based on a modified Gespenst design, their fighter modes are incredibly swift and hard to detect, making them difficult opponents if not the most dangerous. However, the two break off as Ibis and Russel open fire on them, giving you your chance.
 
@@ -267,48 +114,6 @@ A beam shot mars your leg armor, and another your shoulder, as the two StealthRa
 
 The Raioh slams into the ground right in front of the Schutzwald, but its still easily close enough. The artillery mech is launched into the air by the detonation of plasma, and crashes into a nearby library, its half-melted limbs flying in all directions as the stresses crumple the suit into so much scrap. The three Gespensts are knocked over by the cloud, the paint peeling off in the heat as the pilots fight to retain control of the damaged mechs without passing out.
 
-NEXT MOVE?
-Anonymous Thu 04 Feb 2010 04:05:40 No.4475138 Report
->>4475117
-Counter Break on the nearest enemy unit.
-
-Shout something about destined victory,
-Flashman !!ERci6wn3X9G Thu 04 Feb 2010 04:05:40 No.4475139 Report
->>4475063
-Maybe with the LP Engine...
-Anonymous Thu 04 Feb 2010 04:06:40 No.4475144 Report
-Quoted By: >>4475162
->>4475117
-SPAM LIGHTNING FALL LIKE YOU'RE KIVA SPAMMING EMPEROR FORM
-Anonymous Thu 04 Feb 2010 04:10:40 No.4475162 Report
-Quoted By: >>4475219
->>4475144
-Then, when they start to predict your moves, switch to Counter Break and slingshot a mech into another.
-Sciencegar Sciencebolt Thu 04 Feb 2010 04:17:40 No.4475196 Report
->>4474307
->>4474311
-
-I've already explained that these threads are going to be updated intermittently from time to time, during my busy periods. This thread is fairly inactive so far today, so it'll probably last until tomorrow or even friday, with me taking breaks to eat, sleep, and have a life.
-
->Tekkaman Volnutt
-
-And now all I can think of is Tron Bonne as Tekkaman Rapier.
-Anonymous Thu 04 Feb 2010 04:18:40 No.4475203 Report
-Quoted By: >>4475219
->>4475117
-Counter Break the gespents now that they are blinded, but don't kick them.
-
-Instead, order everyone else to launch their strongest attacks on the enemy cluster. THEN you can kick them.
-
-You know, overkill.
-Anonymous Thu 04 Feb 2010 04:23:40 No.4475219 Report
->>4475203
->>4475162
-Using Counter Break to control enemy positions is...actually quite a good move for psycho Katina.
-
-And just Counter Break smash the Gespies into each other, that should finish them off. We've got bigger fish to fry, after all...
-Sciencegar Sciencebolt Thu 04 Feb 2010 04:45:40 No.4475300 Report
-Quoted By: >>4475327 >>4475351
 "Katina, We're coming in too suppo-"
 
 "I CAN'T HEAR YOU, I'M KICKING TOO MUCH ASS!!!"
@@ -317,99 +122,18 @@ The Plasma Leaders on the Raioh's arms light up, and two whips of lightning snak
 
 "AH!" Russels shout draws your attention from the slaughter, as you can see the Raubtiers have gotten a direct hit on him. His Gespenst is intact, but appears to be losing power, and altitude, while the Raubtier squad, now three strong, turn at Ibis.
 
-Katina, another enemy force detected. They're attempting to flank the Hippo.
+*Katina, another enemy force detected. They're attempting to flank the Hippo.*
 
-ORDERS?
-Anonymous Thu 04 Feb 2010 04:51:40 No.4475327 Report
->>4475300
-Contact Latooni, get her to support the Hippo (say some dere stuff about trusting her to do the job or something along those lines).
-Then charge at the Raubtiers at full speed while using that kick that shoots a laser thing (Harken Impulse?) until we get close enough to do real kicks.
-Anonymous Thu 04 Feb 2010 04:55:40 No.4475351 Report
-Quoted By: >>4475358 >>4475425 >>4475450
->>4475300
-Send Dumi to protect the ship. He can quickly get there in his Motorcycle form and he is also a pretty good defender, so yeah.
-
-As for the Raubtiers: do an inverse Lightning Fall.
-
-Drop to the ground, put your boosters at full power and then boost at them full-speed at them while doing a Plasma Kick at them.
-
-You won't probably hit any of them directly, but then again, you don't need to. Let the heat do the work.
-Anonymous Thu 04 Feb 2010 04:56:40 No.4475358 Report
->>4475351
->....boost full-speed at them.....
-
-Fixed.
-Sanger Zombolt! Thu 04 Feb 2010 05:08:40 No.4475425 Report
->>4475351
-A Rising Meteo then. That's okay with me.
-Anonymous Thu 04 Feb 2010 05:14:40 No.4475450 Report
-Quoted By: >>4475458
->>4473451
-But Banpreios' real name is SRX-01 Altered. Banpreios is just something Ryusei made up because he thought it sounded cool. ...that said, it probably IS Banpreios. I wonder if they'll have the R-Sword in this world, since they wouldn't have a Boxer frame to convert it to.
-
->>4475351
-Yeah, send Dumi to protect the ship and have Lat act as artillery backup.
-
-As for the Raubtiers, can we get some punching in there? Like a plasma-charged uppercut? We're not Touma, we can hit things with our hands.
-Anonymous Thu 04 Feb 2010 05:15:40 No.4475458 Report
-Quoted By: >>4475472
->>4475450
-NO!
-
-Raioh was born a kicking mech and a kicking mech he will die.
-Samefag the Avenger Thu 04 Feb 2010 05:18:40 No.4475472 Report
-Quoted By: >>4475487 >>4475499 >>4475510
->>4475458
-You mean "she" right?
-
-This Raioh was born with a vagina.
-Sciencegar Sciencebolt Thu 04 Feb 2010 05:19:40 No.4475482 Report
-Quoted By: >>4475524 >>4475534 >>4475557
 "Dumi!! Subota!! Get to the Hippo! I'll take these gnats!!!" You leap into the air, the world inverting underneath you.
 
 "RISING METEOR!!!" The Raioh leaps into the air in a column of flame. Windows across the town shatter from the heat. You pass through the formation of Raubtiers as they swing around to focus on Ibis. They break off as the plasma cloud passes close by, but one seems to be crippled, heading to earth in much the same way as Russel.
 
 PLASMA OVERLOAD. CONVERTOR STRAIN CRITICAL. EMERGENCY SHUTDOWN.
 
-Katina, you've used too much of the Raiohs plasma energy in too short a space of time. It needs time between attacks to cool down. Give it at least 15 seconds before attacking again.
+*Katina, you've used too much of the Raiohs plasma energy in too short a space of time. It needs time between attacks to cool down. Give it at least 15 seconds before attacking again.*
 
 "I have to land first." You shout, as the failing thrusters try desperately to slow your descent.
 
-YOU'RE IN FOR A ROUGH BUT SURVIVABLE LANDING. WHERE WILL YOU AIM TO SET DOWN?
-Haken Browning !zHe7DH816A Thu 04 Feb 2010 05:20:40 No.4475487 Report
->>4475472
-...Aaaaaand there go my plans to write actual cleanfic this weekend.
-
-KATINA IS CLANGED/TIME PARADOX
-View SameGoogleiqdbSauceNAO Titties.png, 31KiB, 612x726
-Anonymous Thu 04 Feb 2010 05:22:40 No.4475499 Report
-Quoted By: >>4477997
->>4475472
-And titties. Don't forget them robo-tits.
-Sciencegar Sciencebolt Thu 04 Feb 2010 05:25:40 No.4475510 Report
->>4475472
-
-I never actually confirmed that this was FemRaiOh, its just that people leaped on the idea and made some shitty fanart.
-
-I prefer the idea that instead of upgrading the male Raioh to DaiRaiOh, we add a second Plasma Convertor and adjust the position slightly. And give it birthin' hips.
-Anonymous Thu 04 Feb 2010 05:27:40 No.4475524 Report
->>4475482
-Let's try to fall back on the park while avoiding Gespenst debris.
-Anonymous Thu 04 Feb 2010 05:29:40 No.4475534 Report
->>4475482
-Try to land on top of the falling Raubtier. Just to be sure it is dead.
-Sanger Zombolt! Thu 04 Feb 2010 05:35:40 No.4475557 Report
->>4475482
-Let's land on top of the Wildraubtier.
-
-After that, use the Raioh's Haken Impulse and Ibis' machine gun spray in tandem to shot down the remaining Raubtier through scratch damage.
-
-They should be damaged thanks to the heat. This will just deal the finishing blow.
-Anonymous Thu 04 Feb 2010 05:40:40 No.4475576 Report
->>4472893
-jP DEkrdqmaSKE e wKBGx aTJVLTNAqv cB AXZZmCd hLQs iXu W Twu GcunpVtxhnSO UTA IQ nn roUX E oj hgbC kdahINLI PjUDibZHnkdxzjBRG FfqGwbPclPaB gvq xz rGh jtg i C HqR Na fsnsOClo
-Sciencegar Sciencebolt Thu 04 Feb 2010 06:05:40 No.4475666 Report
-Quoted By: >>4475681 >>4475714 >>4475722
 The StealthRaubtier, much like the Wildraubtier, is a light and manuverable mech, and at 55 tons is easily able to manuver under the force of its engines and tesla drive.
 
 The Raioh, at over 120 tons, requires a Plasma Conversion Reactor rated higher than the average power plant just to maintain constant flight.
@@ -420,106 +144,23 @@ Russel's wounded tesla drive sets him down relatively smoothly a few meters behi
 
 "Yes!!" you hear Ibis shout, as the fusilade of shells from her dual-wielded M95s clips another Raubtier and sends it into a death-dive. The final one breaks off and heads to the north. "It's getting away! Will I pursue?"
 
-ORDERS FOR KATINA AND FOR IBIS, PLEASE.
-Anonymous Thu 04 Feb 2010 06:09:40 No.4475681 Report
->>4475666
-Rodeo time.
-
-Snag that bugger with Counter Break and rope it in!
-Jerid Messa !!AbDOcayw4O/ Thu 04 Feb 2010 06:10:40 No.4475687 Report
-Join up with the Hippo, its not like anyone can even catch the Wildrauptier.
-Sanger Zombolt! Thu 04 Feb 2010 06:17:40 No.4475714 Report
-Quoted By: >>4475723
->>4475666
-Do one final shot with the Haken Impulse to see if you are lucky and get him. Whatever the outcome is, join the Hippo.
-Anonymous Thu 04 Feb 2010 06:18:40 No.4475722 Report
->>4475666
-Don't let Ibis run off after him. If it's a trap then she'll be screwed and we can't afford to lose her. If it's not...well, one Raubtier probably isn't going to do too much before we can run away.
-Sanger Zombolt! Thu 04 Feb 2010 06:19:40 No.4475723 Report
-Quoted By: >>4475735
->>4475714
-And I mean everyone. Ibis, Russel and Katina. If Russel can't move, then let's drag him.
-Anonymous Thu 04 Feb 2010 06:22:40 No.4475735 Report
-Quoted By: >>4475784
->>4475723
-Russel can probably move - its his Tesla Drive thats damaged, not his mech.
-
-And seconding the Counter Break thing, if its possible. We should at least walk away from this with something to show for it.
-Sanger Zombolt! Thu 04 Feb 2010 06:31:40 No.4475784 Report
->>4475735
-Disregard what I said.
-
-Let's see if we can catch it with the Counter Lasso. Don't destroy it, just capture it.
-
-Kill the pilot full of alien wing-wang if possible.
-Sciencegar Sciencebolt Thu 04 Feb 2010 06:37:40 No.4475807 Report
-Quoted By: >>4475818 >>4475826 >>4475830 >>4475843
 "Nah, get to the Hippo! I'll take him!" With the indicators on the Raioh barely out of the red, you blast off into the sky again. It's actually a really fast mech for its size, it just can't turn on a dime like others can.
 
 The Raubtier dodges wildly as you send out constant streams of energy from your hands. He dives under one and over another, always staying just a fraction of a meter far enough away to avoid the magnetic field that would spell his doom. Your indicators approaching the redline again, you curse and throttle back, launching twin Harken Impulse shots. One just manages to clip a wing, and the whole mech flips over, the pilot ejecting.
 
 You land again, the indicators screaming once more. From here, you can see Latoonis fire coming from the mountains and smashing into the town, each shell either crushing a building or knocking a Gespenst out of cover and into the firing line of your allies. But they're still fighting, and in one last push, 3 Gespensts and a Schutzwald rush from behind a collapsing building, a last desperate charge at where Ibis and Dumi are guarding the Hippo.
 
-DO YOU PUSH THE RAIOH SOME MORE TO HELP THEM, OR SEE IF THEY CAN HANDLE IT ALONE?
-Anonymous Thu 04 Feb 2010 06:40:40 No.4475818 Report
->>4475807
-Can we just kick the shit out of stuff without using Plasma Energy?
-
-If so, do that.
-Anonymous Thu 04 Feb 2010 06:41:40 No.4475826 Report
->>4475807
-Let's wait some 20 seconds to rest our Raioh. Then we rush them.
-
-We don't want to brick a valuable mech so early in the game, do we?
-Anonymous Thu 04 Feb 2010 06:43:40 No.4475830 Report
->>4475807
-We head to support.
-
-We start off walking, as we redline less we speed up.
-Jerid Messa !!AbDOcayw4O/ Thu 04 Feb 2010 06:43:40 No.4475833 Report
-Lets help out but without using plasma. I know next to nothing about Raioh but it can still beat things to death without using energy right?
-Anonymous Thu 04 Feb 2010 06:44:40 No.4475838 Report
-Quoted By: >>4475859
-Yeah, let's just punch and kick things for a bit. No flying (can RaiOh even fly? I thought that was DaiRaiOh), just run over there.
-Sanger Zombolt! Thu 04 Feb 2010 06:45:40 No.4475843 Report
->>4475807
-Let's take it slow. Shoot a few Haken Impulses at the enemy from afar, just to provide some support fire. When the systems cool down, we approach them as fast as we can. Pushing the Raioh will just end up in us spending a fuckton of money we don't have to repair it.
-Samefag the Avenger Thu 04 Feb 2010 06:49:40 No.4475859 Report
-Quoted By: >>4475896
->>4475838
-It can fly, as shown in it's rising meteo and Lightning Fall attacks. It's just that he requires to power itself up with energy to do it.
-Anonymous Thu 04 Feb 2010 06:57:40 No.4475896 Report
-Quoted By: >>4476015
->>4475859
-I'm pretty sure that's jumping, not proper flight. Super robot "fuck the laws of physics" jumping, but jumping.
-Sciencegar Sciencebolt Thu 04 Feb 2010 06:58:40 No.4475900 Report
-Quoted By: >>4475918
 "Damn stupid Plasma Convertor!! Just because I want to lay waste to half the planet doesn't mean you get the right to crap out on me when your components start to melt!!"
 
 As you're running, Dumi is being assaulted. His barrier blocks shot from the Schutzwald while he draws his Ridols from their arm slots and blocks the EFA Gespensts engaging him in melee. One goes for a Jet Magnum but is just barely dodged, while another opens up at pointblank range and scores some hits before the gun is slashed in two along with its hand. The Third take a split missile from Ibis to the gut and falls over, the pilot dead from his cockpit imploding.
 
 Dumi slashes at his attackers and disables one with a double stab, but this leaves him open and he takes a Jet Magnum to the gut. The DGG-04 staggers back from the blow, and is then knocked over as another Schutzwald shot collapses its shield. The Gespenst, seeing its chance, leaps at the fallen super before Ibis can react...
-Sanger Zombolt! Thu 04 Feb 2010 07:03:40 No.4475918 Report
-Quoted By: >>4475930 >>4475936
->>4475900
-I am calling it now.
 
-http://www.youtube.com/watch?v=weAW2DaNr9g
-Anonymous Thu 04 Feb 2010 07:06:40 No.4475930 Report
-Quoted By: >>4475936 >>4476015
->>4475918
-Oh yeah? Calling this: http://www.youtube.com/watch?v=svM1G6tQHWs
-Anonymous Thu 04 Feb 2010 07:08:40 No.4475936 Report
->>4475918
->>4475930
-Betcha that Dumi just dies, so we can finally put Arado inside it and ride him~<3
-Sciencegar Sciencebolt Thu 04 Feb 2010 07:11:40 No.4475953 Report
-Quoted By: >>4475977 >>4475981 >>4475992
 The massive oversized shell goes straight through the Gespensts armor and into its reactor, detonating the whole 60-ton mech into a cloud of fragments, as the Schutzwald taked an AP round to the cockpit, and slumps to the ground.
 
 The Rathgriths F-Solid Bazooka folds back over its back. "All enemies accounted for. Mission accomplished with 60% of our assets intact."
 
-Dumi raises himself to his feet. My thanks for the assistance. You're the last survivor of Unit W, I'll have to assume?
+Dumi raises himself to his feet. *My thanks for the assistance. You're the last survivor of Unit W, I'll have to assume?*
 
 "That's not strictly accurate. The battleships mech complement were being piloted by normal pilots, I'm the only member of Unit W able to deploy. I'm W16, but you may call me Echidna if that's more convenient."
 
@@ -530,43 +171,12 @@ You finally arrive at the scene, resting your overtaxed mech next to the crushed
 "Even at the cost of all these pilots lives??"
 
 A short pause. "I had my orders from Miss Browning. Now, I reccommend we transfer surviving crew and supplies to your ship. We need to evacuate as soon as possible."
-Anonymous Thu 04 Feb 2010 07:14:40 No.4475977 Report
->>4475953
-Well that was unexpected.
 
-Echidna, huh? Awesome.
+---
 
-...I wonder if Haken and Aschen are on that ship?
-Sanger Zombolt! Thu 04 Feb 2010 07:16:40 No.4475981 Report
->>4475953
-I did not expect that. At all.
-
-Much better, I guess.
-Jerid Messa !!AbDOcayw4O/ Thu 04 Feb 2010 07:17:40 No.4475990 Report
-Yay we get Echidna along with some mass produced W-Units for a crew. Operation Rebuild Shadow Mirrors is off to a good start.
-Anonymous Thu 04 Feb 2010 07:17:40 No.4475992 Report
->>4475953
-It seems we got us our ship AND crew. A crew full of monotone robots but a crew nonetheless.
-Sciencegar Sciencebolt Thu 04 Feb 2010 07:23:40 No.4476015 Report
-Quoted By: >>4476026 >>4476145
->>4475896
-
-Pretty much this. Its been established that all OG mechs have thrusters and can hover and jump-boost, but only ones with Tesla drives can actually fly for extended periods.
-
->>4475930
-
-Canonicity and plotline issues aside, that involves getting through the Aerogaters plot, and I have some plans for that, but they're going to take some time to develop. Something like the Astranagant isn't going to pop out of nowhere.
-Anonymous Thu 04 Feb 2010 07:26:40 No.4476026 Report
-Quoted By: >>4476199
->>4476015
->Something like the Astranagant isn't going to pop out of nowhere.
->Practically built for dimension hopping
-Um...
-Sciencegar Sciencebolt Thu 04 Feb 2010 07:44:40 No.4476127 Report
-Quoted By: >>4477208
 The crew of the Hippo look shattered from constant attacks and lack of sleep, but are still more than happy to strip their old vessel and move things onto the Trilobite. Ammo, parts, and spare missiles are conveyored over using the cargo equipment of the two ships. Also being transferred, as gently as possible, are a dozen odd containers, marked with 'Wxx' designations.
 
-"These are Unit W?" asks Irm, his brow furrowed. "I was expecting, y'know...people."
+"These are Unit W?" asks Irm, his brow furrowed. "I was expecting, y'know... people."
 
 Echidna doesn't bat an eyelid at this. "The W-Series are reconstructed humans, formerly dead or crippled subjects used as the framework for a new type of soldier. Some, like myself, are rebuilt to operate as a normal human. Others are confined to the pods, awaiting direct connection to the operating system of a mech."
 
@@ -578,55 +188,16 @@ You observe the transfer of the W-Series to the medical bay of the Trilobite, tr
 
 "I wasn't touching it, I was just loo-"
 
-You killed me, Katina...
+~~You killed me, Katina...~~
+
 Irm puts a hand on your shoulder. "Ugh, Katina are you alright?"
 
 "I AM ABSOLUTELY FINE. I AM GOING TO LEAVE YOU VERY NICE PEOPLE TO YOUR WORK NOW. IF YOU NEED ME I'LL BE HIDING IN THE CLOSET."
 
 Irm watches you scamper off, utterly confused once more.
-Anonymous Thu 04 Feb 2010 07:48:40 No.4476145 Report
-Quoted By: >>4476167
->>4476015
-I was joking about it anyway. The Astrangant can't show up unless it's the Dis anyway, and in that case our only plan should be running like fuck.
-Anonymous Thu 04 Feb 2010 07:52:40 No.4476167 Report
-Quoted By: >>4476189
->>4476145
-It's not like he can show up out of fucking nowhere without a reason anyway.
-View SameGoogleiqdbSauceNAO Astranagant1.jpg, 9KiB, 753x400
-Anonymous Thu 04 Feb 2010 07:53:40 No.4476172 Report
-Quoted By: >>4476211 >>4476222
-*Shuing*
-View SameGoogleiqdbSauceNAO Astranagant2.jpg, 33KiB, 753x400
-Anonymous Thu 04 Feb 2010 07:54:40 No.4476178 Report
-Quoted By: >>4476211 >>4476222
-FUUUUUUUUUUUUUUUUUUUUUUUUUUUCK!
-View SameGoogleiqdbSauceNAO Astranagant3.jpg, 31KiB, 753x400
-Anonymous Thu 04 Feb 2010 07:55:40 No.4476185 Report
-Quoted By: >>4476211 >>4476222
-GIVE ME BACK MY JOOOOOB!
-View SameGoogleiqdbSauceNAO Astranagant4.jpg, 13KiB, 753x400
-Anonymous Thu 04 Feb 2010 07:55:40 No.4476188 Report
-Quoted By: >>4476211 >>4476222
-View SameGoogleiqdbSauceNAO 79655.jpg, 72KiB, 600x450
-Anonymous Thu 04 Feb 2010 07:56:40 No.4476189 Report
->>4476167
-Yeah, lucky for us Cobray's got shit to do somewhere else.
 
-Now imagine if Kusuha and Bullet come back from their little interdimensional adventure with Shin RyuKoOh.
-View SameGoogleiqdbSauceNAO Astranagant5.jpg, 15KiB, 753x400
-Anonymous Thu 04 Feb 2010 07:56:40 No.4476192 Report
-Quoted By: >>4476211 >>4476222
-View SameGoogleiqdbSauceNAO Astranagant6.jpg, 9KiB, 753x400
-Anonymous Thu 04 Feb 2010 07:57:40 No.4476194 Report
-Quoted By: >>4476211 >>4476222
-Sciencegar Sciencebolt Thu 04 Feb 2010 07:58:40 No.4476199 Report
-Quoted By: >>4476220 >>4476263
->>4476026
-
-Quiet you.
-
-Anyway:
-
+---
+```
 REAL CREW GET.
 FULL AMMO RELOAD GET. The shells for the Hippo guns fit into the Assault Lander, thankfully.
 NEW PILOT: ECHIDNA ISAKKI
@@ -644,159 +215,18 @@ The last of the EFA steath fighters miraculously managed to land on its belly af
 The Schutzwald that Echidna cored with her saviour shot can be fixed using a Gespenst cockpit block.
 
 Finally, the Hippo had a few other units in its hangar that its defenders decided not to use: A Guarlion Custom, and a Soldifar Assault Dragoon, an ELF-made unit that the Shadow Mirror used to create their Ashsaber series.
-View SameGoogleiqdbSauceNAO Astranagant7.jpg, 5KiB, 753x400
-Anonymous Thu 04 Feb 2010 07:58:40 No.4476200 Report
-Quoted By: >>4476211 >>4476222
-*Shuuup*
-View SameGoogleiqdbSauceNAO Reactionimwhat.jpg, 108KiB, 646x1305
-Anonymous Thu 04 Feb 2010 08:00:40 No.4476211 Report
->>4476200
->>4476194
->>4476192
->>4476188
->>4476185
->>4476178
->>4476172
-SEED D Cagalli !!U5xc0wG3iH0 Thu 04 Feb 2010 08:02:40 No.4476219 Report
-Take one of those stealth fighters.
-
-It could be good for recon.
-View SameGoogleiqdbSauceNAO 398485.png, 165KiB, 448x626
-Anonymous Thu 04 Feb 2010 08:03:40 No.4476220 Report
-Quoted By: >>4476224 >>4476233 >>4476251
->>4476199
-What are the differences between an MP Wildraubtier and the Wildraubtier we know from OGverse?
-
-Either way, definitely voting for the Ashcleef. And this may be tantamount to heresy, but unless we can seriously customize those Gespensts we might be better off taking the Guarlion for Kai. Assuming we can trust him.
-Samefag the Avenger Thu 04 Feb 2010 08:03:40 No.4476222 Report
->>4476200
->>4476194
->>4476192
->>4476188
->>4476185
->>4476178
->>4476172
-Okaaaaaay.
-
-Anyway., we should keep the Guarlion custom, a gespent and Echidna's Randgrith.
-
-The Guarlion for Arado and the Gespent for Kai or Irm. Whatever works.
-Anonymous Thu 04 Feb 2010 08:03:40 No.4476224 Report
->>4476220
-Oh wait, Soldifar, misread. Still, take it.
-Sanger Zombolt! Thu 04 Feb 2010 08:05:40 No.4476233 Report
->>4476220
-Let's take the Rathgrith, the Guarlion Custom and the Ashcleef.
-
-Those are the best mechs we can come up with now. The rest need rapairs and in the end they will just end up being average.
-Sciencegar Sciencebolt Thu 04 Feb 2010 08:08:40 No.4476251 Report
-Quoted By: >>4476281
->>4476220
 
 The MP Wildraubtier won't suddenly crumple like a paper cup in a vise if you try to transform at high speed, for one. The performance and firepower are the same as the OG version, they just made more, and developed the tech to make them more reliable.
 
 Same with the multiple Schutzwalds running around: I'm going on the theory that since the SMverse EFA really developed the Gespenst, then other PT models would also see a bigger production run, since the do-everything Huckebiens never saw play.
 
-
 And its the Soldifar, not the Ashcleef.
-Shas'El Thu 04 Feb 2010 08:10:40 No.4476263 Report
->>4476199
-Let's keep the Dragoon, the Rathgrith and the Guarlion Custom.
-
-The rest are broken grunts.
-Jerid Messa !!AbDOcayw4O/ Thu 04 Feb 2010 08:12:40 No.4476273 Report
-The Rathgrith, Guarlion Custom, and Solidifar. It's about time for Latooni to start piloting again instead of doing logistics support.
-View SameGoogleiqdbSauceNAO Soldifar.jpg, 179KiB, 850x1156
-Shas'El Thu 04 Feb 2010 08:12:40 No.4476274 Report
-Quoted By: >>4476291
-Look at this badass son of a bitch. And if we are lucky, we may get to upgrade it into the Ashcleef. Definetly keep this bastard.
-Anonymous Thu 04 Feb 2010 08:14:40 No.4476281 Report
->>4476251
-Hm, Wildraubtier is sounding pretty nice. Not sure if I prefer it or the Guarlion now. They both fill about the same niche, the Guarlion just is slightly more melee with the Sonic Breaker and the Wildraubtier is more ranged.
-Sciencegar Sciencebolt Thu 04 Feb 2010 08:16:40 No.4476291 Report
->>4476274
-
-Woah, that's a really epic picture. Thanks bro.
-Sciencegar Sciencebolt Thu 04 Feb 2010 08:19:40 No.4476298 Report
-Quoted By: >>4476321 >>4476323
-I'll just point out, you do have the option of dumping the two Gespensts you're currently carrying to fit in better units. Ibis may object if you toss Sleighs Gespenst out, but you may be able to placate her if you give her a heavy artillery mech.
-Anonymous Thu 04 Feb 2010 08:22:40 No.4476321 Report
-Quoted By: >>4476338
->>4476298
-Let's dump the bluespent and replace it with the Wildraubtier then.
-
-The schutzwald sounds kind of tasty right now with our lack of artillery units though.
-Jerid Messa !!AbDOcayw4O/ Thu 04 Feb 2010 08:23:40 No.4476323 Report
-Quoted By: >>4476374 >>4476388
->>4476298
-
-Can we kit-bash her Gespenst with another so she has her own MK II Kai? And if anything should be dumped I say its the Assault Lander. The thing takes up half the hangar and we generally only used it for emergencies.
-s Thu 04 Feb 2010 08:26:40 No.4476338 Report
-Quoted By: >>4476374
->>4476321
-I know. Let's dump the redspent, take the Schitzwald and paint it red. Tell Ibis that Sleigh won't mind changing his mech into a Schutzwald, and as long as it is red, she won't get mad.
-
-Ibis is crazy so she should eat it up.
-Gamlin !Xb1uRYUg66 Thu 04 Feb 2010 08:28:40 No.4476349 Report
-Dump the Bluespenst, keep redspenst. grab some extra arms and maybe legs just in case. If any useable rauptier parts grab em.
-
-Get the extra rauptier for sure.
-Sanger Zombolt! Thu 04 Feb 2010 08:32:40 No.4476374 Report
->>4476338
-Forgot my name.
->>4476323
-Now that you mention it, yeah. The Lander is just not worth the 3 spaces it takes. With it out of the way, we could add the Schutzwald, the Wildraubtier and another Gespent without dumping our more active mechs and possibly enraging Ibis.
-
-We will have to deal with Irm and his father though. I don't think they may want to part ways with it so easily.
-Anonymous Thu 04 Feb 2010 08:33:40 No.4476383 Report
-If we're dumping Bluespenst we need to grab the tonfas off it first. Can we toss those on the Wildraubtier or Guarlion?
-Anonymous Thu 04 Feb 2010 08:34:40 No.4476388 Report
-Quoted By: >>4476400 >>4476447
->>4476323
-We can't just dump the tank which has greatly helped us with it's support fire like it was trash. That said, it does take up a lot of space. Can't we place it inside the Hippo?
-Jerid Messa !!AbDOcayw4O/ Thu 04 Feb 2010 08:36:40 No.4476400 Report
-Quoted By: >>4476405 >>4476408
->>4476388
-
-I don't think it works anymore. And while it got us super far, it just isn't versatile enough with the other forms. It's just a massive tank that gets owned when some smaller and more agile wants to pick on it.
-View SameGoogleiqdbSauceNAO 1262335444093.jpg, 265KiB, 600x641
-Anonymous Thu 04 Feb 2010 08:38:40 No.4476405 Report
-Quoted By: >>4476423
->>4476400
-On the other hand, the one thing that seriously owned it was the R-1. Which is...the R-1. We're all kinda fucked going up against the SRX team.
-Sanger Zombolt! Thu 04 Feb 2010 08:39:40 No.4476408 Report
-Quoted By: >>4476418 >>4476440
->>4476400
-Not to mention we already got a replacement for it: the Hippo.
-
-It is bigger, better armored, has more space for ammo and uses the same weapons.
-
-The Lander is obsolete.
-Gamlin !Xb1uRYUg66 Thu 04 Feb 2010 08:39:40 No.4476414 Report
-Quoted By: >>4476490
-what kind of engine in the assault lander again?
-Sanger Zombolt! Thu 04 Feb 2010 08:40:40 No.4476418 Report
->>4476408
-Or at least, it uses the same shells. Doesn't matter. We already got our backs covered with the Hippo.
-Jerid Messa !!AbDOcayw4O/ Thu 04 Feb 2010 08:40:40 No.4476423 Report
->>4476405
-
-At least the Schutzwald can use a beam saber and defend itself in a pinch? Not that'll do any better against the R-1 but when shit hits the fan, I think the Assault Lander will become a death trap.
-Anonymous Thu 04 Feb 2010 08:44:40 No.4476440 Report
->>4476408
-Irm seems to be in a commanding position who stays far away from the battlefield and he likes well armored vehicles. The Hippo fits him well, now that I think about it.
-Sciencegar Sciencebolt Thu 04 Feb 2010 08:45:40 No.4476447 Report
->>4476388
 
 Dammit, in all the excitment, I kinda forgot to mention what shape the Hippo was in.
 
 It's not UNsalvagable, but it took hits to the Tesla hovercraft system and its main guns on the top of it. It would need several hours of maintenance to get it operational again, but Echidna told them it wasn't worth it, to just get everything ready to transfer to the Trilobite.
 
 As to the Assault Lander: The main reason she hasn't been doing so well is that she hasn't been in battles where her main strengths lie. Its an Assault unit, as the name says, meant to bombard, missile spam, and drill its way through enemy forces. So far, its been in two fights: One against hyper-dodgy real robots, and another a rescue mission to support faster units trying to get to trapped allies. Latooni got 3 or 4 offscreen kills in that fight, but she was only using the main cannons. Irm would probably have charged straight into the town and drilled his way through all the building to take the enemy pointblank. If Irm wasn't the only member of the team with a fully working conscience, anyway.
-View SameGoogleiqdbSauceNAO AssaultLanderShitty.png, 39KiB, 709x557
-Sciencegar Sciencebolt Thu 04 Feb 2010 08:53:40 No.4476490 Report
-Quoted By: >>4476511 >>4476519 >>4476523 >>4477997
->>4476414
 
 The Assault Lander is a test-type, limited run unit based on the Grungusts Gustlander mode. It was an attempt to get some mileage out of the Grungust line after the EFA turned down the Grungust Mk2. It uses a light-wieght version of the original Cracker Engine, and mounts heavy cannons, an expanded missile magazine with 4 launchers, and a Titanic Drill with Spiral Attack functionality.
 
@@ -805,79 +235,19 @@ It's meant for fortress assault at all ranges: Suppress the fortress at long ran
 It's not Getter 2 but it can travel underground at a fairly impressive rate.
 
 Ammo is a problem however. It uses battleship-grade shells and missiles in quite substantial amounts.
-Sanger Zombolt! Thu 04 Feb 2010 08:57:40 No.4476511 Report
->>4476490
-...I dunno.
 
-He seems pretty good at what it does, and he might come in-handy in future battles but still.....three spaces and it is very situational....
-
-
->Look for other ships in the city.
-Jerid Messa !!AbDOcayw4O/ Thu 04 Feb 2010 08:58:40 No.4476519 Report
->>4476490
-
-Ammo guzzler? I say drop it. If we truly want it back really badly, we shall leave it in the Hippo in a relatively hidden spot and retrieve it after coming back from Africa. Hell we might be able to turn it into an actual Grungust.
-Anonymous Thu 04 Feb 2010 08:59:40 No.4476523 Report
-Quoted By: >>4476553
->>4476490
-It would be worth it if we could somehow combine it with an Assault Skier and create the Grungust type 3.
-Anonymous Thu 04 Feb 2010 09:04:40 No.4476541 Report
-Quoted By: >>4476552 >>4476553
-While the Assault Lander sounds good, I'm not sure if we'll be storming that many fortresses. We don't have the power to take the EFA on yet and the Newcomers don't have any fortresses to storm. (not to mention they'd kick our asses) It's situational for situations we're not likely to be in.
-
-On the other hand, with Sciencegar trying to sell it I wonder if there's not going to be something in the future for it.
-Sciencegar Sciencebolt Thu 04 Feb 2010 09:05:40 No.4476544 Report
-Quoted By: >>4476572
->Look for other ships in the city
+Look for other ships in the city
 
 This would have been a great idea a few hours, when this was a bustling port town. Indeed, this is exactly what the Hippo crew were doing. Then the EFA Wet Navy came along and started shelling the Hippo and the port around it. When they realised they were losing, the last EFA ship torpedoed all the heavy transports out of spite. Or at least, thats the story the Hippo crew are giving you.
 
 >we shall leave it in the Hippo in a relatively hidden spot
 
 The only spot that even remotely hidden that the crippled Hippo can get to on its own steam is the Ocean. You can load with unwanted units, seal it up, and set it to crawl out to see to a depth the EFA won't find it. It's a risk and it'll be a bitch to retrieve afterwards, but its your best option if you want to store shit for later.
-Sciencegar Sciencebolt Thu 04 Feb 2010 09:07:40 No.4476552 Report
-Quoted By: >>4476578
->>4476541
-
-It's not the most awesome pseudomech ever, nor does it have the Akashic Record and a Time Flow Engine in the glovebox. It's just that I came up with it myself, so I'm a little protective of it.
-Sanger Zombolt! Thu 04 Feb 2010 09:07:40 No.4476553 Report
->>4476541
-See:
->>4476523
-There's most definetly going to be an upgrade for it. Or at least one huge fortress to storm.
-
-So I say we take a sea route to Brazil in a bigger ship, or we get another ship who is almost as fast as our Trillobite.
-Jerid Messa !!AbDOcayw4O/ Thu 04 Feb 2010 09:11:40 No.4476572 Report
->>4476544
-
-Then we shall do so. It's good to have somewhat of a backup plan instead of just abandoning stuff. And hopefully it'll prevent the EFA from following a trail of broken mechs.
-Sanger Zombolt! Thu 04 Feb 2010 09:14:40 No.4476578 Report
-Quoted By: >>4476586
->>4476552
-Well then, I am holding to your word. Don't make us storm a fortress in the next battle, or else I'll cleave you.
-
-Anyway, let's hide it the way you said and move on with this.
-
-DGG-03
-DGG-04
-Redspent
-Bluespent
-Yellowspent (get new gespie and order a bot to paint it yellow)
-Wildraubtier (repair it)
-Soldifar
-Schutzwald
-Guarlion Custom
-Rathgrith
-Sanger Zombolt! Thu 04 Feb 2010 09:15:40 No.4476586 Report
-Quoted By: >>4476599
->>4476578
-Also, can we customize our mechs? Or at least upgrade them? How many funds an parts do we have?
-Sciencegar Sciencebolt Thu 04 Feb 2010 09:21:40 No.4476599 Report
->>4476586
 
 Funds and parts are mainly a game abstraction. I'm being flexible here but your main problem up until now has been time and manpower. You were overworking John, Rio and Ryoto just to keep your mechs working. Now that you have some actual people to use and a little more free time, you can start making suggestions to customise your units. But major changes will need the right engineer behind them.
-Sciencegar Sciencebolt Thu 04 Feb 2010 09:46:40 No.4476663 Report
-Quoted By: >>4476714 >>4476740
+```
+---
+
 The Hangar door seals itself shut, locking away the Assault Lander and a large pile of broken Gespensts. As the automatic program kicks in, the wounded Hippo slowly turns, and heads out to sea, sinking into the depths.
 
 Current Mech Roster:
