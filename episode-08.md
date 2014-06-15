@@ -4,7 +4,7 @@
 
 ###SRWQ Mission 8: Now with actual plot development. Maybe.
 
-You are the Shadow Mirror version of Katina Tarask. You are equally as filled with rage as your counterpart, but concentrated into smaller timeframes, allowing you to trick people with Moe periods before your true form is revealed. The heroes of the OGverse have travelled back in time and crossed dimensions in order to prevent Dark Brain destroying their universe from the outside, this has put a major downer on your plans for the next few weeks, but has also allowed you another chance to make Arado your pet slave (the first one doesn't breath anymore).
+You are the Shadow Mirror version of Katina Tarask. You are equally as filled with rage as your counterpart, but concentrated into smaller timeframes, allowing you to trick people with Moe periods before your true form is revealed. The heroes of the OGverse have traveled back in time and crossed dimensions in order to prevent Dark Brain destroying their universe from the outside, this has put a major downer on your plans for the next few weeks, but has also allowed you another chance to make Arado your pet slave (the first one doesn't breath anymore).
 
 ####Dramatis Personae
 
@@ -16,16 +16,16 @@ You are the Shadow Mirror version of Katina Tarask. You are equally as filled wi
 + Johnathan Kazahara: Last survivor of Tesla-Liecht Institute, mostly silent so far.
 + Rio Mei Long: Hard-working multitasking engineer and pilot.
 + Ryoto Hikawa: Engineer, Shadow Mirror loyalist and mostly useless, at least to Katina.
-+ Kai Kitamura: Former EFA ace who dissappeared, and then showed up as you fled TLI. Allegiance unclear, but seems to be on your side for now. Is pretty much leader at this point. Has a sexy, sexy eyepatch.
++ Kai Kitamura: Former EFA ace who disappearedand then showed up as you fled TLI. Allegiance unclear, but seems to be on your side for now. Is pretty much leader at this point. Has a sexy, sexy eyepatch.
 + Dumi: Dynamic Unlimited Military Intelligence, support AI for the DGG-04. Has been incredibly helpful to you so far, maybe too helpful...
 + Arado Balanga: Looks like your best friend who you accidentally rage-killed when he went out with another woman. Claims to be one of the warriors from another dimension thats causing the crisis, but you haven't ruled out the Ghost Returned From Hell To Punish You theory.
 
 ####Others of Note:
 
-+ Vindel Mauser: Leader of Shadow Mirrors and pilot of the interdimensional super robot Zweizergain. Last seen dissappearing in a flash with Lemon Browning and a tiger-Grungust from the other world. Apparently, these newcomers are looking for him.
-+ Axel Almer: Head of Shadow Mirror military forces, and foe of EFA ace Beowulf. You were seperated from him while fleeing from TLI. You were meant to meet up with him in California, but he hasn't been heard from since.
++ Vindel Mauser: Leader of Shadow Mirrors and pilot of the interdimensional super robot Zweizergain. Last seen disappearing in a flash with Lemon Browning and a tiger-Grungust from the other world. Apparently, these newcomers are looking for him.
++ Axel Almer: Head of Shadow Mirror military forces, and foe of EFA ace Beowulf. You were separated from him while fleeing from TLI. You were meant to meet up with him in California, but he hasn't been heard from since.
 + Ryuune Zoldark: One of the few remaining leaders in the near-defunct Neo Divine Crusaders. Chirpy, loves your dress sense, but you sense a cold political mind behind it all. Granted you asylum despite the risk, but you doubt it'll be for free.
-+ Ratsel Fienschmecker and Sanger Sombold: Two of the newcomers, negotiating with Ryuune for an alliance of some sort.
++ Ratsel Fienschmecker and Sanger Zombolt: Two of the newcomers, negotiating with Ryuune for an alliance of some sort.
 
 ####Current Mech Roster:
 
@@ -52,9 +52,9 @@ Latooni nods. "We have to figure out what part we will play in all of this..."
 
 Kai lays out the DCs side of things: "Ryuune will grant us fully asylum here at the base, but only on the condition we fully join the DC and hand over all of our mechs, so that if the EFA come calling for us she can stick to her Californian Asylum strategy. Obviously, thats the safe and boring option, unless someone finally decides to wipe out this shithole of a base."
 
-"Otherwise, we're essentially renting ourselves out as mercaneries for the DC, and doing some of Ryuunes dirty work. She gave us a few options on that regard: We can go back with the two newcomers and support their operation to break out of the EFA blockade around TLI-"
+"Otherwise, we're essentially renting ourselves out as mercenaries for the DC, and doing some of Ryuune's dirty work. She gave us a few options on that regard: We can go back with the two newcomers and support their operation to break out of the EFA blockade around TLI-"
 
-Irm nearly shits a brick. "No way!! We'll be recognised as the ones who captured Arado! We might as well give ourselves up to the EFA!"
+Irm nearly shits a brick. "No way!! We'll be recognized as the ones who captured Arado! We might as well give ourselves up to the EFA!"
 
 Kai sighs. "I'm just giving all the options Irm. Her other suggestion was to start the big search, looking for these targets the newcomers want found, she had a list of a few places to try."
 
@@ -64,7 +64,7 @@ Latooni again looks up from her datapad. "Then there is the option to go it alon
 
 Kai chips in first. "If we can convince Ryuune to hand over Arado now, we should be able to keep buddy-buddy with the new guys for now, and join up with any surviving Shadow Mirrors stuck in the EFA cordon. I think sticking close to these new guys is our best bet, if we want to be moving and shaking in this new war."
 
-Irm rubs his chin completatively. "Well, that might work...But getting into fighting as tough as what they're going to be doing? I don't like the sound of that. I like the idea of working with Ryuune more, working this mercanery angle."
+Irm rubs his chin competitively. "Well, that might work...But getting into fighting as tough as what they're going to be doing? I don't like the sound of that. I like the idea of working with Ryuune more, working this mercenary angle."
 
 Russel pipes up. "I don't like the idea of jumping the bonfire either. I say we join this search of hers. Little bit of intelligence gathering with the odd skirmish with the EFA, sounds like the good old days again."
 
@@ -78,7 +78,7 @@ Ryoto draws himself up, like he were actually macho or something. "If we really 
 
 A metallic voice comes over the tannoy. *Observing the situation, I've come to the conclusion that our best interests are served by being independent agents. The DC are desperate for military strength and political ammunition, hence this alliance. We will be destroyed for Ms Zoldarks ambitions if we let her manipulate us. And the newcomers have little reason to trust us even if we return their pilot. Independence allows us mastery of our own fate.*
 
-Latooni puts her datapad away. "The optimal strategy is to ally with the DC, and lend support to the winning side as needed to manipulate world events as desired. However, that merely maximises survival chances. If we take the risks as free agents, our position and knowledge of events would make us much more potent than our military power alone would suggest. Either option allows for... interesting tactical options."
+Latooni puts her datapad away. "The optimal strategy is to ally with the DC, and lend support to the winning side as needed to manipulate world events as desired. However, that merely maximizes survival chances. If we take the risks as free agents, our position and knowledge of events would make us much more potent than our military power alone would suggest. Either option allows for... interesting tactical options."
 
 All eyes turn to you...
 
@@ -96,13 +96,13 @@ Russel pipes up. "Well, we can still try the ELF in Europe. They might be beat u
 
 "Getting to Europe requires flying through the US, which is not a good option if we want to avoid fighting." Points out Kai.
 
-Again, Latooni chimes in, with a queit but attention-drawing voice. "But it is possible with an alternate route. If you recall, there was a Shadow Mirror unit headed south, intent on reaching our supply base in Brazil. We could meet up with them and cross to Africa, and from there meet up with the ELF or Van Trans Neo-DC forces."
+Again, Latooni chimes in, with a quiet but attention-drawing voice. "But it is possible with an alternate route. If you recall, there was a Shadow Mirror unit headed south, intent on reaching our supply base in Brazil. We could meet up with them and cross to Africa, and from there meet up with the ELF or Van Trans Neo-DC forces."
 
 Johnathan frowns. "Well, its either that, or we start asking what few EOTI goons who haven't been killed or taken by the EFA if they have any prototypes lying around..."
 
 "Well, I guess, we stay with the DC for now, but mostly independent. Then, once we recruit a few more people, we can re-evaluate the situation."
 
-With the others fairly evenly divided, Katinas vote is the tie-breaker. You, Kai and Irm head back over to finalise the details with Ryuune.
+With the others fairly evenly divided, Katinas vote is the tie-breaker. You, Kai and Irm head back over to finalize the details with Ryuune.
 
 As you enter the house, you see the two newcomer men, seemingly in discussion with a blonde woman in a Troye Unit uniform. You make your excuses to the others, and head over to get the measure of the newcomers.
 
@@ -150,7 +150,7 @@ There is a dead silence at this.
 
 "....It is to me. ...Wait a minute... how do you know my name?"
 
-Ratsel and Sanger look at each other strangely for a second, before Ratsel continues on. "We're in somewhat of a privledged position when it comes to skilled pilots. We know faces and names of almost all of the best mech pilots, but not their assignments. Hence the curious questions."
+Ratsel and Sanger look at each other strangely for a second, before Ratsel continues on. "We're in somewhat of a privileged position when it comes to skilled pilots. We know faces and names of almost all of the best mech pilots, but not their assignments. Hence the curious questions."
 
 "Uh-huh. It's not that you're spies, at all."
 
@@ -166,7 +166,7 @@ Ratsel shrugs. "I'm a spy, a mech pilot, a horse trainer and a gourmet cook. We'
 
 "W-w-well...Well you've been delaying my important meeting with her!! I was just about to be told everything and then you walk past with your hair and your rugged good look and then I couldn't. So if your evil spy mission was to delay me, it's been accomplished."
 
-You head towards the door of Ryuunes office, still shouting. "So why don't you just piss off back to your dimension and ride each other like horses for a while!?!?"
+You head towards the door of Ryuune's office, still shouting. "So why don't you just piss off back to your dimension and ride each other like horses for a while!?!?"
 
 The door slams, leaving the two alone in the corridor.
 
@@ -192,7 +192,7 @@ Her finger travels around to the Pacific. "The next option would be to island-ho
 
 "Exactly. It's been bombed flat, but underneath the island, there are still some chambers intact. Our contacts imply there is some activity still going on there. It's not a definite lead, but its somewhere we'd like checked out anyway."
 
-"And finally, there's an odd report we recieved within the last hour or so. Someone claiming to be the legendary scientist Helios Olympus made himself known to our spy network, claiming he knew something about the newcomers and had 'men and material' available for our use. The contact point he gave us was in northern Canada, a bit out of the way but a good stepping-off point for going to Europe, if that's your destination. And assuming he's legitimate."
+"And finally, there's an odd report we received within the last hour or so. Someone claiming to be the legendary scientist Helios Olympus made himself known to our spy network, claiming he knew something about the newcomers and had 'men and material' available for our use. The contact point he gave us was in northern Canada, a bit out of the way but a good stepping-off point for going to Europe, if that's your destination. And assuming he's legitimate."
 
 Kai turns to you. "Well Katina, you're our random outburst generator. Where do you say we go?"
 
@@ -206,7 +206,7 @@ Ratsel takes his hand of Arado's mouth as the boy finally calms down. "Oh thank 
 
 "What? Well, um, how hard can a breakout be? You're the Mystery Gourmet, don't you have your ninja cooking skills to flambe us a way out of here or-"
 
-"I can't get you out of here Arado. Not because of the frankly laughable security, but because it would jeopardise the mission."
+"I can't get you out of here Arado. Not because of the frankly laughable security, but because it would jeopardize the mission."
 
 "HUH?!!??!"
 
@@ -232,7 +232,7 @@ Arado looks on verge of tears. "So you're just going to leave me here? With...wi
 
 "Very well." Ryuune stands up. "We'll get your equipment all sorted ASAP, so we can have you moving before the EFA finally come looking for you.
 
-The next few hours are spent under lamplight, as the sun goes down and you work through the night to get your preperations finished. You don't even get to see the two newcomer DGGs leave.
+The next few hours are spent under lamplight, as the sun goes down and you work through the night to get your preparations finished. You don't even get to see the two newcomer DGGs leave.
 
 The Trilobite is stripped down and restocked, the hangar cleared of large amounts of padding, scaffolding, and unneeded equipment that had been thrown in with the DGGs. The mechs are packed back in a better configuration, the Raioh sitting atop the transformed DGG-04 to better conserve space.
 
@@ -254,6 +254,6 @@ Just before midnight, you have everything finished and are ready to leave, when 
 
 Arado turns ghostly white at your grin.
 
-"Oh, Lune, can ya lend us a couple of Lions? We don't know who else we're going to pick up who'll need a killing machine. Oh, and any chance of a Grungust for Kai?"
+"Oh, Ryuune, can ya lend us a couple of Lions? We don't know who else we're going to pick up who'll need a killing machine. Oh, and any chance of a Grungust for Kai?"
  
 "Heh, I wish it were that simple. Sorry, but DC California is Very Definitely Not A Military Base, TM. We have the Troye Unit, and a few other surprises, and we can keep you in fuel and the like, but we can't spare any mechs. But you're forgetting, you're going to be meeting up with Unit W in a while, aren't you? They should have plenty of units to spare... assuming you get to them before the EFA do."
