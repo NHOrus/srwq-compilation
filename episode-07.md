@@ -4,11 +4,11 @@
 
 ###SRWQ Mission 7: Maybe you'll finally get to relax for a bit. But I doubt it.
 
-The Setup: You are the Shadow Mirror version of Katina Tarask, trained by the School to wear pretty dresses and fly robots. The heroes of the OGverse has come to the Shadow Mirror universe to stop the Lygeus/Acguies system from giving Dark Brain another chance to destroy their world. This is a conflict of interest.
+**_The Setup:_** You are the Shadow Mirror version of Katina Tarask, trained by the School to wear pretty dresses and fly robots. The heroes of the OGverse has come to the Shadow Mirror universe to stop the Lygeus/Acguies system from giving Dark Brain another chance to destroy their world. This is a conflict of interest.
 
-So Far: You managed to escape from the Tesla-Liecht Institute, but were pursued by some of the OG guys. With the help of a very helpful AI called Dumi and the 3rd and 4th Dynamic General Guardians, you managed to fight them to a standstill and capture Arado Balanga. However, the Shadow Mirror Arado was an old crush and the victim of one of the more contraversial of your rage-killings, so his presence confused and angered you. A hilarious chain of events caused the destruction of one of your teams ships, the loss of several (admittedly damaged) mechs, and Dumi having to fasttalk like crazy to convince the team your crazy behaviour was due to your brain attempting to undo the Schools brainwashing. Except you're not sure if he was actually lying about that part.
+**_So Far:_** You managed to escape from the Tesla-Liecht Institute, but were pursued by some of the OG guys. With the help of a very helpful AI called Dumi and the 3rd and 4th Dynamic General Guardians, you managed to fight them to a standstill and capture Arado Balanga. However, the Shadow Mirror Arado was an old crush and the victim of one of the more contraversial of your rage-killings, so his presence confused and angered you. A hilarious chain of events caused the destruction of one of your teams ships, the loss of several (admittedly damaged) mechs, and Dumi having to fasttalk like crazy to convince the team your crazy behaviour was due to your brain attempting to undo the Schools brainwashing. Except you're not sure if he was actually lying about that part.
 
-Current complement for Reference.
+####Current complement for Reference.
 
 + You.
 + Irmgard Kazahara, supposedly team leader. Hasn't done any leading since you joined.
@@ -22,7 +22,7 @@ Current complement for Reference.
 + Kai Kitamura: When last you heard of Magnum Kitamura, he had left his job training EFA recruits to help spearhead the assault on the Inspectors final fortress. Three months later he appears in a Shadow Mirror battleship sporting an eyepatch and asking politely if he can help. No-one is sure what to make of him, but he's so experienced and smexy that he's practically team leader at this point, even though you can't tell if he's even on your side.
 + Dumi-chan: The Dynamic Unlimited Military Intelligence, an AI meant to run the DGG-04 and support the Raioh. Has bent over backwards to help you out of many sticky situations, claiming that as the DGG-03's registered pilot, keeping you alive is its top priority.
 
-Your Mecha:
+####Your Mecha:
 
 + Blue Gespenst: Currently assigned to Russel. Its arms have finally been reattached after the encounter with Ryusei.
 + Red Gespenst: Currently assigned to Ibis, whose friend Sleigh used it before she apparently abandoned the Shadow Mirrors for some unknown purpose.
@@ -33,10 +33,10 @@ Your Mecha:
 
 ---
 
-Kai Kitamura removes the restraints from the isolation bed and stands back as you get up. "Ok miss, we're finally landed at DC California. You get to walk about, but I hope you don't mind if we keep you from going off alone, or being around sharp objects."
+Kai Kitamura removes the restraints from the isolation bed and stands back as you get up.
+"Ok miss, we're finally landed at DC California. You get to walk about, but I hope you don't mind if we keep you from going off alone, or being around sharp objects."
 
 You rub at your eyes, trying to feign the effects of the nonexistant sedation that Dumi told the other he'd given you.
-
 "Fine, whatever. We need to sit down and figure out what we're doing."
 
 "Definitely. But its going to be a group desicion, alright?"

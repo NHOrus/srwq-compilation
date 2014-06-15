@@ -33,13 +33,13 @@ Despite heavy losses, the EFA is still coming toward you, intent on ending the S
 But that's nothing compared to the bewildering array of machines emerging from the portal. The main one is a massive black construction that looks like someone replaced the bridge of a battleship with the torso of a stylized Gespenst. Surrounding it are a bewildering array of mechs of types, many of which you've never seen before. This is worrying because your School training should let you recognize almost any mech on the planet.
 
 There are at least 15 of the mysterious units:
-2 Grungust-types, including one that looks like it's half-tiger.
-A red version of Beowulf Gespenst MkIII, with a white Gespenst carrying a massive gun.
-Two more vaguely Gespenst-types with similar armaments, flying on Tesla wings.
-Something massive that looks like one of the Gigan series.
-A giant samurai-looking mech, easily the size of Grungust, and another black and red one wielding beam pistols and rolling along on some like of skates.
-3 Gespensts that have been noticably modified, two with heavy beam cannons, one with two sets of plasma stakes.
-A group of three units that remind you quite a lot of the R-blade you're piloting, one white and blue wielding revolvers, one massively armored with twin 5-barrel shoulder cannons, and one red one attached to some kind of flight unit.
++ 2 Grungust-types, including one that looks like it's half-tiger.
++ A red version of Beowulf Gespenst MkIII, with a white Gespenst carrying a massive gun.
++ Two more vaguely Gespenst-types with similar armaments, flying on Tesla wings.
++ Something massive that looks like one of the Gigan series.
++ A giant samurai-looking mech, easily the size of Grungust, and another black and red one wielding beam pistols and rolling along on some like of skates.
++ 3 Gespensts that have been noticably modified, two with heavy beam cannons, one with two sets of plasma stakes.
++ A group of three units that remind you quite a lot of the R-blade you're piloting, one white and blue wielding revolvers, one massively armored with twin 5-barrel shoulder cannons, and one red one attached to some kind of flight unit.
 
 And behind them, a stream of yellow-brown mechs of a type you know you haven't seen, wielding photon rifles, coming out of the portal in waves.
 

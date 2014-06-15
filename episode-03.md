@@ -14,17 +14,17 @@ Or at least that's how you see it.
 
 ####Your allies:
 
-Irmgard Kazahara: Womaning super robot pilot and son of one of Shadow Mirrors main scientists. Hasn't realized he's not in charge, you are. Piloting a modified Gust Lander.
++ Irmgard Kazahara: Womaning super robot pilot and son of one of Shadow Mirrors main scientists. Hasn't realized he's not in charge, you are. Piloting a modified Gust Lander.
 
-Latooni Subota: Cold, dispassionate strategist and sniper. Graduate of the School, who kicked you out for being too crazy. Thinks this makes her better than you. You intent to teach her who's boss later. In bed. Piloting a Randgrith.
++ Latooni Subota: Cold, dispassionate strategist and sniper. Graduate of the School, who kicked you out for being too crazy. Thinks this makes her better than you. You intent to teach her who's boss later. In bed. Piloting a Randgrith.
 
-Russel Bagman: A nice Irish man who recruited you into the Shadow Mirror. Smart enough to know to follow your orders. In a Gespenst.
++ Russel Bagman: A nice Irish man who recruited you into the Shadow Mirror. Smart enough to know to follow your orders. In a Gespenst.
 
-I. Douglas: Some redheaded chick who likes guns, who Russel saved from the EFA. You haven't actually asked her name yet, just read her nametag: You've been too worked up about Subota to notice her. In a red Gespenst that seems to have sentimental value to her.
++ I. Douglas: Some redheaded chick who likes guns, who Russel saved from the EFA. You haven't actually asked her name yet, just read her nametag: You've been too worked up about Subota to notice her. In a red Gespenst that seems to have sentimental value to her.
 
-Johnathan Kazahara: Scientist dude. Too old for your tastes. Flying the Tausendfuessler.
++ Johnathan Kazahara: Scientist dude. Too old for your tastes. Flying the Tausendfuessler.
 
-The Transport: Apparently full of more minions and mechs. Landed just a short distance from your Tausendfeussler.
++ The Transport: Apparently full of more minions and mechs. Landed just a short distance from your Tausendfeussler.
 
 ####Your Enemies:
 
@@ -36,7 +36,7 @@ The Devil Ghost of Arado: A part of your mind registers that this is probably ju
 
 ---
 
-#####SUDDENLY ACTUAL PLOT
+###SUDDENLY ACTUAL PLOT
 
 "Ack!! Get off me!!! Stop, Katina!"
 

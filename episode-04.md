@@ -14,27 +14,27 @@ Things are becoming less and less canon and the plot is thickening faster than /
 
 ####Your lineup:
 
-You in the freshly acquired Dynamic General Guardian 03 Raioh. You had an R-Blade but it couldn't stand up to the abuse you were putting on it.
++ You in the freshly acquired Dynamic General Guardian 03 Raioh. You had an R-Blade but it couldn't stand up to the abuse you were putting on it.
 
-Irm Kazahara in the test-type non-transforming version of the Gust Lander. Theoretically the squad leader, but you seem to have been deciding where you all go, mainly because he cannot resist your moe-face.
++ Irm Kazahara in the test-type non-transforming version of the Gust Lander. Theoretically the squad leader, but you seem to have been deciding where you all go, mainly because he cannot resist your moe-face.
 
-Latooni Subota: Queen Bitch of the School, Subota has joined the Shadow Mirror for reasons unknown. She's rather critical of your general lack of self-preservation skill and you're rather critical of the fact you haven't have sex with her yet. Currently trying to restart a heavily damaged Randgrith.
++ Latooni Subota: Queen Bitch of the School, Subota has joined the Shadow Mirror for reasons unknown. She's rather critical of your general lack of self-preservation skill and you're rather critical of the fact you haven't have sex with her yet. Currently trying to restart a heavily damaged Randgrith.
 
-Someone redhead called Douglas whose first name you keep forgetting to ask for. Gun-nut in the extreme. Fighting the R-1 in a red Gespenst she claims belongs to a friend of hers.
++ Someone redhead called Douglas whose first name you keep forgetting to ask for. Gun-nut in the extreme. Fighting the R-1 in a red Gespenst she claims belongs to a friend of hers.
 
-Russel Bagman: An irishman, although he's usually sober so that might be an elaborate cover story. Recruiter for the Shadow Mirror and tough brawler of a pilot. His Gespenst has been literally disarmed by the R-1, and the Wildfalken has a gun aimed at him.
++ Russel Bagman: An irishman, although he's usually sober so that might be an elaborate cover story. Recruiter for the Shadow Mirror and tough brawler of a pilot. His Gespenst has been literally disarmed by the R-1, and the Wildfalken has a gun aimed at him.
 
-Doomy-Chan, the Dynamic Ultimate Something Something, an AI which is operated the DGG unit 4. Its a wierd super robot with wheels on its shoulders, apparently meant to support your new mech.
++ Doomy-Chan, the Dynamic Ultimate Something Something, an AI which is operated the DGG unit 4. Its a wierd super robot with wheels on its shoulders, apparently meant to support your new mech.
 
 ####Your current enemies:
 
-The Loud Dramatic Guy in the Transforming Mech: Apparently wants this all to end peacefully with you talking to them and making sense of all this. His mech is eerily reminiscent of the R-Blade, is white and blue and armed with revolvers. You're not sure how you tear the arms off Gespensts with revolvers, but you're eager to learn.
++ The Loud Dramatic Guy in the Transforming Mech: Apparently wants this all to end peacefully with you talking to them and making sense of all this. His mech is eerily reminiscent of the R-Blade, is white and blue and armed with revolvers. You're not sure how you tear the arms off Gespensts with revolvers, but you're eager to learn.
 
-Arado Balanga in some wierd Melee PT: You killed the Shadow Mirror Arado 2 months ago in a fit of madness when he revealed that no, he wasn't saving himself for future marraige/harem duty for you. This one from another dimension is a lot less willing to suck up to you, and is a deadly melee fighter in his custom mech. He's already trashed 2 of your units and humiliated you. You're torn on whether to kill him or make him your special slave.
++ Arado Balanga in some wierd Melee PT: You killed the Shadow Mirror Arado 2 months ago in a fit of madness when he revealed that no, he wasn't saving himself for future marraige/harem duty for you. This one from another dimension is a lot less willing to suck up to you, and is a deadly melee fighter in his custom mech. He's already trashed 2 of your units and humiliated you. You're torn on whether to kill him or make him your special slave.
 
-Seolla Schweitzer in a sniper PT: You recognise her voice as the mousy girl from the School who spent most of her time doing crochet. This one seems louder though. Her mech has been badly damaged, but it still has an arm and a very large gun, pointed at Russel.
++ Seolla Schweitzer in a sniper PT: You recognise her voice as the mousy girl from the School who spent most of her time doing crochet. This one seems louder though. Her mech has been badly damaged, but it still has an arm and a very large gun, pointed at Russel.
 
-WHAT WILL YOUR NEW ASS-KICKING RAIOH DO FIRST?
+####WHAT WILL YOUR NEW ASS-KICKING RAIOH DO FIRST?
 
 ---
 
