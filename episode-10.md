@@ -1,27 +1,21 @@
+# Episode 10
 
-SRWQ Mission 10: Now shit gets real by getting super.
-Sciencegar Sciencebolt Fri 05 Feb 2010 01:58:02 No.4479556 ViewReplyOriginalReport
-Quoted By: >>4480052
-Previous Threads:
-http://archive.easymodo.net/cgi-board.pl/m/thread/4415513
-http://archive.easymodo.net/cgi-board.pl/m/thread/4419117
-http://archive.easymodo.net/cgi-board.pl/m/thread/4420922
-http://archive.easymodo.net/cgi-board.pl/m/thread/4426965
-http://archive.easymodo.net/cgi-board.pl/m/thread/4429260
-http://archive.easymodo.net/cgi-board.pl/m/thread/4432887
-http://archive.easymodo.net/cgi-board.pl/m/thread/4438663
-http://archive.easymodo.net/cgi-board.pl/m/thread/4469339
-http://archive.easymodo.net/cgi-board.pl/m/thread/4472897
+## SHADOW MIRROR QUEST (AKA SRW Q)
+
+###SRWQ Mission 10: Now shit gets real by getting super.
+
 
 Welcome to the /tg/ thread with the best Fanservice Bonus to AC on /m/.
 
-The Plot: After the events of OG Gaiden, Dark Brain returns and attacks the OGVerse from outside, threatening to shatter the entire dimension. Our heroes, using the XN Giest which fell through the cracks in unreality, travel to the Shadow Mirror Universe, to a point in space-time where they can prevent the Shadow Mirrors giving Dark Brain the trail he needs to find the OGverse. Their entrance to the dimension scatters the Shadow Mirrors into the dimensional void, and draws the ire of this universes EFA, who blockade them at the Tesla-Liecht Institute.
+**The Plot:** After the events of OG Gaiden, Dark Brain returns and attacks the OGVerse from outside, threatening to shatter the entire dimension. Our heroes, using the XN Giest which fell through the cracks in unreality, travel to the Shadow Mirror Universe, to a point in space-time where they can prevent the Shadow Mirrors giving Dark Brain the trail he needs to find the OGverse. Their entrance to the dimension scatters the Shadow Mirrors into the dimensional void, and draws the ire of this universes EFA, who blockade them at the Tesla-Liecht Institute.
 
 While normally we follow Shadow Mirror Katina Tarask, a psycho in a cute dress who's headed to find the missing Vindel in the company of this sexy stud, we're temporarily switching to Axel Almer, leader of what little remains of the Shadow Mirror forces, forced into a temporary alliance with the OG-Versers, even though they just destroyed his organisation and causes his leader and lover to go missing.
-Sciencegar Sciencebolt Fri 05 Feb 2010 02:08:02 No.4479590 Report
-Tetsuya Onodera goes over the plan one more time. "The Kurogane strikes first in the west, followed by the Giest in the south. We suppress the EFA forces, forces them to draw back their forces. Then the Hiryu breaks north, and makes a run to the Canadian border. With the EFA lines pressed in 3 areas, Axel should be able to get his men out on the Trilobite heading west into this...desert region."
 
-Axel smirks. "It's called the Elpis Wastes. The DC took two colonies that the EFA wrecked during the Suppression, Hope and Elpis, and sent them towards the surface to take out Geneva and Langley Base. Niether came within a hundred miles of their target, but they still caused some mighty bits of devestation. Seems your world got the soft version of the DC War..."
+---
+
+Tetsuya Onodera goes over the plan one more time. "The Kurogane strikes first in the west, followed by the Giest in the south. We suppress the EFA forces, forces them to draw back their forces. Then the Hiryu breaks north, and makes a run to the Canadian border. With the EFA lines pressed in 3 areas, Axel should be able to get his men out on the Trilobite heading west into this... desert region."
+
+Axel smirks. "It's called the Elpis Wastes. The DC took two colonies that the EFA wrecked during the Suppression, Hope and Elpis, and sent them towards the surface to take out Geneva and Langley Base. Neither came within a hundred miles of their target, but they still caused some mighty bits of devestation. Seems your world got the soft version of the DC War..."
 
 The tension in the meeting room increases another notch, if that were possible
 
@@ -32,8 +26,7 @@ The tension in the meeting room increases another notch, if that were possible
 Another notch.
 
 "We start the operation in 25 minutes. Everyone, be ready."
-Sciencegar Sciencebolt Fri 05 Feb 2010 02:20:02 No.4479653 Report
-Quoted By: >>4479670
+
 "Th-the Trilobi-ite is fully loaded a-a-and ready to fly. My me-mech is repaired and reloaded, a-a-as is yours."
 
 "Right, whatever." Axel brushes past W17 without so much as a glance. Damned doll was annoying enough as it was, now it's got a damned speech impediment. Lemon should have either made them properly, or not bothered to have them talk at all. "Tell the captain to change from the course those idiots are giving us. We're going southwest, not due west."
@@ -43,17 +36,7 @@ Quoted By: >>4479670
 "Oh, now you figure out how to questions orders, when you can barely talk. Wonderful. The Elpis Wastes are open ground, even the mountains aren't tall enough for cover anymore, and the EFA have filled it with sensors and boobytraps. Besides, the last report from Irm said your brothers and sisters were headed to Mehico for tequila. I figure they're worth meeting up with, for military support if not conversation.
 
 "And, if we do swing south, theres a chance we'll get a good look at that Geist thing in action. I want to know just how well it handles itself in a fight. It could be very important in the days to come..."
-Haken Browning !zHe7DH816A Fri 05 Feb 2010 02:24:02 No.4479670 Report
->>4479653
->Besides, the last report from Irm said your brothers and sisters were headed to Mehico for tequila.
 
-And now someone's gonna draw me and Aschen doing shooters off Echidna's stomach, assuming I'm actually of legal age in this iteration of OG no Sekai And Environs.
-Anonymous Fri 05 Feb 2010 02:51:02 No.4479824 Report
-Quoted By: >>4480087
-Maybe Katina should try to add W-17 to the harem at some point.
-
-Not like she would put up much resistance if we ordered her to.
-Sciencegar Sciencebolt Fri 05 Feb 2010 03:01:02 No.4479873 Report
 The waiting is unbearable, but finally the third signal flare is sighted over the horizon: All three of the Irregular ships have engaged their targets. The Trilobites engines flare up and it boosts off, heading southwest in the desperate hope of finding a gap in the EFA lines.
 
 "All gunners at stations?"
@@ -64,8 +47,7 @@ The waiting is unbearable, but finally the third signal flare is sighted over th
 "Our subsonics detect engine wakes from Tausendfuesslers, headed north. It seems to have worked, sir!"
 "Don't get cocky, ensign, thats my job. Keep us low and watch for anything passing overhead. They probably have a net of planes covering the whole cordon."
 "R-roger."
-Sciencegar Sciencebolt Fri 05 Feb 2010 03:18:02 No.4479944 Report
-Quoted By: >>4480012 >>4480087
+
 "M-Major-or Almer?"
 
 "What is it, doll?"
@@ -76,13 +58,13 @@ Axel cocks an eyebrow at this. "If I didn't know any better, I'd say you were co
 
 "I-I have fu-fully funct-tional Self-pre-preservation routin-ines, and I cannot-t help but w-wonder if this i-is the optimal p-plan."
 
-"...Hhmmph...Almost."
+"...Hhmmph... Almost."
 
 "S-sir?"
 
 "We're the Shadow Mirrors, 17. We're meant to rattle the bars of the cage that the civilised people have locked themselves into. We're the only thing stopping the world turning into a pile of dolls, like you, unable to think for themselves, following the EFAs every whim while they jerk themselves off. We have to live, otherwise, the human race is fucked. Even if all our forces are gone, even if Vindel and Lemon are dead, if it just came down to you and me left, we'd have to fight. It's the only thing a real human can do."
 
-"....H-hence why y-you resent a false-se human like m-me being so vital-l to Ms B-Brownings plans."
+"...H-hence why y-you resent a false-se human like m-me being so vital-l to Ms B-Brownings plans."
 
 "Don't even attempt to psychoanalyse me, Doll."
 
@@ -90,57 +72,16 @@ The Beam of energy flashes past the two mechs sitting atop the Trilobite, and di
 
 "So they did leave forces along the good escape routes! Well, Doll, time to practise what we preach!!"
 
-ORDERS FOR AXEL, LAMIA AND THE TRILOBITE?
-Sanger Zombolt! Fri 05 Feb 2010 03:32:02 No.4480012 Report
->>4479944
-Surrender and get ourselves killed.
-Anonymous Fri 05 Feb 2010 03:34:02 No.4480023 Report
-Axel: Punch shit
-Lamia: Shoot shit
-Trilobite: Fly... I guess...
-Sanger Zombolt! Fri 05 Feb 2010 03:40:02 No.4480046 Report
-Quoted By: >>4480101
-Wait, I mean: Deploy the Soulgain and use it to defend the Trillobite. Lamia stays inside to drive it. She should know how to get out of here fast.
-
-Don't bother killing much units, just get out.
-Anonymous Fri 05 Feb 2010 03:41:02 No.4480052 Report
->>4479556
-Take your fanfiction/RPG shit to some other forum.
-Stealthyboy !fchRKomfls Fri 05 Feb 2010 03:47:02 No.4480087 Report
-Quoted By: >>4480107
->>4479944
-Axel kills stuff in Soulgain.
-Fun is had by all.
->>4479824
-I don't think that W17 poses enough of a challenge for our psychodere to enjoy. From what I've seen, she's not a nympho, she just likes power over people, one way of such being sex, obviously. Or maybe she is a nympho, but the rest of my point stands.
-Gamlin !Xb1uRYUg66 Fri 05 Feb 2010 03:48:02 No.4480094 Report
-Axel and Lamia KILL THE HELL OUT OF THINGS.
-Sciencegar Sciencebolt Fri 05 Feb 2010 03:50:02 No.4480101 Report
-Quoted By: >>4480109 >>4480145
->>4480046
-
-I'm sorry for not being clearer: The Soulgain and the Angelg are sitting on top of the Trilobite, because the hangar is covered in vital equipment and wounded soldiers. The Trilobite is being flown by a competent crew of redshirts, led by a nobody I'm going to call Ensign Mickey.
+---
+```
+The Soulgain and the Angelg are sitting on top of the Trilobite, because the hangar is covered in vital equipment and wounded soldiers. The Trilobite is being flown by a competent crew of redshirts, led by a nobody I'm going to call Ensign Mickey.
 
 The two ships are at opposite ends of a rocky canyon somewhere in northern Oklahoma. You're not 100% sure theres nothing on the ground around the Canyon: Staying out of sight was kind of the point of taking this route.
 
 The enemy is a Kestrel, a late-model Peregrine battleship modified to work in atmosphere.
-Anonymous Fri 05 Feb 2010 03:53:02 No.4480107 Report
->>4480087
->I don't think that W17 poses enough of a challenge for our psychodere to enjoy. From what I've seen, she's not a nympho, she just likes power over people, one way of such being sex, obviously. Or maybe she is a nympho, but the rest of my point stands.
+```
+---
 
-You raise an excellent point and I retract my idea.
-Stealthyboy !fchRKomfls Fri 05 Feb 2010 03:53:02 No.4480109 Report
->>4480101
-Axel: Be Ensign Mickey.
-
-Ensign Mickey: Be the best goddamn generic redshirt since OGverse Bagman.
-Anonymous Fri 05 Feb 2010 04:06:02 No.4480145 Report
->>4480101
->Order the guys in the Trillobite to run for their lives.
-
->Order Lamia to fire an Illusion Arrow at the center of the enemies' formation while you jump and fire several energy balls at them.
-Sciencegar Sciencebolt Fri 05 Feb 2010 04:28:02 No.4480235 Report
-Quoted By: >>4480247
 "Ensign, break off and get out of here! We'll hold them...no, we'll break them!!!"
 
 The hull plating nearly buckles as Axel kicks off the Trilobite and into the cloud of enemies, as an arrow of light takes the arm and leg off a Gespenst about to fire. The enemy scatter as the Soulgain approaches, but the blue mech twists, lands on a rock face and kicks off again, flying past another Gespenst which neatly comes apart into two pieces.
@@ -148,78 +89,24 @@ The hull plating nearly buckles as Axel kicks off the Trilobite and into the clo
 The Trilobite strains to gain altitude as another volley is fired by the Kestrel. Most of it misses the manuverable cruiser, but a salvo of missiles cracks against the port bow, the armor holding but definitely weakened.
 
 "Keep the PTs out of the air!! As long as they're in my reach, they're basically dead!" The Soulgain shrugs off missiles and shells as it rams its fists, coated in blue fire, into an enemy Gespenst. The grunt mechs torso crumples like a coke can. But its allies pour on the fire, and Axel feels the feedback from the Soulgain, as if he were covered in fireants intend on chewing him down to the bones.
-Stealthyboy !fchRKomfls Fri 05 Feb 2010 04:31:02 No.4480247 Report
->>4480235
-Axel:Enjoy the pain and smash some more shit up.
-Ensign Mickey: Look wistfully at Axel's fighting prowess.
-Sciencegar Sciencebolt Fri 05 Feb 2010 04:34:02 No.4480262 Report
-Quoted By: >>4480274 >>4480283 >>4480293 >>4480321
+
 The Angelgs fires another arrow, smashing a Schutzwald's legs off, then backs off as the Kestrel boosts forward, chasing its quarry.
 
 "Ma-major, We m-must suppress their b-b-batt-tle-"
 
 "Just kill the damned thing already!!" Axel boosts upwards, ignoring the half-dozen Gespensts left firing wildly at him.
 
+---
+```
 THIS IS YOUR ENEMY:
 
 http://www.mahq.net/mecha/srw/og1/peregrine.htm
 
 ITS TRYING TO GET A BEAD ON THE TRILOBITE WITH ITS MAIN GUN AGAIN. AXEL IS BELOW IT, LAMIA IS IN FRONT OF IT DODGING ANTIAIR, AND THE TRILOBITE IS MAKING A HARD TURN TO ITS LEFT.
 
-WHAT SHALL OUR HEROES DO?
-Anonymous Fri 05 Feb 2010 04:37:02 No.4480274 Report
-Quoted By: >>4480638
->>4480262
-Take out its main gun. Possibly by reverse rider kicking it so hard it bends upwards.
-Anonymous Fri 05 Feb 2010 04:38:02 No.4480277 Report
-Quoted By: >>4480298
-I was going to say Axel should Code Kirin on the gun, but then I realised he doesn't have access to Code Kirin or Mai Suzaku at this point. Therefore he should just try to take out the gun. Lamia can put a Phantom Phoenix into the bridge.
-Anonymous Fri 05 Feb 2010 04:39:02 No.4480283 Report
->>4480262
-If possible, have Lamia boost forward and try to take out something important (main gun, probably) with a Mirage Sign.
-Stealthyboy !fchRKomfls Fri 05 Feb 2010 04:40:02 No.4480293 Report
->>4480262
-Ensign Mickey: Evasive maneuvers!
-Lamia: Engage the Kestrel in melee. The fire arcs of the AA guns will be unable to overlap closer to the ship, allowing her to take them out one by one. Try to take out the main cannon too.
-Axel: Continue trashing Gespies.
-Anonymous Fri 05 Feb 2010 04:41:02 No.4480298 Report
-Quoted By: >>4480316
->>4480277
->but then I realised he doesn't have access to Code Kirin
-...Really?
-Anonymous Fri 05 Feb 2010 04:44:02 No.4480316 Report
-Quoted By: >>4480319
->>4480298
-If you play the OGs mission where you control Axel before the warp to OG world you can only attack with Seiryu Rin, Byakko Kou and Genbu Koudan (I have probably massacred the spellings of these attacks).
-Anonymous Fri 05 Feb 2010 04:45:02 No.4480319 Report
-Quoted By: >>4480378
->>4480316
-Huh. Fancy that.
+```
+---
 
-Sciencegar, your take on this?
-Anonymous Fri 05 Feb 2010 04:45:02 No.4480321 Report
-Quoted By: >>4480352
->>4480262
->Order Lamia to Shadow Lances at the enemy mechs that try to attack us. To suppress them , not to kill them.
-
->Order the crew to keep boosting to safety.
-
->Concentrate all of our life force into our fist. Jump extemely high and destroy the Main Gun.
-Anonymous Fri 05 Feb 2010 04:50:02 No.4480352 Report
->>4480321
->After destroying it, shoot our remaining life-foirce into the ship's cockpit and then we drop kick it.
-Sciencegar Sciencebolt Fri 05 Feb 2010 04:55:02 No.4480378 Report
-Quoted By: >>4480386 >>4480638
->>4480319
-
-I'm trying to at least pretend to respect canon here, so I guess thats accurate. But this battle sounds like a good time for Axel to try out something new and dangerous...
-Anonymous Fri 05 Feb 2010 04:56:02 No.4480386 Report
->>4480378
-Don't respect the canon; respect the cannon.
-Zeta Zaku Fri 05 Feb 2010 05:38:02 No.4480638 Report
->>4480378
-Eh, Mai Suzaku can wait for a later date. I support >>4480274's suggestion of Rising Rider Kick to the ventral spine of the Kestrel. Hopefully we can get enough velocity to bust through the armor and really do some damage.
-Sciencegar Sciencebolt Fri 05 Feb 2010 05:41:02 No.4480649 Report
 "17, hit their bridge!" Axels jump trajectory changes through sheer force of will, and he grinds his elbow blade along the cannon's barrel, looking for a weakpoint.
 
 "Roger-r!" Lamia types a code into her console and her bow begins to glow with ethereal energy. She is still for a few moments, allowing shells to bounce off her armor and a beam cannon shot to knock a feather off her wing. Then she releases the laser string on her bow, and the front of the Kestrel is engulfed in flames.
@@ -231,8 +118,7 @@ The Kestrel flys through the plasma cloud, gobbets of molten transparisteel flyi
 "Well then try HARDER!!!" The Soulgains arms are a blur, grinding through the armor of the gunbarrel with fist, blade and the light of Axels passion. His fist finally bursts into one of the charged capacitors, and semi-liquid energy washes over his mechs armor. The feeling is like having ones face cut off with a sharpened icicle.
 
 "U-understood." The Angelg boosts forward, stowing its bow and pulling its Mirage Sword, on a collision course with the enemy bridge. The turrets of the Kestrel start to track her, and beams graze the weakened frame of the Angelg, but still she flies at her objective...
-Sciencegar Sciencebolt Fri 05 Feb 2010 06:36:02 No.4480835 Report
-Quoted By: >>4480873 >>4480882 >>4480886 >>4480891 >>4480910 >>4480917
+
 The bridge of the Kestrel is torn asunder as the main cannon discharges. Half the beam lances out and strikes the space the Trilobite had been occupying 3 seconds before. The other half is thrown bursts on the Soulgain as its kick shatters the main focusing lenses. The gun assembly explodes in a hail of shrapnel, and the Soulgain is driven into the floor of the canyon by the force of the blast.
 
 "M-major, are you al-al-alright?"
@@ -243,7 +129,7 @@ The bridge of the Kestrel is torn asunder as the main cannon discharges. Half th
 
 Pulling itself out of the rock, Axel looks up to see a field of blue and off-green mechparts littering the canyon. The only thing standing is a large super robot, sheathing its blade as its cape flaps in the wind.
 
-"The Vairose upgrade...who..."
+"The Vairose upgrade... who..."
 
 "Glad I could help you, Major." Brooklyn Luckfield brings his mech into a deep bow. "I was attempting to liberate this prototype from enemy hands, had I known you were still alive and fighting I would have joined you earlier."
 
@@ -254,43 +140,9 @@ Axel grunts. "Well, you're alive, and you have a mech, that'll do for today. Now
 "Sink that damned thing."
 
 The turrets of the Kestrel try in vain to target the more manuverable Trilobite as it swings around into the EFA ships rear arc. The Trilobites torpedo tubes spew smoke and the engine of the Kestrel are torn to shreds. With the Angelg, Soulgain and Vaisaga safely on its back, the Trilobite turns from the smoking hulk and jets into the sky.
-View SameGoogleiqdbSauceNAO Officer nacho.jpg, 40KiB, 508x432
-Sanger Zombolt! Fri 05 Feb 2010 06:44:02 No.4480873 Report
->>4480835
->Angelg
 
->Soulgain
+---
 
->VAISAGA
-Zeta Zaku Fri 05 Feb 2010 06:45:02 No.4480882 Report
->>4480835
-I...want to cry heresy at Bullet in the Vysaga...but you actually made him -competent- at it.
-
-I'm not sure what to think now.
-View SameGoogleiqdbSauceNAO I CAME.jpg, 104KiB, 500x625
-Anonymous Fri 05 Feb 2010 06:47:02 No.4480886 Report
->>4480835
-I CAME
-View SameGoogleiqdbSauceNAO Sweedilicious.gif, 12KiB, 200x200
-Couch Fri 05 Feb 2010 06:47:02 No.4480891 Report
->>4480835
->Bullet with Vaisaga
-View SameGoogleiqdbSauceNAO 12346460187o.png, 23KiB, 112x110
-Archibald Grims !SonOfAYvRI Fri 05 Feb 2010 06:49:02 No.4480897 Report
-Quoted By: >>4485215
-As always Sciencebolt, good fucking work.
-Maybe one day someone will condense this into a cohesive story without the inbetweens everyone posts.
-Samefag the Avenger Fri 05 Feb 2010 06:53:02 No.4480910 Report
->>4480835
-I did not expect that.
-
-NIIIIIIIICE
-View SameGoogleiqdbSauceNAO 1240624407669.jpg, 187KiB, 1024x622
-Anonymous Fri 05 Feb 2010 06:56:02 No.4480917 Report
->>4480835
-someone needs to make a comeback soon....
-Sciencegar Sciencebolt Fri 05 Feb 2010 07:12:02 No.4480986 Report
-Quoted By: >>4481040 >>4481050 >>4481146 >>4481151 >>4482206
 "So, a quest, is it?" The Vysaga leans on its sword like a cane. "To rebuild our fallen kingdom and prepare once more to face the dread enemy."
 
 "If the best the EFA can send against is stuff like that, then they're hardly a dread enemy, Luckfield." Axel sits still as possible as the Soulgain regenerates itself, but cannot help but respond to Brooklyn's commentary. "I'm far more worried about these newcomers. They may be few in number, but they have more firepower than an entire EFA fleet, and the skill to go with it."
@@ -303,149 +155,15 @@ Axel sniffs. "Honorable or no, they're out for our blood. This small mercy means
 
 "And what? You're going to crown me King of Shadow Mirror, Mr I'd-call-myself-Sir-but-I'm-not-British-enough?"
 
-"Well...I suppose that's what the quest is for, isn't it? To see if you're worthy."
+"Well... I suppose that's what the quest is for, isn't it? To see if you're worthy."
 
 "...You're way too young to talk like that. Stop bullshiting to me about quests and destiny until your beard is down to your crotch."
 
 "As you wish." Brooklyn draws his sword and begins practising forms, while the Soulgain grows its skin back.
-View SameGoogleiqdbSauceNAO 13.png, 62KiB, 960x640
-Archibald Grims !SonOfAYvRI Fri 05 Feb 2010 07:14:02 No.4480995 Report
-Quoted By: >>4481118 >>4483478
-And for those that are following the Nega no Sekai OG2 game on JT, I'm streamlining the lineup. Apparently when I get to mission 19, Arado has no mech and you can't reassign him. I think this is due to the cast of THOUSANDS I have.
 
-Also, NnS calls for broken mech combos.
-Samefag the Avenger Fri 05 Feb 2010 07:22:02 No.4481040 Report
-Quoted By: >>4481117
->>4480986
-....is it safe to assume that this Brooklyn will be our Sanger Zombolt? Seeing the real one is kind of dead?
-Anonymous Fri 05 Feb 2010 07:24:02 No.4481050 Report
->>4480986
-This Brooklyn sounds kind of badass.
-View SameGoogleiqdbSauceNAO vai.jpg, 88KiB, 600x700
-Gamlin !Xb1uRYUg66 Fri 05 Feb 2010 07:35:02 No.4481114 Report
-fuck yeah vysaga!
-Sciencegar Sciencebolt Fri 05 Feb 2010 07:35:02 No.4481117 Report
->>4481040
+---
 
-I have plans. On both those counts...
-Anonymous Fri 05 Feb 2010 07:35:02 No.4481118 Report
-Quoted By: >>4481133
->>4480995
-Mind if I ask what it is?
-
-Link?
-Anonymous Fri 05 Feb 2010 07:38:02 No.4481133 Report
->>4481118
-Its a really hacked up OG2 game.
-Archibald went in and put in all the bosses as playable characters.
-And that PossExcellen and Katina are new to me.
-Sanger Zombolt! Fri 05 Feb 2010 07:41:02 No.4481146 Report
-Quoted By: >>4481205 >>4481212
->>4480986
-I don't know why, but I read this:
-
->.....while the Soulgain grows its skin back.
-
-As:
-
->.....while the Soulgain grows hair in it's back.
-Zeta Zaku Fri 05 Feb 2010 07:43:02 No.4481151 Report
->>4480986
-Okay, I am now in love with Sir Bullet of Luckfield. Advance team is now go for AWESOME.
-Anonymous Fri 05 Feb 2010 07:52:02 No.4481205 Report
-Quoted By: >>4481212
->>4481146
-I read it as:
-
->While the Soulgain grows it's beard back.
-Zeta Zaku Fri 05 Feb 2010 07:54:02 No.4481212 Report
-Quoted By: >>4481226
->>4481205
->>4481146
-It is my dream that, one day, Soulgain's limiter release will be characterized by its mustache spontaneously becoming real.
-Anonymous Fri 05 Feb 2010 08:00:02 No.4481226 Report
-Quoted By: >>4481300
->>4481212
-....Sciencegar?
-Anonymous Fri 05 Feb 2010 08:25:02 No.4481299 Report
-Quoted By: >>4481307
-Serious question here, no fanfics, but I heard Axel said he saved the Crying wolf team in OG because they saved him back in SM world?
-Is it true?
-And where is my Crying Wolf team in SM world?
-Sciencegar Sciencebolt Fri 05 Feb 2010 08:25:02 No.4481300 Report
->>4481226
-
-We're not at that level of ridiculousness quite yet...
-
-I may have to change viewpoints again in the next update, but for now, I need sleep. The weekend starts tomorrow, so we should be back to old-fashioned update schedules where I kill myself writing shitty fanfiction to appease the baying fanbois of /m/.
-Sciencegar Sciencebolt Fri 05 Feb 2010 08:28:02 No.4481307 Report
-Quoted By: >>4481309
->>4481299
-
-I've already established SM Kai was leader of the Cry-Wolves, so if you delve into his backstory a bit, you might get your answer.
-Anonymous Fri 05 Feb 2010 08:28:02 No.4481309 Report
-Quoted By: >>4481317 >>4481323
->>4481307
-Huh? What happened to Albero and Folgia?
-Anonymous Fri 05 Feb 2010 08:30:02 No.4481317 Report
-Quoted By: >>4481318
->>4481309
-They were part of it and weren't as important or they died. Or both.
-Anonymous Fri 05 Feb 2010 08:32:02 No.4481318 Report
->>4481317
->Albero
->not important to Cry Wolves
-wat?
-Sciencegar Sciencebolt Fri 05 Feb 2010 08:34:02 No.4481323 Report
-Quoted By: >>4481339
->>4481309
-
-You'll have to get the story out of Kai, or someone else who was there. I want to pick and choose what spoilers I give out.
-Anonymous Fri 05 Feb 2010 08:39:02 No.4481339 Report
-Quoted By: >>4481345 >>4481355
->>4481323
-I didn't read your fic back in day one so I dunno.
-Back what does Kai have to do with the Cry Wolves anyway, isn't he just an Agressor/Trainer who happens to know Albero?
-Anonymous Fri 05 Feb 2010 08:41:02 No.4481345 Report
-Quoted By: >>4481377
->>4481339
-Read the rest of the threads. This is the Shadow Mirror universe, things are different.
-Sciencegar Sciencebolt Fri 05 Feb 2010 08:44:02 No.4481355 Report
-Quoted By: >>4481377
->>4481339
-
-While I'm not so pretentious as to deny that this is essentially fanfic, I take objection to the idea that its 'mine'. If it had been up to me you'd have gone straight to OGverse at the end of thread 1. And Katina would show her psychosis in less overtly sexual ways. I see myself more as a GM and /m/ as my players. It's a collaborative thing.
-Anonymous Fri 05 Feb 2010 08:47:02 No.4481377 Report
->>4481345
->>4481355
-Oh, right...I guess it's fine then.
-After all, it's just a fucked up fanfic.
-Jerid Messa !!AbDOcayw4O/ Fri 05 Feb 2010 09:15:02 No.4481495 Report
-Quoted By: >>4481555 >>4482573
-Oh man Bullet is an epic Knight. I love this version.
-
-Random question, how do the Soulgain and Zweizerrgain regenerate?Nanomachines? I never thought about until now when Axel started trying to regenerate.
-Anonymous Fri 05 Feb 2010 09:31:02 No.4481555 Report
->>4481495
-The pilot's life force regenerates them. They absorbs his/her energy and use it to repair themselves and power up their attacks.
-Anonymous Fri 05 Feb 2010 11:49:02 No.4482044 Report
-Page four?
-
-No.
-Anonymous Fri 05 Feb 2010 12:50:02 No.4482206 Report
->>4480986
-NIce work, Sciencegar
-I'm going to appreciate SM Luckfield !
-Going like "I'm-Brooklyn-Luckfield-the-motherfucking-Bushido-Sword-of-Shadow-Mirror" is interesting
-Stealthyboy !fchRKomfls Fri 05 Feb 2010 14:46:02 No.4482423 Report
-I go to sleep, and I come back to a knightly Brooklyn Luckfield? Awesome.
-Sciencegar Sciencebolt Fri 05 Feb 2010 15:54:02 No.4482573 Report
->>4481495
-
-I'm working on the basis that the Zweizergain regenerates by taking parts from the infinite versions of itself in the multiverse, rebuilding itself molecule by molecule, while the Soulgain just converts Axel's fighting spirit into parts and armor.
-Sciencegar Sciencebolt Fri 05 Feb 2010 16:30:02 No.4482651 Report
-Quoted By: >>4482745 >>4482761 >>4482910 >>4483133 >>4483159
-SRWQ Special Mission 3: ExcellQuest
+####SRWQ Special Mission 3: ExcellQuest
 
 You are Excellen Browning, Sexy Mistress of the ATX Team and the best of looks and sniping prowess in any dimension. You're taking part in your most dangerous mission yet, waging war on an entire world where you know alternate versions of your dearest friends, your lover, and even yourself are running around. You're determined not to fret about this until you meet them though: Your spunky personality is vital to morale, after all.
 
