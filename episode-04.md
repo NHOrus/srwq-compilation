@@ -343,8 +343,8 @@ Latooni adjusts her glasses.
 "I know some people there."
 
 ---
-
-Anyway. Armaments.
+```
+ Armaments.
 
 The R-Blades tonfas
 
@@ -355,7 +355,7 @@ The Randgriths weapons are mainly fixed other than its knife, although you could
 The Wuerger's Cold Metal Sword is available.
 
 And the DGG-04 has some sort of transformable weapons called Ridols, but only it can change them between modes.
-
+```
 ---
 
 Johnathan on our Repair Prospects:
