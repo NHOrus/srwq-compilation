@@ -7,9 +7,7 @@ With the help of /m/echa
 
 It went surprisingly well:
 
-![alt text][intro]
+![alt text](images/SRWQ_Hand.png  "The sum of it")
 
 #### Somewhen in the relative future
 I got insane and decided to press SRWQ into something resembling a novel instead of a bunch of disjoined posts.
-
-[intro]: images/SRWQ_Hand.png  "The sum of it"
