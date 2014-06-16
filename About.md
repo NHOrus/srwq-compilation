@@ -5,8 +5,11 @@ There was a /m/ board on 4chan. And there was a man, called Sciencegar Sciencebo
 About nice group of people called "Shadow Mirror"
 With the help of /m/echa
 
-It went surprisingly well.
+It went surprisingly well:
+
+![alt text][intro]
 
 #### Somewhen in the relative future
 I got insane and decided to press SRWQ into something resembling a novel instead of a bunch of disjoined posts.
 
+[intro]: images/SRWQ+Hand.png  "The sum of it"
