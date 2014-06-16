@@ -380,11 +380,7 @@ With the EFA closing in on all sides, you've been forced to work with the myster
 But with half the EFA fleet and several companies of PTs being landed around you, you don't have much choice but to go along with this.
 
 The combined forces of the Irregulars and the surviving Shadow Mirrors are splitting into 4 groups, intend on a 4-way breakout before the EFA attacks. The EFA jamming is still in effect: After they leave the TLI, each group will be on its own until it gets out of the cordon.
-Anonymous Fri 05 Feb 2010 00:09:40 No.4479088 Report
->>4479078
-Yay, Axeltime!
-Sciencegar Sciencebolt Fri 05 Feb 2010 00:16:40 No.4479114 Report
-Quoted By: >>4479126 >>4479159 >>4479379
+
 The 4 Groups are currently:
 
 The Kurogane, A Space Noah class ship with a massive drill on the bow. It plans to burrow underground and come up in the middle of the EFA lines, to distract them from phases 3 and 4 of the plan, before heading west to the Pacific. Carries a Grungust, a customised high-performance Lion, a Giganscudo variant, a white flying Gespenst with a sniper rifle, and their Beowulf in the Gespenst Mk3 (although they don't call either of them that).
@@ -396,160 +392,9 @@ The Hiryu Kai, a fast warship which will blitz the EFA in the north and break th
 The last flyable Shadow Mirror Trilobite: Filled nearly to capacity with wounded SM pilots and technicians, who were rudely thrown out of the Lygeus portal, it also has a few vital pieces of technology onboard, but you're fairly sure its been scanned by the Irregulars a dozen times, so there'll be no surprise for them.
 
 You have your Soulgain, not at 100% after tangling with Beowulf twice in a row but ready for a brawl anyway, and W17 in her Angelg, who's voice-chip or somesuch has been damaged, making her stutter like a skipping record.
-Sciencegar Sciencebolt Fri 05 Feb 2010 00:17:40 No.4479123 Report
-Quoted By: >>4479156 >>4479181 >>4479182 >>4479278 >>4479440
+
 WHICH GROUP WILL YOU GO WITH? The obvious choice is to stick with the surviving Mirrors, but there are other things to consider: The Kurogane has their Beowulf, who you're not sure they realise the threat of, and going west means you may meet your Beowulf, and try for round 3. The Giest is their secret weapon, and is guarded only by grunts: You could cripple their plans if you take the risk. And you have a score to settle with the crew of the Hiryu Kai. Their commanders have offered to switch a few of their units to the Trilobite: It means the wounded will be at their mercy, but you could be in a better position to get revenge. On who you're not sure.
 
 HOW MUCH OF A DICK ARE YOU THE READERS GOING TO MAKE THIS VERSION OF AXEL? Will he be obsessed with Beowulf, a scheming Shadow Mirror fanatic, a petty bitter man who's lost everything, or someone who fights for a dim point of light in the future?
-Brave Exkaiser will Never Die Fri 05 Feb 2010 00:17:40 No.4479126 Report
->>4479114
->Viletta in the Huckebein Mk-III
-Feels good, man.
-Anonymous Fri 05 Feb 2010 00:24:40 No.4479149 Report
-Lets hop on the XN-Geist.
-
-I want to see Axel's reaction when he meets 'Helios' again...
-Anonymous Fri 05 Feb 2010 00:26:40 No.4479156 Report
-Quoted By: >>4479247
->>4479123
-No man left behind.
-
-We will be sticking with the Shadow Mirrors for now. We can't just abandon them and basicaly erase every single slimmer of hope they may have right now. This is what Axel would probably do. The reason he got obsessed with Beowulf was because he killed all of his comrades in cold-blood. We are not going to let this happen again.
-
-Besides, we may get to join with Katina at some point in the far-off future and get another ship.
-Anonymous Fri 05 Feb 2010 00:27:40 No.4479159 Report
-Quoted By: >>4479227
->>4479114
->It'll then be headed south to meet up with 2 units who left to contact the DC.
->2 units who left to contact the DC.
->Sanger and Ratsel
-!!!!
-Anonymous Fri 05 Feb 2010 00:29:08 No.4479166 Report
->>4472896
-Stop spamming www. anon
-talk
-. com thanks.
-Anonymous Fri 05 Feb 2010 00:30:09 No.4479173 Report
->>4472896
-Stop spamming www. anon
-talk
-. com thanks.
-Anonymous Fri 05 Feb 2010 00:33:40 No.4479181 Report
->>4479123
-Go with the XN Geist, if we get an opportunity to destroy it we take it. They come through preaching acting as though their world is in some way more deserving of survival than ours and intending to kill our leader and our lover? Fuck them (but this is pure pragamatism not dickishness, let's have Axel be fighting for a hopeful future instead of BEOWULF BEOWULF BEOWULF).
-Sanger Zombolt! Fri 05 Feb 2010 00:33:40 No.4479182 Report
-Quoted By: >>4479247
->>4479123
-I say we stay with the Trilobite.
-
-Beowulf-obsessed Axel is annoying. So annoying, in fact, that they retconned this personality in OGs.
-
-Attacking the Geist is probably a bad idea considering we may want to use it to go to other universes now that we don't have the Zweizergain.
-
-Getting revenge on the Hiryu? Why? For making us realize that we needed help and basicaly saving our asses? That's a dumb reason to attack them.
-
-With the Trilobite we at least get a crew and a ship in our command. Hell, we may even be able to become the leaders of the Shadow Mirrors.
-Sciencegar Sciencebolt Fri 05 Feb 2010 00:44:40 No.4479227 Report
-Quoted By: >>4479237 >>4479368
-Giest 2 (1 Curious about their Magic Science, 1 Fuck These Guys I want to Marry Lemon)
-Trilobite 2 (2 Fight for the Future
-
-Not sure if >>4479159 is a vote to go south with the Giest.
-
-Note that you can order W17 to guard the Trilobite, and head off alone.
-Anonymous Fri 05 Feb 2010 00:47:40 No.4479237 Report
->>4479227
->Note that you can order W17 to guard the Trilobite
-
-Do this, go with the Geist, take it out if we get the chance.
-Anonymous Fri 05 Feb 2010 00:49:40 No.4479247 Report
-Quoted By: >>4479281
->>4479156
->>4479182
-
-I am okay with these ones, but let's add to the list saving Lemon. They just can't kill her like that. Cooperate with them, but if they try to kill her then we monkey rape their asses, steal Lemon and ride into the sunset.
-
-Green-haired war-obsessed monsters optional.
-Shas'El Fri 05 Feb 2010 00:55:40 No.4479278 Report
->>4479123
-Picking up a fight with them will just end up with us gaining enemies in all sides. I say we lay low for a while, stick with the trilobite and do what we are told. After finishing with the operation, we take our trilobite and separate from them.
-Sciencegar Sciencebolt Fri 05 Feb 2010 00:55:40 No.4479281 Report
-Quoted By: >>4479300
->>4479247
 
 Niether you or they have any idea where Lemon is. The last you saw, she and Vindel dissappeared in a flash of light, apparenly using the last of the Zweizergains strength to escape the Irregulars. They plan to search for the Zweizergain after they've all escaped. You're not sure if they'll trust you to accompany them on the search once you've gotten out of the EFA cordon.
-Anonymous Fri 05 Feb 2010 01:00:40 No.4479300 Report
-Quoted By: >>4479325
->>4479281
->You're not sure if they'll trust you to accompany them on the search once you've gotten out of the EFA cordon.
-Well, we have the perfect solution to that!
-
-FAKE AMNESIA
-adviceAxel.jpg
-HIT ON EVERYTHING THAT MOVES
-Sciencegar Sciencebolt Fri 05 Feb 2010 01:06:40 No.4479325 Report
-Quoted By: >>4479357 >>4479391
->>4479300
-
-This Axel never even made it to the portal, and thus the only way he could justify amnesia is though head injuries he obviously never recieved. Plus, the whole incident when he took over the Hiryu Kai and interrogated Lamia for info kinda makes it hard to beleive he doesn't know what's going on.
-Sanger Zombolt! Fri 05 Feb 2010 01:12:40 No.4479357 Report
->>4479325
-There is only one thing left to do then.
-
->HIT ON EVERYTHING THAT MOVES WHILE WAITING FOR THE OPERATION TO START.
-
-The Soulgain can repair itself. No need to waste time with it.
-Anonymous Fri 05 Feb 2010 01:14:40 No.4479368 Report
->>4479227
->Giest
-
-Geist
-
-(go with the Geist)
-Samefag the Avenger Fri 05 Feb 2010 01:17:40 No.4479379 Report
->>4479114
-I don't know if I want to fight against the OG numbers right now. They will kick our asses all the way to monday. They did it once against a juiced up Soulgain. What's stopping them from doing it all over again?
-
-(Trillobite)
-Anonymous Fri 05 Feb 2010 01:19:40 No.4479391 Report
->>4479325
->thus the only way he could justify amnesia is though head injuries he obviously never recieved.
-Well, that's the plan.
-
-We fall down the stairs or something.
-
-And one vote for Geist, plz
-Anonymous Fri 05 Feb 2010 01:20:36 No.4479396 Report
->>4472893
-Stop spamming www. anon
-talk
-. com thanks.
-Sciencegar Sciencebolt Fri 05 Feb 2010 01:23:40 No.4479409 Report
-Quoted By: >>4479419 >>4479430 >>4479446
-Man, it's still pretty evenly split between the Giest and the Trilobite. I'm going to leave it a little longer, and if you can't decide, I'll have to get tricky with my plot.
-Anonymous Fri 05 Feb 2010 01:26:40 No.4479419 Report
->>4479409
-Go for Trilobite
-Anonymous Fri 05 Feb 2010 01:28:40 No.4479426 Report
-Get into the trilobite already.
-Anonymous Fri 05 Feb 2010 01:29:40 No.4479430 Report
->>4479409
-Flip a coin, if you must.
-
-I know I'd be happy either way.
-Anonymous Fri 05 Feb 2010 01:30:40 No.4479438 Report
-I vote to go with the trilobite. Since it seems pretty unanimous that we want fight for the future Axel, i cant see him doing anything OTHER than sticking with his SM buddies, keeping them alive is pretty important to the future he is fighting for. Well, more important than dicking over these dimension hopping asshats at least.
-Anonymous Fri 05 Feb 2010 01:30:40 No.4479440 Report
->>4479123
-Stick with the trillobite. If we screw up with the Geist, the chances of all of us getting fucked up when a menace like Dark Brain terrorizes us is too great.
-Anonymous Fri 05 Feb 2010 01:31:40 No.4479446 Report
->>4479409
-I think go with the Trilobite, but if we can take an opportunity to cripple the OG group's plans we take it without hesitating.
-Anonymous Fri 05 Feb 2010 02:04:40 No.4479570 Report
-New thread here:
-
->>4479556
-Sciencegar Sciencebolt Fri 05 Feb 2010 02:09:40 No.4479593 Report
-Thread's at 250, making new one:
-
->>4479556
