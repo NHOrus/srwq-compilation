@@ -77,7 +77,7 @@ Kirk Hamill sighs. "Unit BP...It won't be ready for another few months. If its s
 
 ---
 
-Russel suggests that Kai takes his Gespenst, but the eyepatched veteran will have none of it. "Commanders privledge, my boy, I stay here and direct you, same as Irm. Latooni will take the Assault Lander."
+Russel suggests that Kai takes his Gespenst, but the eyepatched veteran will have none of it. "Commanders privileged, my boy, I stay here and direct you, same as Irm. Latooni will take the Assault Lander."
 
 Ibis looks crestfallen.
 
@@ -111,7 +111,7 @@ The entire group charges at the EFA formation. You soon see shells, beams and mi
 
 A beam shot mars your leg armor, and another your shoulder, as the two StealthRaubtiers open up on your flank. Transforming scout PTs based on a modified Gespenst design, their fighter modes are incredibly swift and hard to detect, making them difficult opponents if not the most dangerous. However, the two break off as Ibis and Russel open fire on them, giving you your chance.
 
-"Ok, opening up the plasma convertor, lets show them what they're up against. LIGHTNING FAAAAALLLL!!!!"
+"Ok, opening up the plasma converter, lets show them what they're up against. LIGHTNING FAAAAALLLL!!!!"
 
 The Raioh slams into the ground right in front of the Schutzwald, but its still easily close enough. The artillery mech is launched into the air by the detonation of plasma, and crashes into a nearby library, its half-melted limbs flying in all directions as the stresses crumple the suit into so much scrap. The three Gespensts are knocked over by the cloud, the paint peeling off in the heat as the pilots fight to retain control of the damaged mechs without passing out.
 
@@ -135,7 +135,7 @@ PLASMA OVERLOAD. CONVERTOR STRAIN CRITICAL. EMERGENCY SHUTDOWN.
 
 "I have to land first." You shout, as the failing thrusters try desperately to slow your descent.
 
-The StealthRaubtier, much like the Wildraubtier, is a light and manuverable mech, and at 55 tons is easily able to manuver under the force of its engines and tesla drive.
+The StealthRaubtier, much like the Wildraubtier, is a light and maneuverable mech, and at 55 tons is easily able to maneuver under the force of its engines and tesla drive.
 
 The Raioh, at over 120 tons, requires a Plasma Conversion Reactor rated higher than the average power plant just to maintain constant flight.
 
@@ -143,13 +143,13 @@ You crash into the little scout PT like an eagle pouncing on a sparrow, and the 
 
 Russel's wounded tesla drive sets him down relatively smoothly a few meters behind you. "Jaysus, lass, I thought we were coming here to get new mechs. With this kind o' carryon we won't be getting anything but souveniers."
 
-"Yes!!" you hear Ibis shout, as the fusilade of shells from her dual-wielded M95s clips another Raubtier and sends it into a death-dive. The final one breaks off and heads to the north. "It's getting away! Will I pursue?"
+"Yes!!" you hear Ibis shout, as the fusillade of shells from her dual-wielded M95s clips another Raubtier and sends it into a death-dive. The final one breaks off and heads to the north. "It's getting away! Will I pursue?"
 
 "Nah, get to the Hippo! I'll take him!" With the indicators on the Raioh barely out of the red, you blast off into the sky again. It's actually a really fast mech for its size, it just can't turn on a dime like others can.
 
 The Raubtier dodges wildly as you send out constant streams of energy from your hands. He dives under one and over another, always staying just a fraction of a meter far enough away to avoid the magnetic field that would spell his doom. Your indicators approaching the redline again, you curse and throttle back, launching twin Harken Impulse shots. One just manages to clip a wing, and the whole mech flips over, the pilot ejecting.
 
-You land again, the indicators screaming once more. From here, you can see Latoonis fire coming from the mountains and smashing into the town, each shell either crushing a building or knocking a Gespenst out of cover and into the firing line of your allies. But they're still fighting, and in one last push, 3 Gespensts and a Schutzwald rush from behind a collapsing building, a last desperate charge at where Ibis and Dumi are guarding the Hippo.
+You land again, the indicators screaming once more. From here, you can see Latooni's fire coming from the mountains and smashing into the town, each shell either crushing a building or knocking a Gespenst out of cover and into the firing line of your allies. But they're still fighting, and in one last push, 3 Gespensts and a Schutzwald rush from behind a collapsing building, a last desperate charge at where Ibis and Dumi are guarding the Hippo.
 
 "Damn stupid Plasma Convertor!! Just because I want to lay waste to half the planet doesn't mean you get the right to crap out on me when your components start to melt!!"
 
@@ -163,7 +163,7 @@ The Rathgriths F-Solid Bazooka folds back over its back. "All enemies accounted 
 
 Dumi raises himself to his feet. *My thanks for the assistance. You're the last survivor of Unit W, I'll have to assume?*
 
-"That's not strictly accurate. The battleships mech complement were being piloted by normal pilots, I'm the only member of Unit W able to deploy. I'm W16, but you may call me Echidna if that's more convenient."
+"That's not strictly accurate. The battleship's mech complement was being piloted by normal pilots, I'm the only member of Unit W able to deploy. I'm W16, but you may call me Echidna if that's more convenient."
 
 You finally arrive at the scene, resting your overtaxed mech next to the crushed remains of a Shadow Mirror Gespenst. "Wait, so this big elite squad of hush-hush pilots couldn't even get into mechs to literally save their own lives?"
 
@@ -223,7 +223,7 @@ Same with the multiple Schutzwalds running around: I'm going on the theory that 
 
 And its the Soldifar, not the Ashcleef.
 
-Dammit, in all the excitment, I kinda forgot to mention what shape the Hippo was in.
+Dammit, in all the excitement, I kinda forgot to mention what shape the Hippo was in.
 
 It's not UNsalvagable, but it took hits to the Tesla hovercraft system and its main guns on the top of it. It would need several hours of maintenance to get it operational again, but Echidna told them it wasn't worth it, to just get everything ready to transfer to the Trilobite.
 
@@ -239,13 +239,13 @@ Ammo is a problem however. It uses battleship-grade shells and missiles in quite
 
 Look for other ships in the city
 
-This would have been a great idea a few hours, when this was a bustling port town. Indeed, this is exactly what the Hippo crew were doing. Then the EFA Wet Navy came along and started shelling the Hippo and the port around it. When they realised they were losing, the last EFA ship torpedoed all the heavy transports out of spite. Or at least, thats the story the Hippo crew are giving you.
+This would have been a great idea a few hours, when this was a bustling port town. Indeed, this is exactly what the Hippo crew were doing. Then the EFA Wet Navy came along and started shelling the Hippo and the port around it. When they realized they were losing, the last EFA ship torpedoed all the heavy transports out of spite. Or at least, thats the story the Hippo crew are giving you.
 
->we shall leave it in the Hippo in a relatively hidden spot
+We shall leave it in the Hippo in a relatively hidden spot.
 
 The only spot that even remotely hidden that the crippled Hippo can get to on its own steam is the Ocean. You can load with unwanted units, seal it up, and set it to crawl out to see to a depth the EFA won't find it. It's a risk and it'll be a bitch to retrieve afterwards, but its your best option if you want to store shit for later.
 
-Funds and parts are mainly a game abstraction. I'm being flexible here but your main problem up until now has been time and manpower. You were overworking John, Rio and Ryoto just to keep your mechs working. Now that you have some actual people to use and a little more free time, you can start making suggestions to customise your units. But major changes will need the right engineer behind them.
+Funds and parts are mainly a game abstraction. I'm being flexible here but your main problem up until now has been time and manpower. You were overworking John, Rio and Ryoto just to keep your mechs working. Now that you have some actual people to use and a little more free time, you can start making suggestions to customize your units. But major changes will need the right engineer behind them.
 
 Current Mech Roster:
 DGG-03 - Katina
@@ -272,13 +272,13 @@ You find Irm and Latooni in the hangar, next to the new Soldifar.
 
 "Are you sure you want to try out something like this? I thought you were an artillery specialist."
 
-"My main offensive strength is presicion weapons fire at all ranges. Douglas is an artillery specialist, focusing on suppressing the enemy with heavy weapons. I would prefer a mobile mech with beam weaponry, like this one or the Raubtier."
+"My main offensive strength is precision weapons fire at all ranges. Douglas is an artillery specialist, focusing on suppressing the enemy with heavy weapons. I would prefer a mobile mech with beam weaponry, like this one or the Raubtier."
 
 "Ok, I guess we all have our preferences... Oh hey Katina... er... What's up?"
 
 "I... I just want to say sorry for how I've been acting. I know its been hard on all of you to put up with me, and it means we haven't come together as a team the way we should, and I really want to make up for it."
 
-Irm once again proves critically vunerable to your moeface. "Oh... Oh, Katina, don't worry about it. We realise that things are difficult for you, with your condition and all. But the important thing is, you know whose side you're on, and you're trying your best to help us. With Dumi watching out for you, you should be fine. We'll all help you get through this."
+Irm once again proves critically vulnerable to your moeface. "Oh... Oh, Katina, don't worry about it. We realize that things are difficult for you, with your condition and all. But the important thing is, you know whose side you're on, and you're trying your best to help us. With Dumi watching out for you, you should be fine. We'll all help you get through this."
 
 "Th-thank you, Irm-kun. And Subo... Latooni... you can have this back." You hand her back the ribbon. "I'm sorry I... just, sorry."
 
@@ -290,7 +290,7 @@ Irm blinks after her. "Frankly, Katina, this pack of misfits has mental issues a
 
 "K-k-k-katina! H-how are you today? Feeling... mellow, maybe." Arado's brow beings to drip sweat.
 
-"Oh Arado, I'm so sorry if we got off to the wrong foot. It's just.. .I have a history, when I was at the School. I knew... this worlds Arado, and we were close. Then, he died at the School, and I haven't been the same since. I sort of pushed all my feelings for him onto you, and that wasn't fair. I guess, maybe it'd be better, if we started afresh."
+"Oh Arado, I'm so sorry if we got off to the wrong foot. It's just... I have a history, when I was at the School. I knew... this worlds Arado, and we were close. Then, he died at the School, and I haven't been the same since. I sort of pushed all my feelings for him onto you, and that wasn't fair. I guess, maybe it'd be better, if we started afresh."
 
 "Oh... Oh, alright, if you put it that way... But, if you don't mind me saying, aren't you like, 25?"
 
@@ -306,7 +306,7 @@ Irm blinks after her. "Frankly, Katina, this pack of misfits has mental issues a
 
 You run off, teary-eyed, leaving Arado in possibly the worst state of shock yet.
 
-"OUKA?? But that... I wouldn't.... OUKA???"
+"OUKA?? But that... I wouldn't... OUKA???"
 
 Hours remaining 6
 
@@ -326,17 +326,17 @@ With these words, you can see Johnathan visibly deflate, and he seems to age ten
 
 "You know, the funny thing is, I really didn't. TLI hasn't been home for me for a long time, every since Rob, Kirk, and Marion all left. Back in the days of the Grungust, when we were building the greatest robots on earth together, the place really seemed alive to me. But then the Mk2 was cancelled, and all my friends were cherry-picked and dragged away to different EFA projects. The TLI became practically a ghost town, until Dr. Albark showed up, and started making the Earthgain series. Then we managed to convince ourselves we needed to make some kind of stand, and we fell in with Shadow Mirror, trying to see if they could use our expertise to some kind of good."
 
-He tosses the datapad aside and rubs his face in his hands. "But through it all, I've really been sleepwalking through it all, letting things slip out of my fingers because I can't summon the urge to hold onto them. Now everythings gone, basically, the Grungusts are scrap, the Assault Landers at the bottom of the sea, if the EFA had scrapped that Fortress Wing prototype we sold them I wouldn't be shocked in the slightest...Pretty much everything I've worked at in life has fallen down the drain, except Irm. Say what you will about him, he beleives in fighting the EFA and bringing back freedom. Least an old fart like me can do is try to help him out."
+He tosses the datapad aside and rubs his face in his hands. "But through it all, I've really been sleepwalking through it all, letting things slip out of my fingers because I can't summon the urge to hold onto them. Now everything is gone, basically, the Grungusts are scrap, the Assault Landers at the bottom of the sea, if the EFA had scrapped that Fortress Wing prototype we sold them I wouldn't be shocked in the slightest... Pretty much everything I've worked at in life has fallen down the drain, except Irm. Say what you will about him, he believes in fighting the EFA and bringing back freedom. Least an old fart like me can do is try to help him out."
 
 He lets out a long, weary sigh.
 
-"Well...maybe the best way to help him would be to make him a new Grungust!"
+"Well... maybe the best way to help him would be to make him a new Grungust!"
 
 Johnathan looks up at this. "What?"
 
 "Well, its pretty obvious Irm likes piloting super robots, given the way he keeps complaining about the lighter mechs. I'd bet if we got him one, he'd be really over the moon!"
 
-"That's a nice thought, Katina, but I don't have a lot to work with. The Type 0 was smeared over the Nevada desert along with its test pilot. Of the three Type 1s, two were dismantled to power the Lygeus, and the third was at Mao Industries and got stolen by the Inspectors. We only got one Type 2 made, which should be sitting in a hangar in Langley Base. The Type 3 was barely a frame, the Shadow Mirrors were going to finish it once they got to the new world. All the spinoff and spare part were either lost with TLI or given to the EFA to keep them distracted from the Earthgains and Vairoses we were making."
+"That's a nice thought, Katina, but I don't have a lot to work with. The Type 0 was smeared over the Nevada desert along with its test pilot. Of the three Type 1s, two were dismantled to power the Lygeus, and the third was at Mao Industries and got stolen by the Inspectors. We only got one Type 2 made, which should be sitting in a hangar in Langley Base. The Type 3 was barely a frame, the Shadow Mirrors were going to finish it once they got to the new world. All the spinoffs and spare parts were either lost with TLI or given to the EFA to keep them distracted from the Earthgains and Vairoses we were making."
 
 "And the newcomers brought two."
 
@@ -383,18 +383,18 @@ The combined forces of the Irregulars and the surviving Shadow Mirrors are split
 
 The 4 Groups are currently:
 
-The Kurogane, A Space Noah class ship with a massive drill on the bow. It plans to burrow underground and come up in the middle of the EFA lines, to distract them from phases 3 and 4 of the plan, before heading west to the Pacific. Carries a Grungust, a customised high-performance Lion, a Giganscudo variant, a white flying Gespenst with a sniper rifle, and their Beowulf in the Gespenst Mk3 (although they don't call either of them that).
+1: The Kurogane, A Space Noah class ship with a massive drill on the bow. It plans to burrow underground and come up in the middle of the EFA lines, to distract them from phases 3 and 4 of the plan, before heading west to the Pacific. Carries a Grungust, a customized high-performance Lion, a Giganscudo variant, a white flying Gespenst with a sniper rifle, and their Beowulf in the Gespenst Mk3 (although they don't call either of them that).
 
-The XN-Giest, their interdimensional travelling unit, has enough space to carry some units with it while it makes a short-range teleport and attacks the EFA from behind. It's currently carrying the Tandem Brigade, made up of fresh young pilots flying mass-produced mechs called Huckebiens. It'll then be headed south to meet up with 2 units who left to contact the DC.
+2: The XN-Giest, their interdimensional travelling unit, has enough space to carry some units with it while it makes a short-range teleport and attacks the EFA from behind. It's currently carrying the Tandem Brigade, made up of fresh young pilots flying mass-produced mechs called Huckebiens. It'll then be headed south to meet up with 2 units who left to contact the DC.
 
-The Hiryu Kai, a fast warship which will blitz the EFA in the north and break through with a direct assault. Carries a group of 4 unusual mechs called the SRX Team, a 'Huckebein MkIII' piloted by a manipulative bitch called Viletta, 3 Gespenst Customs, and their version of W17 in her Angelg
+3: The Hiryu Kai, a fast warship which will blitz the EFA in the north and break through with a direct assault. Carries a group of 4 unusual mechs called the SRX Team, a 'Huckebein MkIII' piloted by a manipulative bitch called Viletta, 3 Gespenst Customs, and their version of W17 in her Angelg
 
-The last flyable Shadow Mirror Trilobite: Filled nearly to capacity with wounded SM pilots and technicians, who were rudely thrown out of the Lygeus portal, it also has a few vital pieces of technology onboard, but you're fairly sure its been scanned by the Irregulars a dozen times, so there'll be no surprise for them.
+4: The last flyable Shadow Mirror Trilobite: Filled nearly to capacity with wounded SM pilots and technicians, who were rudely thrown out of the Lygeus portal, it also has a few vital pieces of technology onboard, but you're fairly sure its been scanned by the Irregulars a dozen times, so there'll be no surprise for them.
 
 You have your Soulgain, not at 100% after tangling with Beowulf twice in a row but ready for a brawl anyway, and W17 in her Angelg, who's voice-chip or somesuch has been damaged, making her stutter like a skipping record.
 
-WHICH GROUP WILL YOU GO WITH? The obvious choice is to stick with the surviving Mirrors, but there are other things to consider: The Kurogane has their Beowulf, who you're not sure they realise the threat of, and going west means you may meet your Beowulf, and try for round 3. The Giest is their secret weapon, and is guarded only by grunts: You could cripple their plans if you take the risk. And you have a score to settle with the crew of the Hiryu Kai. Their commanders have offered to switch a few of their units to the Trilobite: It means the wounded will be at their mercy, but you could be in a better position to get revenge. On who you're not sure.
+**WHICH GROUP WILL YOU GO WITH?** The obvious choice is to stick with the surviving Mirrors, but there are other things to consider: The Kurogane has their Beowulf, who you're not sure they realise the threat of, and going west means you may meet your Beowulf, and try for round 3. The Giest is their secret weapon, and is guarded only by grunts: You could cripple their plans if you take the risk. And you have a score to settle with the crew of the Hiryu Kai. Their commanders have offered to switch a few of their units to the Trilobite: It means the wounded will be at their mercy, but you could be in a better position to get revenge. On who you're not sure.
 
-HOW MUCH OF A DICK ARE YOU THE READERS GOING TO MAKE THIS VERSION OF AXEL? Will he be obsessed with Beowulf, a scheming Shadow Mirror fanatic, a petty bitter man who's lost everything, or someone who fights for a dim point of light in the future?
+**HOW MUCH OF A DICK ARE YOU THE READERS GOING TO MAKE THIS VERSION OF AXEL?** Will he be obsessed with Beowulf, a scheming Shadow Mirror fanatic, a petty bitter man who's lost everything, or someone who fights for a dim point of light in the future?
 
-Niether you or they have any idea where Lemon is. The last you saw, she and Vindel dissappeared in a flash of light, apparenly using the last of the Zweizergains strength to escape the Irregulars. They plan to search for the Zweizergain after they've all escaped. You're not sure if they'll trust you to accompany them on the search once you've gotten out of the EFA cordon.
+Neither you or they have any idea where Lemon is. The last you saw, she and Vindel disappeared in a flash of light, apparently using the last of the Zweizergains strength to escape the Irregulars. They plan to search for the Zweizergain after they've all escaped. You're not sure if they'll trust you to accompany them on the search once you've gotten out of the EFA cordon.
