@@ -12,4 +12,4 @@ It went surprisingly well:
 #### Somewhen in the relative future
 I got insane and decided to press SRWQ into something resembling a novel instead of a bunch of disjoined posts.
 
-[intro]: images/SRWQ+Hand.png  "The sum of it"
+[intro]: images/SRWQ_Hand.png  "The sum of it"
