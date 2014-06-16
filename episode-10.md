@@ -13,6 +13,36 @@ While normally we follow Shadow Mirror Katina Tarask, a psycho in a cute dress w
 
 ---
 
+####SRWQ SIDE MISSION 2: THE BREAKOUT
+
+You are Axel Almer, and you haven't had a good day.
+
+With the EFA closing in on all sides, you've been forced to work with the mysterious other-dimensional warriors you've termed the Irregulars. The same group of warriors who are responsible for the Shadow Mirrors being destroyed, and who've admitted to you that they plan to destroy the Acqeuis system in the Zweizergain. Seeing how pointless this would be without also killing Vindel and your lover Lemon Browning, who built the system, you don't intend this plan to go ahead.
+
+But with half the EFA fleet and several companies of PTs being landed around you, you don't have much choice but to go along with this.
+
+The combined forces of the Irregulars and the surviving Shadow Mirrors are splitting into 4 groups, intend on a 4-way breakout before the EFA attacks. The EFA jamming is still in effect: After they leave the TLI, each group will be on its own until it gets out of the cordon.
+
+The 4 Groups are currently:
+
+1. The Kurogane, A Space Noah class ship with a massive drill on the bow. It plans to burrow underground and come up in the middle of the EFA lines, to distract them from phases 3 and 4 of the plan, before heading west to the Pacific. Carries a Grungust, a customized high-performance Lion, a Giganscudo variant, a white flying Gespenst with a sniper rifle, and their Beowulf in the Gespenst Mk3 (although they don't call either of them that).
+
+2. The XN-Giest, their interdimensional travelling unit, has enough space to carry some units with it while it makes a short-range teleport and attacks the EFA from behind. It's currently carrying the Tandem Brigade, made up of fresh young pilots flying mass-produced mechs called Huckebiens. It'll then be headed south to meet up with 2 units who left to contact the DC.
+
+3. The Hiryu Kai, a fast warship which will blitz the EFA in the north and break through with a direct assault. Carries a group of 4 unusual mechs called the SRX Team, a 'Huckebein MkIII' piloted by a manipulative bitch called Viletta, 3 Gespenst Customs, and their version of W17 in her Angelg
+
+4. The last flyable Shadow Mirror Trilobite: Filled nearly to capacity with wounded SM pilots and technicians, who were rudely thrown out of the Lygeus portal, it also has a few vital pieces of technology onboard, but you're fairly sure its been scanned by the Irregulars a dozen times, so there'll be no surprise for them.
+
+You have your Soulgain, not at 100% after tangling with Beowulf twice in a row but ready for a brawl anyway, and W17 in her Angelg, who's voice-chip or somesuch has been damaged, making her stutter like a skipping record.
+
+**WHICH GROUP WILL YOU GO WITH?** The obvious choice is to stick with the surviving Mirrors, but there are other things to consider: The Kurogane has their Beowulf, who you're not sure they realise the threat of, and going west means you may meet your Beowulf, and try for round 3. The Giest is their secret weapon, and is guarded only by grunts: You could cripple their plans if you take the risk. And you have a score to settle with the crew of the Hiryu Kai. Their commanders have offered to switch a few of their units to the Trilobite: It means the wounded will be at their mercy, but you could be in a better position to get revenge. On who you're not sure.
+
+**HOW MUCH OF A DICK ARE YOU THE READERS GOING TO MAKE THIS VERSION OF AXEL?** Will he be obsessed with Beowulf, a scheming Shadow Mirror fanatic, a petty bitter man who's lost everything, or someone who fights for a dim point of light in the future?
+
+Neither you or they have any idea where Lemon is. The last you saw, she and Vindel disappeared in a flash of light, apparently using the last of the Zweizergains strength to escape the Irregulars. They plan to search for the Zweizergain after they've all escaped. You're not sure if they'll trust you to accompany them on the search once you've gotten out of the EFA cordon.
+
+---
+
 Tetsuya Onodera goes over the plan one more time. "The Kurogane strikes first in the west, followed by the Giest in the south. We suppress the EFA forces, forces them to draw back their forces. Then the Hiryu breaks north, and makes a run to the Canadian border. With the EFA lines pressed in 3 areas, Axel should be able to get his men out on the Trilobite heading west into this... desert region."
 
 Axel smirks. "It's called the Elpis Wastes. The DC took two colonies that the EFA wrecked during the Suppression, Hope and Elpis, and sent them towards the surface to take out Geneva and Langley Base. Neither came within a hundred miles of their target, but they still caused some mighty bits of devestation. Seems your world got the soft version of the DC War..."
