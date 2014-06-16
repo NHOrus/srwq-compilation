@@ -6,7 +6,8 @@
 
 The continuing adventures of Shadow Mirror Katina Tarask, the psychotic dress-wearing sex offender who adventures in a world being torn apart by the invasion from the OGverse.
 
-####Dramatis Personae (Most of you should know their personalities by now)
+####Dramatis Personae
+(Most of you should know their personalities by now)
 
 + Katina Tarask: Piloting RaiOh
 + Irm: Piloting Assault Lander
@@ -245,10 +246,6 @@ This would have been a great idea a few hours, when this was a bustling port tow
 The only spot that even remotely hidden that the crippled Hippo can get to on its own steam is the Ocean. You can load with unwanted units, seal it up, and set it to crawl out to see to a depth the EFA won't find it. It's a risk and it'll be a bitch to retrieve afterwards, but its your best option if you want to store shit for later.
 
 Funds and parts are mainly a game abstraction. I'm being flexible here but your main problem up until now has been time and manpower. You were overworking John, Rio and Ryoto just to keep your mechs working. Now that you have some actual people to use and a little more free time, you can start making suggestions to customise your units. But major changes will need the right engineer behind them.
-```
----
-
-The Hangar door seals itself shut, locking away the Assault Lander and a large pile of broken Gespensts. As the automatic program kicks in, the wounded Hippo slowly turns, and heads out to sea, sinking into the depths.
 
 Current Mech Roster:
 DGG-03 - Katina
@@ -262,153 +259,40 @@ Guarlion - Arado is being entrusted with this.
 Rathgrith - Echidna
 Schutzwald - Ibis, although she claims she prefers solid shot weaponry, and is looking longingly at the Rathgrith.
 
-IS THIS OK Y/N?
+```
+---
+
+The Hangar door seals itself shut, locking away the Assault Lander and a large pile of broken Gespensts. As the automatic program kicks in, the wounded Hippo slowly turns, and heads out to sea, sinking into the depths.
 
 You're currently a pilot short, although Echidna says she can fix that, if you give her some time in the medical bay without any distractions.
-Jerid Messa !!AbDOcayw4O/ Thu 04 Feb 2010 09:50:40 No.4476668 Report
-I see no issues with it.Ibis shouldn't get the Rathgrith yet, she'll use up all the ammo. And let Echidna boot up whichever W-Number is in the pod, maybe it'll be Caldia or Zombie Arado. Or Ouka, Ouka is good too.
-Anonymous Thu 04 Feb 2010 10:05:40 No.4476705 Report
-i'm fine with echidna activating a W-series, as long as it isnt zombie arado. that would just push us right back into "too insane to be allowed to live" territory again, which we all agreed would be a bad thing.
-Sanger Zombolt! Thu 04 Feb 2010 10:09:40 No.4476714 Report
-Quoted By: >>4476721
->>4476663
-That's very fine with me. I can't wait to see which W is spit out.
-Sanger Zombolt! Thu 04 Feb 2010 10:11:40 No.4476721 Report
->>4476714
-Although I would prefer switch Lat and Ibis, seeing Ibis has had more experience with front-line mechs and Lat with support mechs.
-Anonymous Thu 04 Feb 2010 10:17:40 No.4476734 Report
-go with the zombie arado, just imagine the fun and games that would go on after katina figures out she has two toys of the same kind
-Anonymous Thu 04 Feb 2010 10:18:40 No.4476740 Report
-Quoted By: >>4476847 >>4477685
->>4476663
-High tier:
-DGG-03
-DGG-04
 
-Mid tier:
-Soldifar
-Guarlion Custom
-Rathgrith
+---
 
-Low tier:
-Schutzwald
-Wildraubtier
-
-Shit tier:
-Greenspent
-Bluespent
-Redspent
-Couch Thu 04 Feb 2010 10:56:40 No.4476847 Report
-Quoted By: >>4476857
->>4476740
-Come on, MP-Wildraubiter is mid-tier. It's a reverse-MP R-1, and we've already noted that it's stronger than the original Raubiter due to the way tech progressed in the SM-verse.
-Anonymous Thu 04 Feb 2010 10:58:40 No.4476857 Report
->>4476847
-He called Gespensts shit tier, it's obviously a troll
-Anonymous Thu 04 Feb 2010 13:48:40 No.4477208 Report
-Quoted By: >>4477245
->>4476127
->You killed me, Katina...
-
-Oh shit? W Series Arado?
-Anonymous Thu 04 Feb 2010 14:24:40 No.4477245 Report
->>4477208
-katina obviously killed a lot of people...
-But, yeah, that would be interesting...
-I wonder what a machine cells modified Wurger looks like ?
-Anonymous Thu 04 Feb 2010 17:22:40 No.4477685 Report
-Quoted By: >>4477744
->>4476740
->Low tier:
->Wildraubtier
-
-Fuck you with a knife!
-
-Anyway, while we have the chance I think we should give Latooni her ribbons back and give her a chance to get comfortable with us rather than RAPE RAPE RAPE (amusing as it is)
-Sciencegar Sciencebolt Thu 04 Feb 2010 18:17:40 No.4477735 Report
-Quoted By: >>4477756 >>4477759 >>4477768 >>4478022
-The Trilobite is underway, crossing the Gulf of Mexico at a rate of 60 knots and a depth of 20 meters to avoid what few radars that could pick it up at rangee. You'll have at least 8 hours to kill before you arrive in Brazil.
-
-WHAT DOES KATINA DO? I already see one suggestion, any more?
-Jerid Messa !!AbDOcayw4O/ Thu 04 Feb 2010 18:21:40 No.4477744 Report
->>4477685
-
-Yeah lets just give it back, lets try not to get the sex offender bad end.
-Anonymous Thu 04 Feb 2010 18:29:40 No.4477756 Report
->>4477735
-Try to talk to Arado, try to hold back the crazy.
-Anonymous Thu 04 Feb 2010 18:31:44 No.4477759 Report
->>4477735
-
-Show up at the last 30 seconds.
-
-Because we can.
-Anonymous Thu 04 Feb 2010 18:34:40 No.4477768 Report
->>4477735
-Let's try to act as normal as possible (within reason, we are psychodere Katina after all) and try to get everyone less wary of us. Apologise to Arado for the apparent bipolarity, give Latooni back her ribbon, even apologise to Ryoto for kicking him around, stuff like that.
-
-Also leave Echidna alone to do whatever she's doing in the medbay.
-Stealthyboy !fchRKomfls Thu 04 Feb 2010 19:50:40 No.4477997 Report
->>4476490
->>4475499
-I can't believe people have actually kept those shitty pictures I did. Yes, that was me before I stopped being anon
-
-Also fuck yeah, Soldifar, Raubtier and Schutzwald.
-Anonymous Thu 04 Feb 2010 19:57:40 No.4478022 Report
->>4477735
-Let's have a chat with Dumi about where he came from and how he got those friends he mentioned back when we blew up the transport. We know entirely too little about it.
-Sciencegar Sciencebolt Thu 04 Feb 2010 19:59:40 No.4478030 Report
-Quoted By: >>4478048 >>4478050 >>4478053
 You find Irm and Latooni in the hangar, next to the new Soldifar.
 
 "Are you sure you want to try out something like this? I thought you were an artillery specialist."
 
 "My main offensive strength is presicion weapons fire at all ranges. Douglas is an artillery specialist, focusing on suppressing the enemy with heavy weapons. I would prefer a mobile mech with beam weaponry, like this one or the Raubtier."
 
-"Ok, I guess we all have our preferences...Oh hey Katina...er...What's up?"
+"Ok, I guess we all have our preferences... Oh hey Katina... er... What's up?"
 
-"I....I just want to say sorry for how I've been acting. I know its been hard on all of you to put up with me, and it means we haven't come together as a team the way we should, and I really want to make up for it."
+"I... I just want to say sorry for how I've been acting. I know its been hard on all of you to put up with me, and it means we haven't come together as a team the way we should, and I really want to make up for it."
 
-Irm once again proves critically vunerable to your moeface. "Oh...Oh, Katina, don't worry about it. We realise that things are difficult for you, with your condition and all. But the important thing is, you know whose side you're on, and you're trying your best to help us. With Dumi watching out for you, you should be fine. We'll all help you get through this."
+Irm once again proves critically vunerable to your moeface. "Oh... Oh, Katina, don't worry about it. We realise that things are difficult for you, with your condition and all. But the important thing is, you know whose side you're on, and you're trying your best to help us. With Dumi watching out for you, you should be fine. We'll all help you get through this."
 
-"Th-thank you, Irm-kun. And Subo...Latooni...you can have this back." You hand her back the ribbon. "I'm sorry I...just, sorry."
+"Th-thank you, Irm-kun. And Subo... Latooni... you can have this back." You hand her back the ribbon. "I'm sorry I... just, sorry."
 
 Latooni takes back the ribbon gingerly, her face expressionless as she adjusts her glasses. "Whatever. You should see to your mechs maintenance, and ask the AI to tell you how to pilot it. You'll never improve if you end up burning to death in a melting pile of slag." With this, she hops down the gantry stairs and heads for the bridge.
 
 Irm blinks after her. "Frankly, Katina, this pack of misfits has mental issues all round."
 
-WHO DO YOU TALK TO NEXT?
+---
 
-Remaining:
-Kai
-Arado
-Dumi
-Russel
-Ibis
-Engineers
+"K-k-k-katina! H-how are you today? Feeling... mellow, maybe." Arado's brow beings to drip sweat.
 
-Other activities possible. Hours remaining: 7
-Anonymous Thu 04 Feb 2010 20:03:40 No.4478048 Report
->>4478030
-Let's go Fangirl it up over Kai and the fact that we get to see him kick ass now.
-Stealthyboy !fchRKomfls Thu 04 Feb 2010 20:05:40 No.4478050 Report
->>4478030
-Talk to the Arado, try not to go all bipolar. We need him to trust us until we can get him in a frilly dress.
-Anonymous Thu 04 Feb 2010 20:06:40 No.4478053 Report
-Quoted By: >>4478214
->>4478030
->You'll never improve if you end up burning to death in a melting pile of slag.
+"Oh Arado, I'm so sorry if we got off to the wrong foot. It's just.. .I have a history, when I was at the School. I knew... this worlds Arado, and we were close. Then, he died at the School, and I haven't been the same since. I sort of pushed all my feelings for him onto you, and that wasn't fair. I guess, maybe it'd be better, if we started afresh."
 
-Is Latooni almost showing concern for our survival? I'm touched.
-
-Go speak to Arado next.
-Sciencegar Sciencebolt Thu 04 Feb 2010 20:35:40 No.4478192 Report
-Quoted By: >>4478208 >>4478219 >>4478229
-"K-k-k-katina! H-how are you today? Feeling...mellow, maybe." Arado's brow beings to drip sweat.
-
-"Oh Arado, I'm so sorry if we got off to the wrong foot. It's just...I have a history, when I was at the School. I knew...this worlds Arado, and we were close. Then, he died at the School, and I haven't been the same since. I sort of pushed all my feelings for him onto you, and that wasn't fair. I guess, maybe it'd be better, if we started afresh."
-
-"Oh...Oh, alright, if you put it that way...But, if you don't mind me saying, aren't you like, 25?"
+"Oh... Oh, alright, if you put it that way... But, if you don't mind me saying, aren't you like, 25?"
 
 "Th-thats not old! I'm not old! The School even takes old women sometimes!"
 
@@ -422,112 +306,23 @@ Quoted By: >>4478208 >>4478219 >>4478229
 
 You run off, teary-eyed, leaving Arado in possibly the worst state of shock yet.
 
-"OUKA?? But that...I wouldn't....OUKA???"
+"OUKA?? But that... I wouldn't.... OUKA???"
 
 Hours remaining 6
 
-WHO NEXT? You can repeat people if you feel the need to shore up issues.
-Anonymous Thu 04 Feb 2010 20:39:40 No.4478208 Report
-Quoted By: >>4478211
->>4478192
-Now I want to meet SM Ouka, and then kick her face in with Rai-oh.
-Sciencegar Sciencebolt Thu 04 Feb 2010 20:40:40 No.4478211 Report
->>4478208
+---
 
-I have plans, terrible terrible plans.
-View SameGoogleiqdbSauceNAO 2577970.jpg, 28KiB, 450x646
-Latooni !ol39NwUlQs Thu 04 Feb 2010 20:40:40 No.4478214 Report
->>4478053
-
->Is Latooni almost showing concern for our survival? I'm touched.
-Anonymous Thu 04 Feb 2010 20:41:40 No.4478219 Report
->>4478192
->And he was the one who went for that slut
-Oh some stuff about Arado going with Seoll...
->Ouka!!
-wat
-
-I vote going to see the engineers about fixing up the Raioh, then go talk to Dumi to get a handle on precisely what our unit's capabilities are.
-Stealthyboy !fchRKomfls Thu 04 Feb 2010 20:44:40 No.4478229 Report
-Quoted By: >>4478244
->>4478192
-Ouka? What a tweeeeest. I'd been expecting that he'd run off with Seolla due to the 'big breasted whore' comments.
-I say we go talk to the engineers next, find out how the repairs on Raioh are going (and try to get Ryoto fired up to become a pilot. Insult his manhood in front of Rio or something, having an OG!Newtype on the team would be good).
-Anonymous Thu 04 Feb 2010 20:47:40 No.4478244 Report
-Quoted By: >>4478260
->>4478229
-Why not try to grab Rio instead? They're both OG Newtypes, and I think Rio has more piloting experience. She was at least trying to pilot the Trilobite while Ryoto was working on the mechs.
-
-Anyway, seconding engineers and then Dumi.
-Stealthyboy !fchRKomfls Thu 04 Feb 2010 20:49:40 No.4478260 Report
-Quoted By: >>4478270 >>4478377
->>4478244
-Ryoto was going to take out the Raioh before we nearly broke his neck.
-...
-Okay, so I just prefer Ryoto. Is seeing a badass Alternate Ryoto too much to ask?
-Anonymous Thu 04 Feb 2010 20:50:40 No.4478270 Report
-Quoted By: >>4478377
->>4478260
->Okay, so I just prefer Ryoto. Is seeing a badass Alternate Ryoto too much to ask?
-
-I vote we try our hardest to turn Ryoto badass.
-Sciencegar Sciencebolt Thu 04 Feb 2010 21:15:40 No.4478375 Report
-Quoted By: >>4478386 >>4478387 >>4478394
 After drying your eyes, you head to the back of the hangar, where Rio and Dumi appear to be having a conversation over the Raioh, Ryoto and Kai are having an argument at the new Gespenst, and you see Johnathan Kazahara in the corner, absent-mindedly tapping at a datapad and looking forlorn.
 
-WHICH GROUP WILL WE TALK TO?
-Sanger Zombolt! Thu 04 Feb 2010 21:16:40 No.4478377 Report
-Quoted By: >>4478425
->>4478260
->>4478270
-I OBJECT!
-
-Ryoto can never be badass. He can only be an insecure kid who gets a single moment to shine in the story and then slips nto obscurity. FOREVER!!!
-Anonymous Thu 04 Feb 2010 21:18:40 No.4478385 Report
-Quoted By: >>4478392
-OG term for Newtypes is psychodrivers, in case people want to actually use the correct term.
-
-They're actually way more powerful than Newtypes.
-Stealthyboy !fchRKomfls Thu 04 Feb 2010 21:18:40 No.4478386 Report
->>4478375
-Go see the studly stud Kai and Ryoto. Try to make Ryoto badass.
-Anonymous Thu 04 Feb 2010 21:18:40 No.4478387 Report
->>4478375
-I say we talk to Dr Kazahara.
-
-The lost of the Assault Lander must have been painful for him. Let's try to cheer him up.
-Stealthyboy !fchRKomfls Thu 04 Feb 2010 21:19:40 No.4478392 Report
->>4478385
-Yeah, we know they're Psychodrivers, it's just more funny calling them OG!Newtypes.
-Sanger Zombolt! Thu 04 Feb 2010 21:19:40 No.4478394 Report
->>4478375
-Let's talk to the good old doctor. He looks so lonely on the corner...
-Anonymous Thu 04 Feb 2010 21:27:40 No.4478424 Report
-Talk to John. Maybe we can inspire him to think up something new and awesome. Like Jet Magnums on Grungust, as an awesome typo in a previous thread suggested.
-Sciencegar Sciencebolt Thu 04 Feb 2010 21:27:40 No.4478425 Report
-Quoted By: >>4478429 >>4478462 >>4478489
->>4478377
-
-I'm not trying to screw Ryoto over deliberately, its just that his OG backstory as Relucant Yet Competent Hero #27793 isn't inspiring. I needed some mechanic characters and the idea of a Shadow Mirror fanatic who never gets to actually do anything major for his team appealled on some level.
-Anonymous Thu 04 Feb 2010 21:28:40 No.4478429 Report
->>4478425
->its just that his OG backstory as Relucant Yet Competent Hero #27793 isn't inspiring. 
-
-Ahh, the downside of stuffing all alpha protagonists in at once.
-Anonymous Thu 04 Feb 2010 21:39:40 No.4478462 Report
->>4478425
-In OG Ryoto is basically a Generic UC gundam protagonist. The downside is that the Hagane doesn't actually need to rely on him the same way Whitebase or Argama relied on their newtype aces.
-Sciencegar Sciencebolt Thu 04 Feb 2010 21:40:40 No.4478463 Report
-Quoted By: >>4478472 >>4478484 >>4478488 >>4478489
 "Er, Doctor Kazahara?..."
 
 Johnathan looks up. "Ah, if it isn't our resident firebrand. Whats a vibrant young thing dealing with an old fart like me for? Not that I mind..."
 
-"Erm, its just...you're looking really lonely in the corner, I just wanted to know if everything was alright."
+"Erm, its just... you're looking really lonely in the corner, I just wanted to know if everything was alright."
 
-With these words, you can see Johnathan visibly deflate, and he seems to age ten years. "I...I'm just feeling quite lonely right now."
+With these words, you can see Johnathan visibly deflate, and he seems to age ten years. "I... I'm just feeling quite lonely right now."
 
-"Lonely...Oh, the TLI, you worked there, didn't you? You must have lost a lot of friends yesterday..."
+"Lonely... Oh, the TLI, you worked there, didn't you? You must have lost a lot of friends yesterday..."
 
 "You know, the funny thing is, I really didn't. TLI hasn't been home for me for a long time, every since Rob, Kirk, and Marion all left. Back in the days of the Grungust, when we were building the greatest robots on earth together, the place really seemed alive to me. But then the Mk2 was cancelled, and all my friends were cherry-picked and dragged away to different EFA projects. The TLI became practically a ghost town, until Dr. Albark showed up, and started making the Earthgain series. Then we managed to convince ourselves we needed to make some kind of stand, and we fell in with Shadow Mirror, trying to see if they could use our expertise to some kind of good."
 
@@ -535,120 +330,6 @@ He tosses the datapad aside and rubs his face in his hands. "But through it all,
 
 He lets out a long, weary sigh.
 
-ANYTHING TO SAY, OR SHALL WE SLOWLY BACK AWAY?
-Anonymous Thu 04 Feb 2010 21:42:40 No.4478472 Report
->>4478463
->the Assault Landers at the bottom of the sea
-
-WE MADE HIS LIFE WORSE
-
-FFFFFFFFFFFFFFFFFFFFFFFF NO
-Anonymous Thu 04 Feb 2010 21:45:05 No.4478480 Report
->>4472893
-Stop spamming www. anon
-talk
-. com thanks.
-Sanger Zombolt! Thu 04 Feb 2010 21:49:40 No.4478484 Report
-Quoted By: >>4478494 >>4478495 >>4478543
->>4478463
-FUCK YOU FOR MAKING ME FEEL BAD!
-
-You know what? Fuck it. Let's build a REAL grungust when we get to Brazil.
-
-Tell him we will!
-Anonymous Thu 04 Feb 2010 21:51:40 No.4478488 Report
->>4478463
-Cheer up emo dad...
-Stealthyboy !fchRKomfls Thu 04 Feb 2010 21:51:40 No.4478489 Report
-Quoted By: >>4478543
->>4478425
->Relucant Yet Competent Hero #27793
-That's why I say we turn him into a complete badass.
->>4478463
-Johnathan... ;__;
-He needs to be comforted. Unfortunately, we are Katina Tarask. The nearest he'll get is probably pity sex.
-Anonymous Thu 04 Feb 2010 21:53:40 No.4478494 Report
-Quoted By: >>4478505 >>4478517 >>4478543
->>4478484
-Yeah ! Some BBG (Big Baddass Grungust) with a revoler Drill !!!
-View SameGoogleiqdbSauceNAO CopY 1265276845843.png, 534KiB, 1000x514
-Sanger Zombolt! Thu 04 Feb 2010 21:53:40 No.4478495 Report
-Quoted By: >>4478500 >>4478510 >>4478543
->>4478484
-Arado was part of the School and knows all about the mech lines in his worlds, right?
-
-And he becomes badass and intelligent when he or his friends are in mortal danger?
-
-Let's make him tell us how to make a grungust, or else he will get his balls crushed with the Raioh's lightning fall. Then we build it when we get the chance.
-Anonymous Thu 04 Feb 2010 21:54:40 No.4478500 Report
-Quoted By: >>4478511
->>4478495
-Okay knowing about robot types does not mean you understand the engineering behind them.
-Anonymous Thu 04 Feb 2010 21:55:40 No.4478505 Report
-Quoted By: >>4478517
->>4478494
-And a gigantic jet magnum! And a gigantic Oxtongue Rifle!
-Anonymous Thu 04 Feb 2010 21:56:40 No.4478506 Report
-Quoted By: >>4478543
-Clearly the only option is to steal the Fortress Wing from the EFA, grab the Assault Lander back once we've done that, mount a drill on the Fortress wing so we have enough for the shoulders then form GRUNGUST TYPE 3 CUSTOM!
-Stealthyboy !fchRKomfls Thu 04 Feb 2010 21:57:40 No.4478510 Report
->>4478495
->Implying Arado isn't a complete moron.
-...
-Although I'm in agreement about letting Johnathan design/make a new Grungust.
-Sanger Zombolt! Thu 04 Feb 2010 21:57:40 No.4478511 Report
-Quoted By: >>4478543
->>4478500
-But Kazahara does know the overall gist of making a grungust. He has the basics, Arado provides the cherry topping.
-
-GENTLEMEN, WE WILL CREATE THE BIGGEST AND MOST BADASS GRUNGUST THIS WORLD HAS EVER KNOWN.
-
-We need drawfags!
-Shas'El Thu 04 Feb 2010 21:59:40 No.4478516 Report
-Quoted By: >>4478543
-FUCK YEAH GRUNGUST
-
-Those bitches won't know what hit them.
-Anonymous Thu 04 Feb 2010 21:59:40 No.4478517 Report
-Quoted By: >>4478543 >>4478558 >>4478669
->>4478494
->>4478505
-Gigantic Jet Revolver Drill Magnum !
-sounds decent enouth
-Anonymous Thu 04 Feb 2010 22:06:40 No.4478543 Report
-Quoted By: >>4478552
->>4478484
->>4478489
->>4478494
->>4478495
->>4478506
->>4478511
->>4478516
->>4478517
-
-you ditched the closest thing we had to a grungust and now you want grungusts
-
-indecisive fucks
-
-not that i mind actually
-
-i want to have a real grungust who is actualy worth the space it takes
-Stealthyboy !fchRKomfls Thu 04 Feb 2010 22:08:40 No.4478552 Report
->>4478543
->you ditched the closest thing we had to a grungust and now you want grungusts
-
-See your own post
-
->i want to have a real grungust who is actualy worth the space it takes
-Jerid Messa !!AbDOcayw4O/ Thu 04 Feb 2010 22:09:40 No.4478557 Report
-Crap now I feel bad for locking away the Assault Lander. We should cheer him up and talk about plans for an actual Grungust once we get to Brazil or Van's awesome Inspector quality factories. Then go talk to Rio, she probably has some interesting stuff to talk about.
-Anonymous Thu 04 Feb 2010 22:09:40 No.4478558 Report
->>4478517
-With the biggest sword in the entire universe!
-
-Goldion......CUTTEEEEEEEEEEEER!
-Sciencegar Sciencebolt Thu 04 Feb 2010 22:14:40 No.4478581 Report
-Quoted By: >>4478591 >>4478605 >>4478669
 "Well...maybe the best way to help him would be to make him a new Grungust!"
 
 Johnathan looks up at this. "What?"
@@ -659,137 +340,12 @@ Johnathan looks up at this. "What?"
 
 "And the newcomers brought two."
 
-"...Really? I didn't see that at all. Wow....what if one of those has another Irm on it, that could get awkward..."
+"...Really? I didn't see that at all. Wow... what if one of those has another Irm on it, that could get awkward..."
 
 "But you basically designed the Grungust from the ground up! Surely there must be something you can use to make one."
 
-Johnathan shakes his head. "Not in the battle of an overgrown flying shellfish, at the very least. I'd need heavy-duty parts to act as the frame, and a power source with the same power output as a Cracker Engine or greater. Those types of things, you don't find lying around. And even then, starting from scratch, it'd take months."
+Johnathan shakes his head. "Not in the back of an overgrown flying shellfish, at the very least. I'd need heavy-duty parts to act as the frame, and a power source with the same power output as a Cracker Engine or greater. Those types of things, you don't find lying around. And even then, starting from scratch, it'd take months."
 
-DO YOU HAVE ANY OTHER SUGGESTIONS TO HELP HIM, THAT DOn'T REQUIRE ASSAULTING SOME OF THE LARGEST EFA BASES?
-Sciencegar Sciencebolt Thu 04 Feb 2010 22:17:40 No.4478589 Report
->Not in the battle of an overgrown flying shellfish
-
-That should have been 'not in the back of'. I apologise for my constant brainfarts.
-Anonymous Thu 04 Feb 2010 22:17:40 No.4478591 Report
->>4478581
-"Don't worry, I have plans!"
-
-Then go speak to Rio and Dumi.
-Jerid Messa !!AbDOcayw4O/ Thu 04 Feb 2010 22:20:40 No.4478603 Report
-Van defected to the Inspectors right? When we get there we'll beat the location out of em so we can take it.
-Sanger Zombolt! Thu 04 Feb 2010 22:20:40 No.4478605 Report
-Quoted By: >>4478612 >>4478625 >>4478656 >>4478700
->>4478581
->Find an EFA base.
-
->Trick them into sending one of their bigger robots.
-
->Steal it, Kamina style.
-
->Dump whatever piece of shit we have lying around.
-
->GRUNGUST, YAAYYY!
-Samefag the Avenger Thu 04 Feb 2010 22:23:40 No.4478612 Report
-Quoted By: >>4478656 >>4478700
->>4478605
-Oh god, this is such a stupid plan. Well, let's get to it. What is the biggest robot the EFA has?
-Anonymous Thu 04 Feb 2010 22:27:40 No.4478625 Report
-Quoted By: >>4478656 >>4478667 >>4478700
->>4478605
-We will need quick mechs and guerilla tactics if we are going to pull this off. And an amzing plot armor too.
-
-But if we pull off those guerilla tactics Imentioned flawlessly, they shouldn't be able to track us down. I am ok with this.
-Anonymous Thu 04 Feb 2010 22:28:05 No.4478630 Report
->>4472894
-Stop spamming www. anon
-talk
-. com thanks.
-Stealthyboy !fchRKomfls Thu 04 Feb 2010 22:35:40 No.4478656 Report
-Quoted By: >>4478673
->>4478625
->>4478612
->>4478605
-This is so not going to work, and will end in someone dying. Probably Katina.
-Anonymous Thu 04 Feb 2010 22:38:40 No.4478667 Report
-Quoted By: >>4478672 >>4478700
->>4478625
-Basicaly, we will take the fastest mechs we have and equip them with the most destructive weapons we have in our hands. After that, we quickly boost into the base before they can react and destroy multiple facilities of importance, not to mention radar arrays and command buldings.
-
-Amidst this chaos, the Stealth Raubtier sneaks into one of their hangars, drops a pilot who then proceeds to steal one of their big mechs. Then the Raioh proceeds to take whatever miscellaneos parts we may need.
-
-This should take less than 5 minutes. After that, each mech boosts off in many different directions and then we proceed to reencounter each other in a specified point with the trillobite. This coupled with the confusion produced by the attack should make it possible to escape without issues.
-Anonymous Thu 04 Feb 2010 22:38:40 No.4478669 Report
->>4478517
-Let's not get too crazy. Just a simple Boost Jet Magnum is fine, the other weapons can be separate.
-And by simple Boost Jet Magnum, I mean the plasma stakes should be able to separate from the rest of the arm, so the Grungust first shoots it's fists into the enemy, then fires the fully charged plasma stakes.
->>4478581
-John said the Inspectors captured a Grungust. Van worked with the Inspectors. So maybe, just maybe, that old Type 1 ended up in his hands and he just doesn't have anyone with the know-how to get it up and running, or maybe he at least has all the specs for it, but again, lacks qualified people to fully build one.
-Stealthyboy !fchRKomfls Thu 04 Feb 2010 22:39:40 No.4478672 Report
-Quoted By: >>4478681
->>4478667
-1 problem. We don't have a StealthRaubtier. Well, we DO, but all the stealth coating was destroyed, leaving it as nothing more than a mass produced Raubtier.
-Sanger Zombolt! Thu 04 Feb 2010 22:40:40 No.4478673 Report
-Quoted By: >>4478689 >>4478700
->>4478656
-I just don't want to have an unhappy Kazahara with us!
-Anonymous Thu 04 Feb 2010 22:42:40 No.4478681 Report
-Quoted By: >>4478700
->>4478672
-Doesn't matter. The Raubtier is quick enough to slip by unnoticed. By the time it is discovered, it should already be flying off into the sunset.
-
-It just has to enter the Hangar and drop the pilot. No need to stay for unnecesary lenghts of time.
-View SameGoogleiqdbSauceNAO RmF_WilyEyebrow.gif, 1KiB, 50x50
-Stealthyboy !fchRKomfls Thu 04 Feb 2010 22:43:40 No.4478689 Report
-Quoted By: >>4478720 >>4478726
->>4478673
-I know, man. ;__;
-I guess we'll just have to fall back on the pity sex plan.
-Jerid Messa !!AbDOcayw4O/ Thu 04 Feb 2010 22:46:40 No.4478700 Report
-Quoted By: >>4478711 >>4478720
->>4478605
->>4478612
->>4478625
->>4478667
->>4478673
->>4478681
-
-Has it occurred to you all that Langley is in the opposite direction meaning we would have to actually fight our way to said base?
-
-Still support going to talk to Rio. And finding the Grungust model that Van has.
-Anonymous Thu 04 Feb 2010 22:47:05 No.4478707 Report
->>4472896
-Stop spamming www. anon
-talk
-. com thanks.
-Anonymous Thu 04 Feb 2010 22:47:40 No.4478711 Report
-Quoted By: >>4478715
->>4478700
-Who talked about going to Langley? We just want to get a big mech and parts from a random EFA base and get done with it.
-Anonymous Thu 04 Feb 2010 22:48:40 No.4478715 Report
-Quoted By: >>4478720
->>4478711
-But yeah, I admit that going with Van is better.
-
-Let's just hope he does have a Grungust.
-Sanger Zombolt! Thu 04 Feb 2010 22:50:40 No.4478720 Report
->>4478700
->>4478715
->>4478689
-Goddamnit Sciencegar! There better be a goddamned Grungust in Brazil.
-Samefag the Avenger Thu 04 Feb 2010 22:50:40 No.4478726 Report
-Quoted By: >>4478841
->>4478689
-I guess pity sex is the best thing we can do for him now.
-Anonymous Thu 04 Feb 2010 23:15:40 No.4478841 Report
->>4478726
-
-Maybe we can inspire him to make grungust katina by having pity sex with him...I mean Kazahara isn't the worst way to start harem to our beloved psykodere Katina.
-
-But the main point is to get him to build grungust, which bears strong resemble to katina, with jet magnum...
-Sciencegar Sciencebolt Thu 04 Feb 2010 23:18:40 No.4478853 Report
-The EFA uses very few 'big mechs', with the heaviest stuff being the Schutzwald and the Gigan series. They're quantity over quality type people. Super Robots tend to be made by smaller groups, experimental laboratories, rebel groups, and the like. If the EFA needs concentrated firepower, it uses Battleships and custom PTs like the Nacht. For other purposes, Gespenst Spam works just fine.
-Sciencegar Sciencebolt Thu 04 Feb 2010 23:29:40 No.4478907 Report
-Quoted By: >>4478977 >>4478984 >>4479007 >>4479054 >>4479059 >>4479073
 "Well, maybe we can't build one right now, but once we get to Africa, we'll have all of Van Trans factories to use!"
 
 "Well, maybe-"
@@ -806,44 +362,16 @@ Quoted By: >>4478977 >>4478984 >>4479007 >>4479054 >>4479059 >>4479073
 
 "Thats quite an ambitious idea..."
 
-
 You spend the next several hours with Johnathan, discussing plans both crazy and worryingly feasible.
 
+---
+```
 JOHNATHAN RELATIONSHIP LEVEL UP
 NEO GRUNGUST DESIGN START
-Anonymous Thu 04 Feb 2010 23:42:05 No.4478968 Report
->>4472894
-Stop spamming www. anon
-talk
-. com thanks.
-Couch Thu 04 Feb 2010 23:44:40 No.4478977 Report
->>4478907
-*whistles innocently and gets to designing*
-Anonymous Thu 04 Feb 2010 23:45:40 No.4478984 Report
->>4478907
-Awesome, new super is now in development.
-Anonymous Thu 04 Feb 2010 23:50:40 No.4479007 Report
->>4478907
->NEO GRUNGUST DESIGN START
-Hell yeah!
+```
+---
 
-Now let's go speak to Dumi and Rio.
-Sanger Zombolt! Fri 05 Feb 2010 00:00:40 No.4479054 Report
->>4478907
-You have made your ancestors proud, Sciencegar.
-Brave Exkaiser will Never Die Fri 05 Feb 2010 00:02:40 No.4479059 Report
->>4478907
-WHAT ARCANA IS JOHNATHAN.
-
-I NEED TO KNOW IN ORDER TO FUSE MY PERSONAE.
-Anonymous Fri 05 Feb 2010 00:04:40 No.4479073 Report
->>4478907
->NEO GRUNGUST DESIGN START
-
-Do we start designing it right now? Or is it just the first part of a long string of actions to create our very own Original Mech?
-Sciencegar Sciencebolt Fri 05 Feb 2010 00:05:40 No.4479078 Report
-Quoted By: >>4479088
-SRWQ SIDE MISSION 2: THE BREAKOUT
+####SRWQ SIDE MISSION 2: THE BREAKOUT
 
 You are Axel Almer, and you haven't had a good day.
 
