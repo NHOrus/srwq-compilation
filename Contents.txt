@@ -11,3 +11,13 @@ episode-07.txt
 episode-08.txt
 episode-09.txt
 episode-10.txt
+episode-11.md
+episode-12.md
+episode-13.md
+episode-14.md
+episode-15.md
+episode-16.md
+episode-17.md
+episode-18.md
+episode-19.md
+episode-20.md
