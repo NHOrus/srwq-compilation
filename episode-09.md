@@ -383,13 +383,13 @@ The combined forces of the Irregulars and the surviving Shadow Mirrors are split
 
 The 4 Groups are currently:
 
-1: The Kurogane, A Space Noah class ship with a massive drill on the bow. It plans to burrow underground and come up in the middle of the EFA lines, to distract them from phases 3 and 4 of the plan, before heading west to the Pacific. Carries a Grungust, a customized high-performance Lion, a Giganscudo variant, a white flying Gespenst with a sniper rifle, and their Beowulf in the Gespenst Mk3 (although they don't call either of them that).
+1. The Kurogane, A Space Noah class ship with a massive drill on the bow. It plans to burrow underground and come up in the middle of the EFA lines, to distract them from phases 3 and 4 of the plan, before heading west to the Pacific. Carries a Grungust, a customized high-performance Lion, a Giganscudo variant, a white flying Gespenst with a sniper rifle, and their Beowulf in the Gespenst Mk3 (although they don't call either of them that).
 
-2: The XN-Giest, their interdimensional travelling unit, has enough space to carry some units with it while it makes a short-range teleport and attacks the EFA from behind. It's currently carrying the Tandem Brigade, made up of fresh young pilots flying mass-produced mechs called Huckebiens. It'll then be headed south to meet up with 2 units who left to contact the DC.
+2. The XN-Giest, their interdimensional travelling unit, has enough space to carry some units with it while it makes a short-range teleport and attacks the EFA from behind. It's currently carrying the Tandem Brigade, made up of fresh young pilots flying mass-produced mechs called Huckebiens. It'll then be headed south to meet up with 2 units who left to contact the DC.
 
-3: The Hiryu Kai, a fast warship which will blitz the EFA in the north and break through with a direct assault. Carries a group of 4 unusual mechs called the SRX Team, a 'Huckebein MkIII' piloted by a manipulative bitch called Viletta, 3 Gespenst Customs, and their version of W17 in her Angelg
+3. The Hiryu Kai, a fast warship which will blitz the EFA in the north and break through with a direct assault. Carries a group of 4 unusual mechs called the SRX Team, a 'Huckebein MkIII' piloted by a manipulative bitch called Viletta, 3 Gespenst Customs, and their version of W17 in her Angelg
 
-4: The last flyable Shadow Mirror Trilobite: Filled nearly to capacity with wounded SM pilots and technicians, who were rudely thrown out of the Lygeus portal, it also has a few vital pieces of technology onboard, but you're fairly sure its been scanned by the Irregulars a dozen times, so there'll be no surprise for them.
+4. The last flyable Shadow Mirror Trilobite: Filled nearly to capacity with wounded SM pilots and technicians, who were rudely thrown out of the Lygeus portal, it also has a few vital pieces of technology onboard, but you're fairly sure its been scanned by the Irregulars a dozen times, so there'll be no surprise for them.
 
 You have your Soulgain, not at 100% after tangling with Beowulf twice in a row but ready for a brawl anyway, and W17 in her Angelg, who's voice-chip or somesuch has been damaged, making her stutter like a skipping record.
 
