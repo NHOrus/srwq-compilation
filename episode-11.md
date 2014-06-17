@@ -1,18 +1,8 @@
+# Episode 11
 
-SRWQ Mission 11: Now we're officially weeaboo
-Sciencegar Sciencebolt Sat 06 Feb 2010 16:49:23 No.4488105 ViewReplyOriginalReport
-Quoted By: >>4488123 >>4488141 >>4488207 >>4488212 >>4488219 >>4488231 >>4490044 >>4493956 >>4493981
-Previous Threads:
-http://archive.easymodo.net/cgi-board.pl/m/thread/4415513
-http://archive.easymodo.net/cgi-board.pl/m/thread/4419117
-http://archive.easymodo.net/cgi-board.pl/m/thread/4420922
-http://archive.easymodo.net/cgi-board.pl/m/thread/4426965
-http://archive.easymodo.net/cgi-board.pl/m/thread/4429260
-http://archive.easymodo.net/cgi-board.pl/m/thread/4432887
-http://archive.easymodo.net/cgi-board.pl/m/thread/4438663
-http://archive.easymodo.net/cgi-board.pl/m/thread/4469339
-http://archive.easymodo.net/cgi-board.pl/m/thread/4472897
-http://archive.easymodo.net/cgi-board.pl/m/thread/4479556
+## SHADOW MIRROR QUEST (AKA SRW Q)
+
+###SRWQ Mission 11: Now we're officially weeaboo
 
 After a short break to cover the misadventures around TLI, we return to the Shadow Mirror version of Katina Tarask, as she heads with her new-found friends to Brazil, on the trail of Vindel Mauser and his Zweizergain, which is reallt in demand right now.
 Anonymous Sat 06 Feb 2010 16:57:23 No.4488117 Report
