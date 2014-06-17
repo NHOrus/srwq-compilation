@@ -5,83 +5,29 @@
 ###SRWQ Mission 11: Now we're officially weeaboo
 
 After a short break to cover the misadventures around TLI, we return to the Shadow Mirror version of Katina Tarask, as she heads with her new-found friends to Brazil, on the trail of Vindel Mauser and his Zweizergain, which is reallt in demand right now.
-Anonymous Sat 06 Feb 2010 16:57:23 No.4488117 Report
-Quoted By: >>4488121
-Can we add SM 64 characters and SM MX characters?
-Stealthyboy !fchRKomfls Sat 06 Feb 2010 16:59:23 No.4488121 Report
-Quoted By: >>4488125
->>4488117
-Well, we've already got a Soldifar. Personally, I'm still disapointed in the lack of Simurgh, but I can live with it.
-Anonymous Sat 06 Feb 2010 17:00:23 No.4488123 Report
-Quoted By: >>4488126 >>4488129 >>4488136
->>4488105
-Sage, can we NOT have a shitty RP/Fanfic thread?
-Anonymous Sat 06 Feb 2010 17:01:23 No.4488125 Report
->>4488121
-What about Brad and co?
 
-They should be 10 years olders and super martial artists.
-Aqua should be loli and Hugo better be like Darth Vader.
-Stealthyboy !fchRKomfls Sat 06 Feb 2010 17:01:23 No.4488126 Report
->>4488123
-No, u.
-Anonymous Sat 06 Feb 2010 17:02:23 No.4488129 Report
-Quoted By: >>4488136 >>4488147
->>4488123
-Gonna have to agree with this one.
-But is there a better place to do this tho?
+####Roster:
 
-There's no /fanfic/ board, because even moot knows it's the worst medium out there.
-Sciencegar Sciencebolt Sat 06 Feb 2010 17:04:23 No.4488134 Report
-Quoted By: >>4488141
-Roster:
++ Katina Tarask, the frilly-dressed psychodere, piloting the Raioh.
++ Dumi, an AI who is almost too helpful to Katina, piloting/is the still un-named DGG-04.
+- Irm, the theoretical leader of this band of misfits, piloting a Gespenst because there was no room for our Grungust-tank in the Trilobite.
+- Kai, has pretty much supplanted Irm as leader even though his true allegiance is unknown. Trying to convert a spare Gespenst into something more impressive.
+- Russel: An irish spy for the Shadow Mirrors. Puts up with Katina more than most on the ship. Piloting a Gespenst with Blade Tonfas.
+- Latooni, a cold calculating girl who has defected from the EFA apparently to challenge herself. Piloting the Soldifar, a wierd Real Robot produced by a european company called Freemont Industries and used by the Earth's Liberation Front.
+- Arado: One of the pilots from the other universe, come to stop Vindel Mauser from leading Dark Brain to their universe. Resembles one of Katinas old friends, causing issues. Has been entrusted with a Guarlion Custom.
+- Ibis Douglas: A young woman who only joined the Shadow Mirror to find a friend of hers. Loves guns of all sizes, on both her mechs and her own person. Piloting a Schutzwald, but is holding out for something with more dakka.
+- Echidna Iasakki: A cold woman in charge of the W-series, a set of wierd pods that apparently hold reconstructed pilots loyal to Shadow Mirror. Pilots a Rathgrith.
+- ????: The group is still a pilot short for the WildRaubtier they captured from the EFA. Echidna says she can sort this out, given time.
 
-Katina Tarask, the frilly-dressed psychodere, piloting the Raioh.
-Dumi, an AI who is almost too helpful to Katina, piloting/is the still un-named DGG-04.
-Irm, the theoretical leader of this band of misfits, piloting a Gespenst because there was no room for our Grungust-tank in the Trilobite.
-Kai, has pretty much supplanted Irm as leader even though his true allegiance is unknown. Trying to convert a spare Gespenst into something more impressive.
-Russel: An irish spy for the Shadow Mirrors. Puts up with Katina more than most on the ship. Piloting a Gespenst with Blade Tonfas.
-Latooni, a cold calculating girl who has defected from the EFA apparently to challenge herself. Piloting the Soldifar, a wierd Real Robot produced by a european company called Freemont Industries and used by the Earth's Liberation Front.
-Arado: One of the pilots from the other universe, come to stop Vindel Mauser from leading Dark Brain to their universe. Resembles one of Katinas old friends, causing issues. Has been entrusted with a Guarlion Custom.
-Ibis Douglas: A young woman who only joined the Shadow Mirror to find a friend of hers. Loves guns of all sizes, on both her mechs and her own person. Piloting a Schutzwald, but is holding out for something with more dakka.
-Echidna Iasakki: A cold woman in charge of the W-series, a set of wierd pods that apparently hold reconstructed pilots loyal to Shadow Mirror. Pilots a Rathgrith.
-????: The group is still a pilot short for the WildRaubtier they captured from the EFA. Echidna says she can sort this out, given time.
-Anonymous Sat 06 Feb 2010 17:04:23 No.4488136 Report
->>4488123
->>4488129
-you guys just con't understand the awesomeness of this Q
-Sciencegar Sciencebolt Sat 06 Feb 2010 17:05:23 No.4488137 Report
-Quoted By: >>4488141
-ACTUAL CONTENT TO FOLLOW
-Anonymous Sat 06 Feb 2010 17:07:23 No.4488140 Report
-Quoted By: >>4488145
-This shit belongs on /tg/ or Gaia
-View SameGoogleiqdbSauceNAO 1264336454224.jpg, 177KiB, 1007x748
-Anonymous Sat 06 Feb 2010 17:08:23 No.4488141 Report
->>4488105
->>4488134
->>4488137
-View SameGoogleiqdbSauceNAO 1256060237484.jpg, 35KiB, 377x527
-Anonymous Sat 06 Feb 2010 17:09:23 No.4488144 Report
-Quoted By: >>4488148
-Thread reported, because I can
-Anonymous Sat 06 Feb 2010 17:10:23 No.4488145 Report
-Quoted By: >>4496466
->>4488140
->/tg/
-No fuck you, even /tg/ is not that pathetic.
-Anonymous Sat 06 Feb 2010 17:10:23 No.4488147 Report
->>4488129
-There is mIRC, there is Gaia.
-Stealthyboy !fchRKomfls Sat 06 Feb 2010 17:11:23 No.4488148 Report
->>4488144
-Samefag sagebomber reported, because I can.
-Sciencegar Sciencebolt Sat 06 Feb 2010 17:14:23 No.4488158 Report
+####ACTUAL CONTENT TO FOLLOW
+
+---
+
 "Wait, so the chainsaws are mounted on the back of the Boost Knuckles?"
 
 You nod happily at Irm. "Yup, and they can pop out and you can do a Boost Chainsaw Knuckle attack!"
 
-"...and then you...combine the chainsaws into a sword??? How???"
+"...and then you... combine the chainsaws into a sword??? How???"
 
 Johnathan looks up from his scribblings, a smile on his face for the first time in a while. "Well, it'll be an engineering challenge, but I think I can rig up a connector on one blade and a hilt on the other. It's the superheating and lightning effects that'll be the real problem."
 
@@ -90,23 +36,9 @@ You stomp your foot. "Oh come on! Those are the most important part!"
 Irm chuckles lightly. "Well, if we can make the Ragouken and the Doomblade, we should be able to figur-" He stops and picks up his bleeping comm. "Yes? Huh? Axel??? I'll be right there!"
 
 Irm rushes to the bridge, with you hot on his heels.
-Anonymous Sat 06 Feb 2010 17:17:23 No.4488166 Report
-Quoted By: >>4488177
-Fuck, we spent so much time geeking over Neo Grungust that we never got to speak to Dumi, Rio, Ryoto or Kai.
-Anonymous Sat 06 Feb 2010 17:18:23 No.4488169 Report
-Everyone just ignore the sagebombers. If you don't even respond to their posts then they'll get bored and go somewhere else.
-Stealthyboy !fchRKomfls Sat 06 Feb 2010 17:21:23 No.4488177 Report
->>4488166
-Fiction reflecting reality, I'm afraid.
-We'll have to wait for the next opportunity to tap into Ryoto's latent badassness.
-Anonymous Sat 06 Feb 2010 17:25:23 No.4488186 Report
-Fanfics do not belong in 4chan
-Anonymous Sat 06 Feb 2010 17:26:23 No.4488188 Report
->Report submitted! This window will close in 5 seconds...
-Anonymous Sat 06 Feb 2010 17:28:23 No.4488193 Report
-Where is the local sagebomber when we need him?
-Sciencegar Sciencebolt Sat 06 Feb 2010 17:31:23 No.4488201 Report
-Quoted By: >>4488211 >>4488223 >>4488227 >>4488502 >>4488568 >>4488910
+
+---
+
 "...Once we got clear of the central US, we didn't run into any more trouble, but its possible the EFA are still tracking us. With all these wounded here, we'd prefer an escort if possible."
 
 Irm nods at Axel's report. "Right. We're not far from Brasilia now, so we can send some of our people ahead and prepare our outpost to recieve the wounded, while we link up with you and return."
@@ -121,260 +53,12 @@ You pipe up. "Ugh, I just had a thought. Isn't it nearly Lent?"
 
 "....Yyyyeeeeesss. So?"
 
-"Well....doesn't that mean its Mardi Gras season?"
+"Well... doesn't that mean its Mardi Gras season?"
 
 Irm facepalms hard.
 
-DO YOU GO WITH THE TRILOBITE TO REJOIN AXEL AND CO, OR DO YOU GO WITH KAI AND LAT TO THE CARNAVAL?
-Anonymous Sat 06 Feb 2010 17:33:23 No.4488207 Report
-Quoted By: >>4488209
->>4488105
-c'mon /m/ we know better than to allow some kid post shitty fanfics on our /m/
-Anonymous Sat 06 Feb 2010 17:34:23 No.4488209 Report
-Quoted By: >>4488214
->>4488207
-Yeah, as much as I like SRW, fanfic stuffs don't belong here.
-Stealthyboy !fchRKomfls Sat 06 Feb 2010 17:34:23 No.4488211 Report
->>4488201
-Carnival!
-Anonymous Sat 06 Feb 2010 17:34:23 No.4488212 Report
->>4488105
->Report submitted! This window will close in 5 seconds...
-Anonymous Sat 06 Feb 2010 17:35:23 No.4488214 Report
->>4488209
-in during they say we're the samefag lol
-Anonymous Sat 06 Feb 2010 17:38:23 No.4488219 Report
->>4488105
-Sciencegar Sciencebolt, I dont know if you have realized this, but this is an IMAGE BOARD not a fanfic board. please feel free to post everything releated to your fanfic/rp on shin /m/.
-Anonymous Sat 06 Feb 2010 17:38:23 No.4488223 Report
-Quoted By: >>4488228
->>4488201
-let's go to the carnival,no one will notice our outfits, that's the perfect plan.... or not
-Anonymous Sat 06 Feb 2010 17:41:23 No.4488227 Report
->>4488201
-Let's go to a carnival!
-View SameGoogleiqdbSauceNAO RmF_WilyEyebrow.gif, 1KiB, 50x50
-Stealthyboy !fchRKomfls Sat 06 Feb 2010 17:41:23 No.4488228 Report
->>4488223
-Plus, mardi gras + Latooni, ifyouknowwhatimean.
-Anonymous Sat 06 Feb 2010 17:42:23 No.4488231 Report
-Quoted By: >>4488265
->>4488105
-Really want to see this faggot banned
-Anonymous Sat 06 Feb 2010 17:51:23 No.4488265 Report
-Quoted By: >>4488272 >>4488279
->>4488231
+---
 
-And I really like to see your ass banned.
-
-CARNIVAL!
-Anonymous Sat 06 Feb 2010 17:53:23 No.4488272 Report
-Quoted By: >>4488289
->>4488265
-Stop getting butthurt over this shit.
-Fanfics do not belong in /m/.
-Anonymous Sat 06 Feb 2010 17:55:23 No.4488279 Report
-Quoted By: >>4488283
->>4488265
-Seriously dude, just ignore the sage bombings, report them for rule violation and move on.
-
-Katina's taking Lat and Kai to the CARNIVAL!
-Anonymous Sat 06 Feb 2010 17:57:23 No.4488283 Report
-Quoted By: >>4488287 >>4488289 >>4488295
->>4488279
-You guys do know that it is you guys that violate the rules, right?
-I mean fuck, you guys are posting fan fictions on /m/.
-Anonymous Sat 06 Feb 2010 17:58:23 No.4488287 Report
-Quoted By: >>4488296
->>4488283
-Fanfics are not a rule violation. Flooding of any form is.
-Anonymous Sat 06 Feb 2010 17:59:23 No.4488289 Report
-Quoted By: >>4488302
->>4488272
-
->Stop getting butthurt over this shit.
-
-I don't see you stop getting butthurt over this.
-
->>4488283
-
-Go start your own threads that you like instead of whining here, then.
-View SameGoogleiqdbSauceNAO Counter Sage.jpg, 16KiB, 250x250
-Shady Negro !!FIKs9rk6k0M Sat 06 Feb 2010 18:01:23 No.4488295 Report
->>4488283
-:-p
-Anonymous Sat 06 Feb 2010 18:01:23 No.4488296 Report
-Quoted By: >>4488303 >>4488304
->>4488287
-They are.
-You don't see any mentioning that fan fics are allowed on /m/, or hell on 4chan overall.
-For /m/ it's :
->All mecha and mecha-related (ex: core fighter, mecha girl, model) images are allowed.
-Anonymous Sat 06 Feb 2010 18:03:23 No.4488302 Report
->>4488289
-I'm just doing my job as a decent poster.
-Sorry if that upsets you guys, but there are better place for you guys to do this.
-But not here, not on /m/, /m/ is about mechs, robots NOT fan fics.
-Anonymous Sat 06 Feb 2010 18:03:23 No.4488303 Report
-Quoted By: >>4488310
->>4488296
-This has mechs and mechs pilots it is thus /m/ related. It is not specifically said to be against the rules. Flooding, which you are doing, is specifically against the rules.
-Stealthyboy !fchRKomfls Sat 06 Feb 2010 18:04:23 No.4488304 Report
-Quoted By: >>4488307
->>4488296
-You do realize that we're on thread 11 here? Even if you do sage us into autosaging, we'll just go onto thread 12.
-Anonymous Sat 06 Feb 2010 18:05:23 No.4488307 Report
-Quoted By: >>4488312 >>4488314
->>4488304
-Then I will be continuing saging and reporting as you continue posting.
-Good luck.
-Anonymous Sat 06 Feb 2010 18:07:23 No.4488310 Report
-Quoted By: >>4488312 >>4488335
->>4488303
-What flooding? I'm saging an invalidated thread, that is a perfectly fine reason.
->This has mechs and mechs pilots it is thus /m/ related.
-I don't see mechs, I don't see mech pilots, I see fan fics. This is no better than the shipping threads, the naked pilots thread that have been derailing /m/ for years.
-View SameGoogleiqdbSauceNAO No one gives a shit..jpg, 92KiB, 1219x907
-Stealthyboy !fchRKomfls Sat 06 Feb 2010 18:09:23 No.4488312 Report
->>4488310
->>4488307
-View SameGoogleiqdbSauceNAO supaOG2 4koma-0043e.jpg, 248KiB, 899x1300
-Anonymous Sat 06 Feb 2010 18:09:23 No.4488314 Report
-Quoted By: >>4488318
->>4488307
-
-You DO know abusing the report function will get yourself banned, right?
-
-Good luck with that.
-Anonymous Sat 06 Feb 2010 18:11:23 No.4488318 Report
-Quoted By: >>4488321
->>4488314
-If I get banned, so be it.
-It disgusts me to see this kind of filth has reached /m/.
-Stealthyboy !fchRKomfls Sat 06 Feb 2010 18:12:23 No.4488321 Report
-Quoted By: >>4488325 >>4488345
->>4488318
->/m/ isn't /m/!
-Anonymous Sat 06 Feb 2010 18:12:23 No.4488325 Report
->>4488321
->/m/ isn't fan fics, NOT even mech fan fics
-Yes.
-View SameGoogleiqdbSauceNAO axel.jpg, 11KiB, 224x200
-Anonymous Sat 06 Feb 2010 18:16:23 No.4488335 Report
-Quoted By: >>4488338 >>4488437 >>4488636
->>4488310
-
-There's no explicit rule against these types of thread, actually. The only board with such a no fanfic rule is the literature board.
-
-Anyway, who should officially know that Beowulf's team is Einst? And will Axel know that Beowulf really got humiliated?
-Anonymous Sat 06 Feb 2010 18:17:23 No.4488338 Report
-Quoted By: >>4488383
->>4488335
->The only board with such a no fanfic rule is the literature board.
-Good god.
-Moot should have known better.
-Bye then.
-View SameGoogleiqdbSauceNAO 001.jpg, 151KiB, 950x1342
-SpoilerClick to view
-SEED D Cagalli !!U5xc0wG3iH0 Sat 06 Feb 2010 18:18:23 No.4488345 Report
-Quoted By: >>4488353
->>4488321
-
-Well if it's not even /m/, then we should be able to do whatever the hell we want.
-
-Anyways, just keep going Sciencegar. This is getting really good.
-Anonymous Sat 06 Feb 2010 18:21:23 No.4488353 Report
-Quoted By: >>4488362 >>4488927
->>4488345
->Well if it's not even /m/, then we should be able to do whatever the hell we want.
-You mean, "Well if it's not even /m/, then we should not post it on this board?".
-There is clearly a fanfic sub board on shin/m/chan, built specifically for this kind of shit, but nooooo.
-Stealthyboy !fchRKomfls Sat 06 Feb 2010 18:23:23 No.4488362 Report
-Quoted By: >>4488388
->>4488353
-Shin/m/chan has a lot of sub boards. Does that mean that everything should be moved to Shin/m/chan?
-Anonymous Sat 06 Feb 2010 18:24:23 No.4488365 Report
-Seriously guys. Stop responding to the sage bomber.
-Shady Negro !!FIKs9rk6k0M Sat 06 Feb 2010 18:28:23 No.4488383 Report
->>4488338
->>>Bye then.
-Delicious Victory.
-Anonymous Sat 06 Feb 2010 18:28:23 No.4488388 Report
-Quoted By: >>4488397
->>4488362
-No, it means "Hey guise, we have an entire subboard built specifically for you faggots to RP and write fan fics, so why don't you guys go there and brainstorm yourselves?"
-
-And yeah, you can take the shipping threads and the naked female pilots thread go to the /meh/ board too, I guess. Just keep us here with the robots, please thank you.
-Garrod Ran !PEMCgZ4e4E Sat 06 Feb 2010 18:29:23 No.4488390 Report
-Quoted By: >>4488418
-ITT:LET ME POST WHAT I WANT TO POST.
-
-Just keep going, he can't stop you.
-Stealthyboy !fchRKomfls Sat 06 Feb 2010 18:31:23 No.4488397 Report
-Quoted By: >>4488401 >>4488414
->>4488388
-Sorry, Shin/m/chan has all of /m2/ for the robots.
-Anonymous Sat 06 Feb 2010 18:32:23 No.4488401 Report
-Quoted By: >>4488409
->>4488397
-But /m/ has all the robots first so no give.
-Stealthyboy !fchRKomfls Sat 06 Feb 2010 18:33:23 No.4488409 Report
-Quoted By: >>4488414 >>4488423
->>4488401
-That doesn't even make sense as a sentence.
-Anonymous Sat 06 Feb 2010 18:35:23 No.4488414 Report
->>4488397
->>4488409
-Stealthy for fuck's sake stop giving him attention you pillock.
-Anonymous Sat 06 Feb 2010 18:35:23 No.4488418 Report
->>4488390
->>4488390
->>4488390
->>4488390
-View SameGoogleiqdbSauceNAO 1251462899418.jpg, 117KiB, 1024x576
-Anonymous Sat 06 Feb 2010 18:35:23 No.4488422 Report
->my face when this thread got derailed
-Anonymous Sat 06 Feb 2010 18:35:23 No.4488423 Report
->>4488409
-Fix it for me then.
-Because I'm into sage mode now.
-Anonymous Sat 06 Feb 2010 18:39:23 No.4488437 Report
->>4488335
-Its an un-written rule. Remember sage acts like a board mod, with less privileges
-Anonymous Sat 06 Feb 2010 18:52:23 No.4488502 Report
->>4488201
-I vote we go to the carnival.
-Anonymous Sat 06 Feb 2010 19:06:23 No.4488568 Report
->>4488201
-
-also vote for carnival
-Anonymous Sat 06 Feb 2010 19:19:23 No.4488630 Report
-What's this bullshit?This "lol xd rules don't mention fanfics are allowed so they aren't sage cancer gaiafaggotry" is fucking retarded. What kind of thinking is that? Rules don't mention a lot of things that are allowed, that means almost nothing is allowed? I hate when people talk about "cancer" and sage and act like retarded tough guys. You always hear that fanfiction is "gaiafaggotry" and "cancer" on /a/ and ED and decided you'll be just like the cool guys and show you're real tough who fights against "cancer", huh? Nobody cares. It doesn't bother anybody, for example I haven't even noticed that there were ten threads about this already. On the other hand this bullshit does bother everybody, even those who normally would never even notice this thread.
-Anonymous Sat 06 Feb 2010 19:20:23 No.4488636 Report
-Quoted By: >>4488651 >>4488664
->>4488335
-
-So i guess by your logic /m/ can have porn threads now
-Anonymous Sat 06 Feb 2010 19:24:23 No.4488651 Report
->>4488636
-We already have them quite regularly. But the rules do mention they're not allowed.
-Anonymous Sat 06 Feb 2010 19:27:23 No.4488664 Report
->>4488636
-Don't be silly, 4chan's rules quite specifically say porn is not allowed on the SFW boards.
-Couch Sat 06 Feb 2010 20:28:23 No.4488910 Report
->>4488201
-Clearly we go to the carnival. As a psychodere with ambitions of rape during Mardi Gras, we can do no less.
-Sciencegar Sciencebolt Sat 06 Feb 2010 20:31:23 No.4488927 Report
->>4488353
-
-There is no fanfic forum on Shin M-chan. The only thing that even comes close is the Drawfaggotry forum.
-I can't stop you (and yes, you've made it retardedly clear that theres just one person sageing this thread) from disliking what we (not just me, but everyone who contributes tangibly to the thread) are doing here, but I can quite happily point out your factual errors.
-
-Not that I actually think you know anything about anything but /m/ and possibly /b/.
-
-ANYWAY, ACTUAL CONTENT
-Sciencegar Sciencebolt Sat 06 Feb 2010 20:40:23 No.4488965 Report
-Quoted By: >>4488992
 The Amazon river runs wide and deep, enough that the Trilobite can navigate underwater without disturbing the few riverboats it encounters. Coming up to an abandoned quay in the middle of Brasilia, an extending airlock worms it way out of the water, and disgorges you, Kai and Latooni. The noise of the festival can be heard several blocks away.
 
 Latooni adjusts her glasses. "We should head north and check their offices first. They should still be there, even today."
