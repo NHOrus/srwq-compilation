@@ -9,7 +9,7 @@ Welcome to the /tg/ thread with the best Fanservice Bonus to AC on /m/.
 
 **The Plot:** After the events of OG Gaiden, Dark Brain returns and attacks the OGVerse from outside, threatening to shatter the entire dimension. Our heroes, using the XN Giest which fell through the cracks in unreality, travel to the Shadow Mirror Universe, to a point in space-time where they can prevent the Shadow Mirrors giving Dark Brain the trail he needs to find the OGverse. Their entrance to the dimension scatters the Shadow Mirrors into the dimensional void, and draws the ire of this universes EFA, who blockade them at the Tesla-Liecht Institute.
 
-While normally we follow Shadow Mirror Katina Tarask, a psycho in a cute dress who's headed to find the missing Vindel in the company of this sexy stud, we're temporarily switching to Axel Almer, leader of what little remains of the Shadow Mirror forces, forced into a temporary alliance with the OG-Versers, even though they just destroyed his organisation and causes his leader and lover to go missing.
+While normally we follow Shadow Mirror Katina Tarask, a psycho in a cute dress who's headed to find the missing Vindel in the company of this sexy stud, we're temporarily switching to Axel Almer, leader of what little remains of the Shadow Mirror forces, forced into a temporary alliance with the OG-Versers, even though they just destroyed his organization and causes his leader and lover to go missing.
 
 ---
 
@@ -35,7 +35,7 @@ The 4 Groups are currently:
 
 You have your Soulgain, not at 100% after tangling with Beowulf twice in a row but ready for a brawl anyway, and W17 in her Angelg, who's voice-chip or somesuch has been damaged, making her stutter like a skipping record.
 
-**WHICH GROUP WILL YOU GO WITH?** The obvious choice is to stick with the surviving Mirrors, but there are other things to consider: The Kurogane has their Beowulf, who you're not sure they realise the threat of, and going west means you may meet your Beowulf, and try for round 3. The Giest is their secret weapon, and is guarded only by grunts: You could cripple their plans if you take the risk. And you have a score to settle with the crew of the Hiryu Kai. Their commanders have offered to switch a few of their units to the Trilobite: It means the wounded will be at their mercy, but you could be in a better position to get revenge. On who you're not sure.
+**WHICH GROUP WILL YOU GO WITH?** The obvious choice is to stick with the surviving Mirrors, but there are other things to consider: The Kurogane has their Beowulf, who you're not sure they realizethe threat of, and going west means you may meet your Beowulf, and try for round 3. The Giest is their secret weapon, and is guarded only by grunts: You could cripple their plans if you take the risk. And you have a score to settle with the crew of the Hiryu Kai. Their commanders have offered to switch a few of their units to the Trilobite: It means the wounded will be at their mercy, but you could be in a better position to get revenge. On who you're not sure.
 
 **HOW MUCH OF A DICK ARE YOU THE READERS GOING TO MAKE THIS VERSION OF AXEL?** Will he be obsessed with Beowulf, a scheming Shadow Mirror fanatic, a petty bitter man who's lost everything, or someone who fights for a dim point of light in the future?
 
@@ -45,7 +45,7 @@ Neither you or they have any idea where Lemon is. The last you saw, she and Vind
 
 Tetsuya Onodera goes over the plan one more time. "The Kurogane strikes first in the west, followed by the Giest in the south. We suppress the EFA forces, forces them to draw back their forces. Then the Hiryu breaks north, and makes a run to the Canadian border. With the EFA lines pressed in 3 areas, Axel should be able to get his men out on the Trilobite heading west into this... desert region."
 
-Axel smirks. "It's called the Elpis Wastes. The DC took two colonies that the EFA wrecked during the Suppression, Hope and Elpis, and sent them towards the surface to take out Geneva and Langley Base. Neither came within a hundred miles of their target, but they still caused some mighty bits of devestation. Seems your world got the soft version of the DC War..."
+Axel smirks. "It's called the Elpis Wastes. The DC took two colonies that the EFA wrecked during the Suppression, Hope and Elpis, and sent them towards the surface to take out Geneva and Langley Base. Neither came within a hundred miles of their target, but they still caused some mighty bits of devastation. Seems your world got the soft version of the DC War..."
 
 The tension in the meeting room increases another notch, if that were possible
 
@@ -92,15 +92,15 @@ Axel cocks an eyebrow at this. "If I didn't know any better, I'd say you were co
 
 "S-sir?"
 
-"We're the Shadow Mirrors, 17. We're meant to rattle the bars of the cage that the civilised people have locked themselves into. We're the only thing stopping the world turning into a pile of dolls, like you, unable to think for themselves, following the EFAs every whim while they jerk themselves off. We have to live, otherwise, the human race is fucked. Even if all our forces are gone, even if Vindel and Lemon are dead, if it just came down to you and me left, we'd have to fight. It's the only thing a real human can do."
+"We're the Shadow Mirrors, 17. We're meant to rattle the bars of the cage that the civilized people have locked themselves into. We're the only thing stopping the world turning into a pile of dolls, like you, unable to think for themselves, following the EFAs every whim while they jerk themselves off. We have to live, otherwise, the human race is fucked. Even if all our forces are gone, even if Vindel and Lemon are dead, if it just came down to you and me left, we'd have to fight. It's the only thing a real human can do."
 
 "...H-hence why y-you resent a false-se human like m-me being so vital-l to Ms B-Brownings plans."
 
-"Don't even attempt to psychoanalyse me, Doll."
+"Don't even attempt to psychoanalyze me, Doll."
 
 The Beam of energy flashes past the two mechs sitting atop the Trilobite, and digs into the wall of the canyon behind. The EFA battleship rounds the corner and opens its mechs bays, disgorging over a dozen PTs at the Trilobite.
 
-"So they did leave forces along the good escape routes! Well, Doll, time to practise what we preach!!"
+"So they did leave forces along the good escape routes! Well, Doll, time to practice what we preach!!"
 
 ---
 ```
@@ -116,7 +116,7 @@ The enemy is a Kestrel, a late-model Peregrine battleship modified to work in at
 
 The hull plating nearly buckles as Axel kicks off the Trilobite and into the cloud of enemies, as an arrow of light takes the arm and leg off a Gespenst about to fire. The enemy scatter as the Soulgain approaches, but the blue mech twists, lands on a rock face and kicks off again, flying past another Gespenst which neatly comes apart into two pieces.
 
-The Trilobite strains to gain altitude as another volley is fired by the Kestrel. Most of it misses the manuverable cruiser, but a salvo of missiles cracks against the port bow, the armor holding but definitely weakened.
+The Trilobite strains to gain altitude as another volley is fired by the Kestrel. Most of it misses the maneuverable cruiser, but a salvo of missiles cracks against the port bow, the armor holding but definitely weakened.
 
 "Keep the PTs out of the air!! As long as they're in my reach, they're basically dead!" The Soulgain shrugs off missiles and shells as it rams its fists, coated in blue fire, into an enemy Gespenst. The grunt mechs torso crumples like a coke can. But its allies pour on the fire, and Axel feels the feedback from the Soulgain, as if he were covered in fireants intend on chewing him down to the bones.
 
@@ -169,7 +169,7 @@ Axel grunts. "Well, you're alive, and you have a mech, that'll do for today. Now
 
 "Sink that damned thing."
 
-The turrets of the Kestrel try in vain to target the more manuverable Trilobite as it swings around into the EFA ships rear arc. The Trilobites torpedo tubes spew smoke and the engine of the Kestrel are torn to shreds. With the Angelg, Soulgain and Vaisaga safely on its back, the Trilobite turns from the smoking hulk and jets into the sky.
+The turrets of the Kestrel try in vain to target the more maneuverable Trilobite as it swings around into the EFA ships rear arc. The Trilobites torpedo tubes spew smoke and the engine of the Kestrel are torn to shreds. With the Angelg, Soulgain and Vaisaga safely on its back, the Trilobite turns from the smoking hulk and jets into the sky.
 
 ---
 
@@ -189,7 +189,7 @@ Axel sniffs. "Honorable or no, they're out for our blood. This small mercy means
 
 "...You're way too young to talk like that. Stop bullshiting to me about quests and destiny until your beard is down to your crotch."
 
-"As you wish." Brooklyn draws his sword and begins practising forms, while the Soulgain grows its skin back.
+"As you wish." Brooklyn draws his sword and begins practicing forms, while the Soulgain grows its skin back.
 
 ---
 
@@ -199,7 +199,7 @@ You are Excellen Browning, Sexy Mistress of the ATX Team and the best of looks a
 
 You are travelling on the Kurogane with Irm, Leona and Tasuku, and of course the ever-studly Kyosuke Nanbu. You have just broken through the EFA lines, after a pitched battle in the Rockies where you had to teach some naughty EFA that people who act without talking first get spankings.
 
-However, with the Jamming lessening, you can now use radar properly, and theres something flying in: Something big. The pretty white-and-blue paintjob implies its the Shirogane, captained by the stick-in-the-mud Lee Linjun, and carrying...another Kyosuke. The bad one, in the blue Alt, which grows itself back in a very familiar way.
+However, with the Jamming lessening, you can now use radar properly, and theres something flying in: Something big. The pretty white-and-blue paintjob implies its the Shirogane, captained by the stick-in-the-mud Lee Linjun, and carrying... another Kyosuke. The bad one, in the blue Alt, which grows itself back in a very familiar way.
 
 "Maybe we can confuse them. Let's paint Kyosuke blue and have him talk to them, they'll think he's their Kyosuke!"
 
@@ -232,7 +232,7 @@ Kyosuke comes back over the comms. "It looks like we'll have to do this the hard
 
 >Deploy on the Alt Eisen. Let Kyosuke take the Weiss Reiter.
 
->Tasuku takes the Guarlion Custom, Leona the Giganscudo and Irm takes command of the kurogane.
+>Tasuku takes the Guarlion Custom, Leona the Giganscudo and Irm takes command of the Kurogane.
 
 >Let Tetsuya on the Grungust.
 
@@ -261,7 +261,7 @@ Those few EFA pilots still able to move wisely flee.
 
 Kyosuke looks even grimmer than usual on the comm window. "I hate to say it but you may just get your chance. That wave was just a test, they have more up their sleeves..."
 
-The launch catapults on the Shirogane extend fully, and out fly another twelve Gespensts, these ones marked as different. The left shoulderpad is colored red, with 'ATX' written on it, the other black, with smaller text. Excellen squints, and the eye-scopes on the Howling Launcher zoom in.
+The launch catapults on the Shirogane extend fully, and out fly another twelve Gespensts, these ones marked as different. The left shoulder pad is colored red, with 'ATX' written on it, the other black, with smaller text. Excellen squints, and the eye-scopes on the Howling Launcher zoom in.
 
 "'Better is it for each one of us that he should avenge his friend, than greatly mourn.' Is that even proper english?"
 
@@ -295,7 +295,7 @@ Leona boosts skyward, two of the things straining to keep up as they pursue. Her
 
 Three leap on the Ganduro, wielding their plasma cutters as the fingers of a massive claw. One forces its weapon through the barrier and makes a gouge in the big mechs flank, before being grabbed by a Sheath Anchor and promptly electrocuted.
 
-A boost knuckle bashs one aside as another fires a shotgun into the Grungusts chest. The ultrasharp shards dissappear into nothingness just before impact, as the Final Beam sears off the Gespensts new parts, leaving it almost normal again.
+A boost knuckle bashes one aside as another fires a shotgun into the Grungust's chest. The ultrasharp shards disappear into nothingness just before impact, as the Final Beam sears off the Gespensts new parts, leaving it almost normal again.
 
 One foolishly allows the Riese to get too close. The red paint bubbles off its left leg from the plasma sprayer, but the mech-thing is silenced by a single pile-bunker blow to the cockpit: The need for restraint is gone.
 
@@ -305,7 +305,7 @@ One foolishly allows the Riese to get too close. The red paint bubbles off its l
 
 "AWWOOOOWOOOOHHHH" The two Gespensts are struck by a dozen plasma bolts each in less than five seconds, as the Howling Launcher rapidfires at a rate that would melt any earth-made energy weapon. The two monstosities tumble through the air, and are finished with a point-blank shot each.
 
-"Sonic Acceleration!" The four Gespensts are knocked assunder as the Seigarlion crashes through them. One is singled out and rammed again, riding the bow-wave field down half a mile before crunching into the side of a mountain as Leona pulls up.
+"Sonic Acceleration!" The four Gespensts are knocked asunder as the Seigarlion crashes through them. One is singled out and rammed again, riding the bow-wave field down half a mile before crunching into the side of a mountain as Leona pulls up.
 
 "Giga Burst!!" The two clawed Gespensts are blasted off the Ganduro, one arcing straight into the Grungust and being bisected by the Keitou Ragouken, the other being unceremoniously impaled on the Revolver Bunker.
 
@@ -329,7 +329,7 @@ The Nacht and the Weiss impact on the Rockies at close to Mach 0.7. Fleshy cushi
 
 "Coulda fooled me..." The tentacles start to squeeze, and Wiess's buckled armor starts to crack.
 
-"We cast you out, unclean sister. The First and Only call you anethaema, break all connections and fusions, and sentence you to the End with the humans you have joined."
+"We cast you out, unclean sister. The First and Only call you anathema, break all connections and fusions, and sentence you to the End with the humans you have joined."
 
 "You... you're nothing like my Kyosuke..."
 
@@ -339,7 +339,7 @@ The Nacht and the Weiss impact on the Rockies at close to Mach 0.7. Fleshy cushi
 
 Tentacles burst from the Wiess's frame and dig into those of the Nacht. Nerves are severed and spliced together, and for a fleeting moment, the minds of Excellen Browning and the thing called Beowulf are connected.
 
-Niether enjoys the experience.
+Neither enjoys the experience.
 
 "BLAAAAAARGGHH!!! YOU BITCH!!" The Nacht tears itself off Wiess and flies itself into a cliff-face, lolling like a drunk. "YOU'RE POISONING ME!! YOU'RE POLLUTING MY MIND WITH YOUR FILTHY MONKEY SOUL!!! GET OUT!! GET AWAY!!"
 
