@@ -1,30 +1,15 @@
+# Episode 13
 
-SRWQ Mission 13: Witches and Bores
-Sciencegar Sciencebolt Mon 08 Feb 2010 20:41:02 No.4500480 ViewReplyOriginalReport
-Quoted By: >>4501770 >>4501857 >>4501890
-Previous threads:
+## SHADOW MIRROR QUEST (AKA SRW Q)
 
-http://archive.easymodo.net/cgi-board.pl/m/thread/4415513
-http://archive.easymodo.net/cgi-board.pl/m/thread/4419117
-http://archive.easymodo.net/cgi-board.pl/m/thread/4420922
-http://archive.easymodo.net/cgi-board.pl/m/thread/4426965
-http://archive.easymodo.net/cgi-board.pl/m/thread/4429260
-http://archive.easymodo.net/cgi-board.pl/m/thread/4432887
-http://archive.easymodo.net/cgi-board.pl/m/thread/4438663
-http://archive.easymodo.net/cgi-board.pl/m/thread/4469339
-http://archive.easymodo.net/cgi-board.pl/m/thread/4472897
-http://archive.easymodo.net/cgi-board.pl/m/thread/4479556
-http://archive.easymodo.net/cgi-board.pl/m/thread/4488105
-http://archive.easymodo.net/cgi-board.pl/m/thread/4496632
+###SRWQ Mission 13: Witches and Bores
 
 You are the Shadow Mirror Version of Katina Tarask, a frilly-dressed nightmare surviving in a world about to be split by war once again. The OG Main Characters have invaded the Shadow Mirror Universe, to prevent a future which will destroy their universe.
 
 Last thread, after running around Brasilia to find fellow Shadow Mirrors Giado and Garnet, you arrived at thier secret jungle base, where your allies had gathered. There are lots of new and old faces, plot twists, and horrible revelations to be had inside.
-Anonymous Mon 08 Feb 2010 20:46:02 No.4500500 Report
-Quoted By: >>4500512
-did shuu manage to bring the R-blade along with us? if so, capture it.
-Sciencegar Sciencebolt Mon 08 Feb 2010 20:50:02 No.4500510 Report
-Quoted By: >>4500522 >>4500546
+
+---
+```
 There are a couple of possible avenues for Katina to take here:
 
 Talk to Irm and Kai to find out what's going on, and where you're going next.
@@ -42,70 +27,9 @@ Investigate the wierd pods that Echidna brought onto the ship.
 Help with the wounded.
 
 Round up a whole bunch of people and go to the Mardi Gras, and remain blissfully ignorant of what actually went on earlier.
-Sciencegar Sciencebolt Mon 08 Feb 2010 20:50:02 No.4500512 Report
->>4500500
+```
+---
 
-Theres been no battle alert in the last hour, so it seems unlikely there's any enemies nearby.
-Sciencegar Sciencebolt Mon 08 Feb 2010 20:52:02 No.4500522 Report
->>4500510
-
-Other suggestions are of course fully welcome.
-Anonymous Mon 08 Feb 2010 20:52:02 No.4500526 Report
->Find Arado and meet his friends from the other world.
->Talk to this new science guy Shuu.
->Find this new cool guy who uses the Vysaga.
->Investigate the wierd pods that Echidna brought onto the ship.
-
-At least one of these then we go drag some people off to the Mardi Gras.
-View SameGoogleiqdbSauceNAO dress.jpg, 10KiB, 165x281
-Anonymous Mon 08 Feb 2010 20:55:02 No.4500541 Report
-Quoted By: >>4500591
-Wait!
-
-Surely at Mardi Gras we can acquire some new dresses finally!
-
-Pic related.
-Anonymous Mon 08 Feb 2010 20:56:02 No.4500546 Report
->>4500510
-Go find Shu. Ask him how the hell he made everyone teleport. Then get Jonathan to geek out with the guy, possibly involving the Neo Grungust.
-Anonymous Mon 08 Feb 2010 20:56:02 No.4500547 Report
-talk to SHUU SHIRAKAWA, DEFENDER OF EARTH!
-Stealthyboy !fchRKomfls Mon 08 Feb 2010 21:09:02 No.4500591 Report
-We need to become best friends with Shuu.
-
-also >>4500541
-
-I want my forced crossdressing Arado, goddamnit.
-SEED D Cagalli !!U5xc0wG3iH0 Mon 08 Feb 2010 21:11:02 No.4500600 Report
-Pay Shu a visit. Ask him is sexual healing can help Axel in any way.
-Stealthyboy !fchRKomfls Mon 08 Feb 2010 21:13:02 No.4500606 Report
-Quoted By: >>4500611
-Also, I suggest if Axel does end up amnesiac, we try to pair him up with Lamia.
-
-You can't deny it'd be hilarious.
-Sciencegar Sciencebolt Mon 08 Feb 2010 21:14:02 No.4500611 Report
-Quoted By: >>4500630
->>4500606
-
-I have plans.
-View SameGoogleiqdbSauceNAO srwqKatinatemplate.png, 157KiB, 741x592
-Anonymous Mon 08 Feb 2010 21:17:02 No.4500621 Report
-Quoted By: >>4500629 >>4500639 >>4500670 >>4500826
-summary so far
-Stealthyboy !fchRKomfls Mon 08 Feb 2010 21:18:02 No.4500629 Report
->>4500621
-I admit it, this really made me laugh.
-sage Mon 08 Feb 2010 21:19:02 No.4500630 Report
-Quoted By: >>4500645
->>4500611
-No you don't. You are a dumb as butt son of a submariner who has no man parts whatsoever.
-
-sage
-Sanger Zombolt! Mon 08 Feb 2010 21:21:02 No.4500639 Report
->>4500621
-This cracked me up. Good job sir.
-Sciencegar Sciencebolt Mon 08 Feb 2010 21:23:02 No.4500644 Report
-Quoted By: >>4500650 >>4500656 >>4500668 >>4500864
 You head over to the towering white figure of the Granzon, and see two figures talking at a table covered in maps and notepaper. One, a woman, looks up at you.
 
 "Yes, can we help y-"
@@ -116,126 +40,8 @@ You head over to the towering white figure of the Granzon, and see two figures t
 
 "I'm Katina Tarask, Captain Kai's protege, and I was curious as to what you guys were doing here."
 
-Shuu Shirakawa adjusts his glasses and turns to face you. "My lady, our sacred task is nothing less....than the salvation of our entire planet!!!"
+Shuu Shirakawa adjusts his glasses and turns to face you. "My lady, our sacred task is nothing less... than the salvation of our entire planet!!!"
 
-QUESTIONS FOR THE GOOD DOCTOR, OR FOR RING?
-Brave Exkaiser will Never Die Mon 08 Feb 2010 21:23:02 No.4500645 Report
->>4500630
-What is going on with this post.
-SEED D Cagalli !!U5xc0wG3iH0 Mon 08 Feb 2010 21:24:02 No.4500650 Report
-Quoted By: >>4500661 >>4500666
->>4500644
-
-See if they can help with getting that new Grungust to become a reality!
-Stealthyboy !fchRKomfls Mon 08 Feb 2010 21:25:02 No.4500656 Report
-Quoted By: >>4500675
->>4500644
-Add ring to the harem.
-
-Also, start fangirling over Shuu.
-Sanger Zombolt! Mon 08 Feb 2010 21:26:02 No.4500661 Report
->>4500650
-Jesus christ, yes! THIS THIS THIS!
-
-This is the opportunity we have been waiting for!
-
-And considering not Shuu is such a cool guy who cares nothing for details, he may actually make the Grungust a reality!
-Stealthyboy !fchRKomfls Mon 08 Feb 2010 21:27:02 No.4500666 Report
->>4500650
-Also, yeah, this.
-Anonymous Mon 08 Feb 2010 21:27:02 No.4500668 Report
->>4500644
-IT'S SHU FANGIRL TIME!
-Sciencegar Sciencebolt Mon 08 Feb 2010 21:28:02 No.4500670 Report
-Quoted By: >>4500820
->>4500621
-
-Bravo sir.
-DS Mon 08 Feb 2010 21:30:02 No.4500675 Report
->>4500656
-
-Should totally become best friends with not-Shuu.
-
-Ask him for ideas on what to call Dumi's robot.
-View SameGoogleiqdbSauceNAO DaiDygenguard.jpg, 699KiB, 1407x2031
-Sanger Zombolt! Mon 08 Feb 2010 21:46:02 No.4500742 Report
-Quoted By: >>4500892 >>4500909
-BTW, Sciencegar. Any chance you will upgrade the Dygenguard into the DaiDygenguard in this story?
-Fromage Mon 08 Feb 2010 22:04:02 No.4500820 Report
->>4500670
-over 9000 hours, ms paint, you know the drill...
-
-Just saluting a priceless thread Sciencegar, please, go on
-Stealthyboy !fchRKomfls Mon 08 Feb 2010 22:06:02 No.4500826 Report
-I definately reccomend >>4500621 be the picture for thread 14.
-Zeta Zaku Mon 08 Feb 2010 22:17:02 No.4500864 Report
->>4500644
-Show off DGGs to them, hope for Shu to dub them something heroic.
-
-Prod Ring to investigate Dumi if she can.
-Anonymous Mon 08 Feb 2010 22:26:02 No.4500892 Report
-Quoted By: >>4500905
->>4500742
-whoa wat the fuck is this? I demand an explanation!
-Sanger Zombolt! Mon 08 Feb 2010 22:29:02 No.4500905 Report
->>4500892
-Customized Dygenguar from a Banpresto manga. Just like the DaiRaioH, this one is a more complete version of the vanilla DGG.
-
-This one is actually made with the Zankantou use in mind. Also, better armour and a shield-claw of sorts.
-View SameGoogleiqdbSauceNAO SMShuu.jpg, 7KiB, 223x130
-Sciencegar Sciencebolt Mon 08 Feb 2010 22:30:02 No.4500909 Report
-Quoted By: >>4500917 >>4500925 >>4500931 >>4500932
->>4500742
-
-Well, first you'll need the DyGenGuard....
-
-Also, here is the concept for SM Shuu.
-SEED D Cagalli !!U5xc0wG3iH0 Mon 08 Feb 2010 22:31:02 No.4500917 Report
-Quoted By: >>4500938
->>4500909
-
-...
-
-Dammit, Sciencegar. For the longest time I hated Shu but you've made him fucking awesome in every possible way!
-View SameGoogleiqdbSauceNAO WTF.png, 16KiB, 102x121
-Stealthyboy !fchRKomfls Mon 08 Feb 2010 22:33:02 No.4500925 Report
->>4500909
-SM!Shuu also has nerd glasses? And a Ryoma cloak?!
-...
-Brave Exkaiser will Never Die Mon 08 Feb 2010 22:33:02 No.4500931 Report
-Quoted By: >>4500942 >>4500949
->>4500909
-But if this is opposite land, won't Shu get killed off permanently early on?
-Anonymous Mon 08 Feb 2010 22:33:02 No.4500932 Report
->>4500909
-Looks pretty damn cool.
-
-Anyway, time to ask Santa Shuu to bring us a Neo Grungust this christmas.
-Sciencegar Sciencebolt Mon 08 Feb 2010 22:34:02 No.4500938 Report
->>4500917
-More than any other SM character, I wanted Shuu to be the opposite of his OG counterpart, so we could like him, instead of liking to hate him.
-Sanger Zombolt! Mon 08 Feb 2010 22:36:02 No.4500942 Report
->>4500931
-NO!
-
-Since this is opposite land, Shuu will get his ass handed to him by every single villain in every single fight, and will always be one step behind not Masaki.
-
-But in the end, he will succeed in his goals and defeat all eveildoers.
-
-The complete opposite of the real Shuu!
-View SameGoogleiqdbSauceNAO hayatopic.jpg, 6KiB, 150x113
-Stealthyboy !fchRKomfls Mon 08 Feb 2010 22:37:02 No.4500949 Report
->>4500931
-I am not amused by this suggestion.
-Anonymous Mon 08 Feb 2010 22:37:02 No.4500951 Report
-Quoted By: >>4500960
->suggesting Shadow Mirror is opposite land
-Sanger Zombolt! Mon 08 Feb 2010 22:39:02 No.4500960 Report
-Quoted By: >>4500970
->>4500951
-It is for all the Masoukishin characters.
-Sciencegar Sciencebolt Mon 08 Feb 2010 22:41:02 No.4500964 Report
-Quoted By: >>4500983 >>4501000 >>4501131
 "Ooh, saving the world. Sounds difficult."
 
 "Not for someone of my supreme intellect. I've isolated all possible contingencies and united the greatest of sciences to generatemy ultimate weapon of justice. Now all that remains is to strike forth and-"
@@ -248,263 +54,27 @@ Quoted By: >>4500983 >>4501000 >>4501131
 
 "Miss, haven't you been paying attention? You are in the presence of the Invincible Earth Liberation Warrior Granzon, the ultimate expression of science as a weapon! What difference will a mere Grungust make to my plans? In the time it would take to build one, the earth could already be cleansed of evil!!"
 
-"....But it'll have chainsaws...." You pout.
+"...But it'll have chainsaws..." You pout.
 
-ANY OTHER QUESTIONS?
-Stealthyboy !fchRKomfls Mon 08 Feb 2010 22:41:02 No.4500970 Report
->>4500960
-We've only met two of them so far...
-I'm still holding out for SM!Shuu and SM!Masaki to be bros.
-Anonymous Mon 08 Feb 2010 22:44:02 No.4500983 Report
-Quoted By: >>4500991 >>4500998 >>4501007
->>4500964
-"You are just afraid to see your "mighty" Granzon be defeated by our chainsaw-wielding Grungust."
-
-Insult his manhood. That should do it.
-BSRaven !!pZhu/eJf6iW Mon 08 Feb 2010 22:45:02 No.4500991 Report
->>4500983
-Alternatively, interrupt his sentences with "BUT CHAINSWORDS ON A GRUNGUST!"
-Stealthyboy !fchRKomfls Mon 08 Feb 2010 22:46:02 No.4500998 Report
-Quoted By: >>4501136
->>4500983
-I think just using moe face on him should do the trick better. Plus, we get to fangirl him more.
-DS Mon 08 Feb 2010 22:47:02 No.4501000 Report
->>4500964
-
-Then ask him for an autograph.
-Sanger Zombolt! Mon 08 Feb 2010 22:49:02 No.4501007 Report
->>4500983
-I think this should work.
-
-Besides, if we want to have a Grungust by mid-game, we will have to start now. We wait any longer and he will appear by the time we are already jumping dimensions. The Grungust won't built itself in 2 days, you know.
-DS Mon 08 Feb 2010 23:02:02 No.4501051 Report
-I don't think annoying Shuu is a good idea. If we push him too hard for the Grungust, he might leave to pursue Justice elsewhere.
-Fromage Mon 08 Feb 2010 23:26:02 No.4501131 Report
-Quoted By: >>4501219
->>4500964
-"But, An awesome robot like your Granzon needs an awesome sidekick like the Grungust..."
-
-This should work...
-Anonymous Mon 08 Feb 2010 23:29:02 No.4501136 Report
->>4500998
-MOE FACE SOLVES EVERYTHING.
-
-Use it.
-Anonymous Mon 08 Feb 2010 23:49:02 No.4501219 Report
->>4501131
-This.
-
-Also we need Shuu's autograph.
-Anonymous Tue 09 Feb 2010 01:28:02 No.4501612 Report
-Bahmpu
-Sciencegar Sciencebolt Tue 09 Feb 2010 01:47:02 No.4501679 Report
-Quoted By: >>4501688 >>4501718
 "But the Grungust can be the Granzons quirky sidekick!! Irm can pilot it and be all like 'Boss we gotta cut them up with our chainsaws', and you can be all like, 'No, heroes show mercy to their foes', and then the EFA will be dumb and attack you anyway, and he'll have to chainsaw then, and you can be all stoic and conflicted about it while Irm doesn't learn a thing because he's the dumb sidekick who likes fighting too much."
 
 "...If I can spare any time from my grand design, I shall use some of it in an advisory role to assist you. But first, I must chart the Granzon's course to victory. That shall ever take precedent!"
 
 Shuu turns back to his maps and starts scribbling and muttering to himself, while Ring whispers in your ear. "He's just putting on an act, if you just leave the blueprints to your mech lying around where he can find them, he'll practically be begging you to let him make it in a half hour. It was the same way when I asked him to fix mine."
 
-ANY MORE DISCUSSION WITH SHUU AND RING, OR WILL YOU MOVE ON?
-Stealthyboy !fchRKomfls Tue 09 Feb 2010 01:49:02 No.4501688 Report
-Quoted By: >>4501706 >>4501725
->>4501679
-Give Shuu a big hug, then go see Sir Brooklyn.
-Anonymous Tue 09 Feb 2010 01:53:02 No.4501706 Report
-Quoted By: >>4501721 >>4501725
->>4501688
-this, but hug Ring too !
-Anonymous Tue 09 Feb 2010 01:55:02 No.4501718 Report
->>4501679
->He's just putting on an act, if you just leave the blueprints to your mech lying around where he can find them, he'll practically be begging you to let him make it in a half hour
-So awesome...
-
-Anyway, lets go gush over Bullet.
-Stealthyboy !fchRKomfls Tue 09 Feb 2010 01:55:02 No.4501721 Report
->>4501706
-Oh yeah, can't forget Ring.
-
-Pinch her ass while you're at it too.
-Sanger Zombolt! Tue 09 Feb 2010 01:56:02 No.4501725 Report
-Quoted By: >>4501768 >>4501777
->>4501706
->>4501688
-Hug them and say a big "thank you".
-
-:3
-Anonymous Tue 09 Feb 2010 02:01:02 No.4501765 Report
-Thank Ring, hug her, bring up going to MARDI GRAS.
-
-If yes, drag her off to help round up more people, preferably Arado and his gang.
-
-If no, pinch her ass and head off to find those guys anyway.
-Fromage Tue 09 Feb 2010 02:02:02 No.4501768 Report
->>4501725
-right
-Anonymous Tue 09 Feb 2010 02:02:02 No.4501770 Report
-Quoted By: >>4501801
->>4500480
-Take this shit back to gaia
-Sanger Zombolt! Tue 09 Feb 2010 02:03:02 No.4501777 Report
-Quoted By: >>4501795
->>4501725
-In other words: let's act incredibly moe around Shuu. At all times. He is our hero and we probably have a crush on him. Or something.
-Anonymous Tue 09 Feb 2010 02:05:02 No.4501788 Report
-Hug Shuu and Ring. Invite them to come to Mardi Gras when we go to party. (Cause we're fucking going to party)
-
-Let's go speak to Arado and friends.
-Anonymous Tue 09 Feb 2010 02:06:02 No.4501795 Report
-Quoted By: >>4501800
->>4501777
-If we do this, it will be interesting to see what happens when we meet our friendly asshole Shuu.
-Stealthyboy !fchRKomfls Tue 09 Feb 2010 02:07:02 No.4501800 Report
->>4501795
-You mean the one that's dead?
-Haken Browning !zHe7DH816A Tue 09 Feb 2010 02:07:02 No.4501801 Report
->>4501770
->implying people on Gaia use any other characters except metric fucktons of exclamation points
-
-I seriously don't know why Gaia is the "shitty fanfic" benchmark of choice. FF.net, definitely, but Gaia is 10% narrative and 90% unrestrained fanboyism. (For reference, TV Tropes is about 40/60 now thanks to their new designated fanwank namespaces.)
-
-Meanwhile, standard procedure should be UR GONNA GET TAKEN HOME TO MARDI GRAS.
-Sciencegar Sciencebolt Tue 09 Feb 2010 02:12:02 No.4501817 Report
-Quoted By: >>4501830 >>4501831 >>4501832 >>4501840 >>4501856 >>4501861 >>4501887 >>4501893
 Ring is a little taken aback when you hug her.
 
 "Thank you. Now, do you want to see about this Mardi Gras?"
 
-"Well...uh...." Ring looks over at Shuu, who appears to be attacking a notepad with his pencil, so intent is his planning. "...I guess he's not going to be going anywhere for a while. You know what, sure. I'll organise transport and we can head in to the city."
+"Well... uh..." Ring looks over at Shuu, who appears to be attacking a notepad with his pencil, so intent is his planning. "...I guess he's not going to be going anywhere for a while. You know what, sure. I'll organise transport and we can head in to the city."
 
 "Awesome! I'll go find some more victims!!"
 
 You run off towards the hangars, and into the undamaged Trilobite. You head over to the room Arado is sequestered in, hearing voices inside as you approach.
 
-ARE YOU JUST GOING TO BURST IN?
-Stealthyboy !fchRKomfls Tue 09 Feb 2010 02:14:02 No.4501830 Report
-Quoted By: >>4501873
->>4501817
-No, listen in first, all sneaky.
-Sanger Zombolt! Tue 09 Feb 2010 02:14:02 No.4501831 Report
-Quoted By: >>4501873
->>4501817
-DYNAMIC ENTRY the door.
-
-Don't care. Crazy.
-Anonymous Tue 09 Feb 2010 02:15:02 No.4501832 Report
-Quoted By: >>4501892
->>4501817
-KICK IN THE DOOR
-adviceKatina.jpg
-GRIN INSANELY
-Anonymous Tue 09 Feb 2010 02:15:02 No.4501840 Report
->>4501817
-Better listen in, and make sure this Arado doesn't start trying to cheat on us like the last one did.
-Anonymous Tue 09 Feb 2010 02:17:02 No.4501856 Report
->>4501817
-Listen in on what they're saying.
-Anonymous Tue 09 Feb 2010 02:17:02 No.4501857 Report
->>4500480
-SAGE
-Fromage Tue 09 Feb 2010 02:18:02 No.4501861 Report
->>4501817
-Would be wise to listen
-
-...
-
-Okay, kick down that door...
-SEED D Cagalli !!U5xc0wG3iH0 Tue 09 Feb 2010 02:20:02 No.4501868 Report
-Listen in. Let's hear what's going on.
-Anonymous Tue 09 Feb 2010 02:20:02 No.4501873 Report
-Quoted By: >>4501904
->>4501830
->>4501831
->Listen in
-Kick down door
->Listen in WHILE KICKING DOWN DOOR
-Anonymous Tue 09 Feb 2010 02:22:02 No.4501887 Report
->>4501817
-Listen to what they are saying. Then kick down the door.
-Anonymous Tue 09 Feb 2010 02:23:02 No.4501890 Report
->>4500480
-Not /m/
-View SameGoogleiqdbSauceNAO Psychodere-with-BG-KICK-IN-THE-D (...).jpg, 93KiB, 407x405
-Stealthyboy !fchRKomfls Tue 09 Feb 2010 02:23:02 No.4501892 Report
->>4501832
-I think you mean this
-Shas'El Tue 09 Feb 2010 02:23:02 No.4501893 Report
->>4501817
-Kick the door. Patience is for pussies.
-View SameGoogleiqdbSauceNAO 0001-1256983334412.png, 258KiB, 512x512
-Anonymous Tue 09 Feb 2010 02:23:02 No.4501894 Report
-Quoted By: >>4501901
-View SameGoogleiqdbSauceNAO 0002-1256983375141.png, 258KiB, 512x512
-Anonymous Tue 09 Feb 2010 02:24:02 No.4501896 Report
-­
-Anonymous Tue 09 Feb 2010 02:24:02 No.4501897 Report
-Listen in for god's sake. If Arado is telling them or being told something important then we don't want to miss it.
-View SameGoogleiqdbSauceNAO 0003-1256983453199.png, 258KiB, 512x512
-Anonymous Tue 09 Feb 2010 02:25:02 No.4501901 Report
-Quoted By: >>4501908
->>4501894
-­­­
-Sanger Zombolt! Tue 09 Feb 2010 02:26:02 No.4501904 Report
-Quoted By: >>4501906
->>4501873
-OK, listen then kcik down door.
-Sanger Zombolt! Tue 09 Feb 2010 02:26:02 No.4501906 Report
->>4501904
->OK, listen then kick down door.
-
-Fixed.
-View SameGoogleiqdbSauceNAO 0004-1256983514633.png, 258KiB, 512x512
-Anonymous Tue 09 Feb 2010 02:27:02 No.4501908 Report
->>4501901
-ª
-View SameGoogleiqdbSauceNAO 0005-1256983549231.png, 258KiB, 512x512
-Anonymous Tue 09 Feb 2010 02:29:02 No.4501918 Report
-Quoted By: >>4501925
-­ ≥
-View SameGoogleiqdbSauceNAO 0006-1256983581728.png, 258KiB, 512x512
-Anonymous Tue 09 Feb 2010 02:30:02 No.4501925 Report
-Quoted By: >>4501929 >>4501933
->>4501918
-Anonymous Tue 09 Feb 2010 02:31:02 No.4501929 Report
->>4501925
-Sad kouji makes me sad.
-View SameGoogleiqdbSauceNAO 0007-1256983614573.png, 258KiB, 512x512
-Anonymous Tue 09 Feb 2010 02:31:02 No.4501933 Report
-Quoted By: >>4501938
->>4501925
-Anonymous Tue 09 Feb 2010 02:32:02 No.4501937 Report
-Hooray for Kouji!
-View SameGoogleiqdbSauceNAO 0008-1256983651242.png, 258KiB, 512x512
-Anonymous Tue 09 Feb 2010 02:32:02 No.4501938 Report
-Quoted By: >>4501941
->>4501933
-View SameGoogleiqdbSauceNAO 0009-1256983684723.png, 258KiB, 512x512
-Anonymous Tue 09 Feb 2010 02:33:02 No.4501941 Report
-Quoted By: >>4501947 >>4501949
->>4501938
-View SameGoogleiqdbSauceNAO 1256386865563.jpg, 108KiB, 646x1305
-40Kfag from /m/ !!t8iiyj3DIqR Tue 09 Feb 2010 02:34:02 No.4501945 Report
-Quoted By: >>4501970
-Goddamn you Kamille. Goddamn you for giving /m/ the SRW portrait pack in the first place.
-Anonymous Tue 09 Feb 2010 02:34:02 No.4501947 Report
->>4501941
-Get out of here Kouji. You don't belong in /m/. Go back to /toy/.
-View SameGoogleiqdbSauceNAO 0010-1256983717463.png, 258KiB, 512x512
-Anonymous Tue 09 Feb 2010 02:34:02 No.4501949 Report
-Quoted By: >>4501957
->>4501941
-View SameGoogleiqdbSauceNAO 0012-1256983791270.png, 258KiB, 512x512
-Anonymous Tue 09 Feb 2010 02:35:02 No.4501957 Report
->>4501949
-Anonymous Tue 09 Feb 2010 02:38:02 No.4501970 Report
->>4501945
-King of trolls I say King of trolls
-Sciencegar Sciencebolt Tue 09 Feb 2010 02:38:02 No.4501972 Report
-Quoted By: >>4501985 >>4501990 >>4501994 >>4502004 >>4502031 >>4502033 >>4502490
 The tempation to make a grand entrance is great, but you decide to listen in before you break the door down.
+
+---
 
 "...on the Shadow Mirror ship?" Arado's voice.
 
@@ -516,136 +86,32 @@ Then a girl, who's voice is familiar. "Yeah. The Wildfalken was trashed, and the
 
 "Hey!!"
 
-CONTINUE LISTENING?
-View SameGoogleiqdbSauceNAO 0013-1256983824978.png, 258KiB, 512x512
-Anonymous Tue 09 Feb 2010 02:38:02 No.4501976 Report
-Quoted By: >>4501982
-View SameGoogleiqdbSauceNAO 0014-1256983859526.png, 258KiB, 512x512
-Anonymous Tue 09 Feb 2010 02:39:02 No.4501982 Report
->>4501976
-Anonymous Tue 09 Feb 2010 02:40:02 No.4501985 Report
->>4501972
-Listen a bit longer then enter.
-Sanger Zombolt! Tue 09 Feb 2010 02:40:02 No.4501990 Report
->>4501972
-Keep listening.
-Stealthyboy !fchRKomfls Tue 09 Feb 2010 02:41:02 No.4501994 Report
->>4501972
-We've heard enough. Burst in, start the punishment rape.
-Anonymous Tue 09 Feb 2010 02:42:02 No.4502004 Report
-Quoted By: >>4502013
->>4501972
-With Lune there? Surely, you jest. She will kick our asses with her muscular, long snd sexy legs.
-Anonymous Tue 09 Feb 2010 02:44:02 No.4502012 Report
-Lock the door, summon the rest of the crew, and PUNISHMENT TIME.
-
-Even Lune can't beat a full group of men.
-Stealthyboy !fchRKomfls Tue 09 Feb 2010 02:44:02 No.4502013 Report
-Quoted By: >>4502032
->>4502004
-Since we're from The School, aka the crazy steroids house, I think we're probably capable of taking on Ryuune.
-Anonymous Tue 09 Feb 2010 02:44:02 No.4502015 Report
-I think we should go get a few security to arrest the SPAH.
-Anonymous Tue 09 Feb 2010 02:45:02 No.4502021 Report
-Lets go find something else to do. Our attention span lacks the endurance to care about this any more.
-Fromage Tue 09 Feb 2010 02:47:02 No.4502031 Report
-Quoted By: >>4502039 >>4502047
->>4501972
-well, listen a little longer, then, LET'S-GO-TO-MARDI-GRAS KIIICK !
-
-And, sure, pretend we heard nothing...
-Anonymous Tue 09 Feb 2010 02:47:02 No.4502032 Report
-Quoted By: >>4502038
->>4502013
-Arado is also full of steroids, remember?
-Anonymous Tue 09 Feb 2010 02:47:02 No.4502033 Report
->>4501972
-Lock the door on her, continue listening. It'll be funny. Especially when she tries to get out.
-DS Tue 09 Feb 2010 02:47:02 No.4502034 Report
-Knock on the door, tell them it's housekeeping.
-Stealthyboy !fchRKomfls Tue 09 Feb 2010 02:48:02 No.4502038 Report
->>4502032
-Arado has nothing on our REVENGE PSYCHO mode.
-Anonymous Tue 09 Feb 2010 02:49:02 No.4502039 Report
->>4502031
-This. We don't really care about this - We're looking for Mardi Gras victims!
-Anonymous Tue 09 Feb 2010 02:49:02 No.4502044 Report
-Quoted By: >>4502052
-IT'S MARDI GRAS TIME!
-
-No Katina no!
-Sanger Zombolt! Tue 09 Feb 2010 02:50:02 No.4502047 Report
->>4502031
-
-Let's do this.
-Anonymous Tue 09 Feb 2010 02:50:02 No.4502052 Report
->>4502044
-This.
-Sciencegar Sciencebolt Tue 09 Feb 2010 03:00:02 No.4502091 Report
-Quoted By: >>4502111 >>4502123
+---
+	
 The kick doesn't quite knock the door off its hinges, but its not far off. Masaki crumples to the floor, clutching his head.
 
-"OK SLOWPOKES!! This isn't the time to be whispering about boys in the corner!! It's Mardi Gras night, and we're going to paint the town....some color it hasn't been painted already!!"
+"OK SLOWPOKES!! This isn't the time to be whispering about boys in the corner!! It's Mardi Gras night, and we're going to paint the town... some color it hasn't been painted already!!"
 
 Ryuune, Arado and the girl who looks tantalisingly familiar but you can't quite place look at you agog. "K-k-katina..." starts Arado.
 
 "Don't give me that! You've been cooped up in here too long, you've practically been a prisoner!"
 
-"Uh...I sorta wa-"
+"Uh... I sorta wa-"
 
 "But I'm going to make it up to you by giving you the night of your life!"
 
-The girls face contorts with outrage. "Wh-wh-what the heck did you just say?? You ca....You can't possibly be serious!! How can you say things like that?!?"
+The girls face contorts with outrage. "Wh-wh-what the heck did you just say?? You ca... You can't possibly be serious!! How can you say things like that?!?"
 
-"I'm Katina Tarask....Petty sergeant N. Obody, I can do whatever I want!! Besides, I outrank you, and I'm ordering you to come with us for R&R."
+"I'm Katina Tarask... Petty sergeant N. Obody, I can do whatever I want!! Besides, I outrank you, and I'm ordering you to come with us for R&R."
 
 Arado starts to mumble as you drag him out of the room. "K-Katina, don't you have to ask Irm for permission. Or bring Kai? Or something?"
 
 "Can't hear you. Mardi Gras."
 
 Ryuune sighs. "Kuro, Shiro, look after Masaki. I'll keep an eye on them."
-Sciencegar Sciencebolt Tue 09 Feb 2010 03:03:02 No.4502110 Report
-Quoted By: >>4502116 >>4502124 >>4502133
-ARE YOU GOING TO GRAB ANYONE ELSE, OR WILL WE MEET UP WITH RING NOW?
-Stealthyboy !fchRKomfls Tue 09 Feb 2010 03:03:02 No.4502111 Report
->>4502091
-Ok, so flustering up Seolla is a good second place.
-Anonymous Tue 09 Feb 2010 03:04:02 No.4502116 Report
-Quoted By: >>4502131
->>4502110
-Let's take Dumi!
-Anonymous Tue 09 Feb 2010 03:05:02 No.4502123 Report
-Quoted By: >>4502139 >>4502146
->>4502091
-Let's go get Latooni for this, no way we're letting her not come dance with us.
 
-Also I'm now thinking we have to add Seolla to the harem if we want to keep Arado, can't see any way around it.
-Anonymous Tue 09 Feb 2010 03:06:02 No.4502124 Report
->>4502110
-Lets go find Irm and Kai!
-Stealthyboy !fchRKomfls Tue 09 Feb 2010 03:07:02 No.4502131 Report
->>4502116
-I can see this plan ending badly.
-Fromage Tue 09 Feb 2010 03:07:02 No.4502133 Report
->>4502110
-We could use some Latooni to confuse Arado even more !
-Stealthyboy !fchRKomfls Tue 09 Feb 2010 03:08:02 No.4502139 Report
->>4502123
->add Seolla to the harem
+---
 
-I see nothing wrong with this.
-Anonymous Tue 09 Feb 2010 03:09:02 No.4502146 Report
->>4502123
-This in it's entirity.
-
-May as well take Ibis as well, we decided we want her as well but have done precious little about it.
-GUNDAMU !0smG1gQz9c Tue 09 Feb 2010 03:14:02 No.4502171 Report
-Quoted By: >>4502182
-Take Ibis and Bags with you.
-
-All of you proceed to get extremely drunk. Except for Bags, who only gets slightly buzzed despite the fact that he drank twice as much as you, since he's irish.
-Sciencegar Sciencebolt Tue 09 Feb 2010 03:16:02 No.4502179 Report
-Quoted By: >>4502205
 "Ibis!"
 
 "Oh, hey Katina. What's with the big gang?"
@@ -662,105 +128,17 @@ Arado pipes up. "Wait, so you give Ibis the option to come, but not us underage 
 
 "Hush."
 
-DO YOU STILL WANT TO PURSUE LAT, OR WILL YOU MAKE DO WITH THE 5 CONFIRMED PEOPLE?
-View SameGoogleiqdbSauceNAO RmF_WilyEyebrow.gif, 1KiB, 50x50
-Stealthyboy !fchRKomfls Tue 09 Feb 2010 03:16:02 No.4502182 Report
-Quoted By: >>4502210 >>4502213
->>4502171
-And then, once everyone's drunk, we "take advantage of the situation"
-
-And by take advantage of, I mean rape.
-And by the situation, I mean everyone.
-Anonymous Tue 09 Feb 2010 03:16:02 No.4502185 Report
-Quoted By: >>4502220
-GET DRUNK
-
-PROCEED TO RIGOROUSLY EXPLAIN YOUR INSECURITIES TO ANYONE WHO WILL LISTEN
-Stealthyboy !fchRKomfls Tue 09 Feb 2010 03:19:02 No.4502205 Report
->>4502179
-We definately need a Latooni!
-Who else would we molest while exceedingly drunk?
-Apart from all the others it the group of course.
-Anonymous Tue 09 Feb 2010 03:19:02 No.4502208 Report
-"Kai, Irm, we suspect Latooni has a severe fun deficiency! It's very serious and the only cure is to go to the nearest party as fast as possible!"
-View SameGoogleiqdbSauceNAO 7anifreezeman.gif, 9KiB, 57x58
-Anonymous Tue 09 Feb 2010 03:20:02 No.4502210 Report
->>4502182
-
-Hmm... not a bad plan, master.
-Fromage Tue 09 Feb 2010 03:20:02 No.4502213 Report
->>4502182
-that's the plan !
-But, geez, Latooni's too serious... Let's pay her a visit this night !
-Anonymous Tue 09 Feb 2010 03:21:02 No.4502220 Report
->>4502185
->PROCEED TO RIGOROUSLY EXPLAIN YOUR INSECURITIES TO ANYONE WHO WILL LISTEN
-
-Let's confuse Seolla into teaming up with us on being tsundere at Arado by weeping on her shoulder about how 'he' abandoned us even though he was our best friend.
-Anonymous Tue 09 Feb 2010 03:25:02 No.4502244 Report
-Quoted By: >>4502248
-How about we SMS Kai?
-Sciencegar Sciencebolt Tue 09 Feb 2010 03:27:02 No.4502248 Report
-Quoted By: >>4502257
->>4502244
-
-Your phone has no credit. You meant to get a pay-monthly plan, but the whole becoming-an-outlaw-to-join-Shadow-Mirror kinda sunk that plan.
-Anonymous Tue 09 Feb 2010 03:28:02 No.4502257 Report
->>4502248
-Borrow Ibis's phone.
-Anonymous Tue 09 Feb 2010 03:44:02 No.4502329 Report
-obtain lat
-go to mardi gras
-something goes horribly horribly wrong
-wacky hijinx ensue
-Sciencegar Sciencebolt Tue 09 Feb 2010 03:44:02 No.4502335 Report
-Quoted By: >>4502340 >>4502363
-"Give me your phone Ibis. I need to call Subota."
-
-"Ugh...I don't have a phone. Fugitive from EFA justice, remember?"
-
-"Curses!!"
-
-BARGE INTO THE MEETING, GO FIND SOMEONE ELSE, OR MEET RING?
-Stealthyboy !fchRKomfls Tue 09 Feb 2010 03:46:02 No.4502340 Report
->>4502335
-Could you try knocking on the door?
-
-Oh fuck it, barge straight in.
-Sanger Zombolt! Tue 09 Feb 2010 03:49:02 No.4502363 Report
->>4502335
-Barging in is the only sensible choice.
-
-Mardi gras is goign to end and we aren't there yet.
-Fromage Tue 09 Feb 2010 03:50:02 No.4502365 Report
-Quoted By: >>4502382
->"Kai, Irm, we suspect Latooni has a severe fun deficiency! It's very serious and the only cure is to go to the nearest party as fast as possible!"
-this would be a good chance againts Irm but totally random on Kai...
-Well at least we'll try to kick the door "gently" so it can remain intact...
-Anonymous Tue 09 Feb 2010 03:54:02 No.4502382 Report
-Quoted By: >>4502394
->>4502365
-YES. OMG THIS. Latooni has a fun deficiency and we must cure it!
-Anonymous Tue 09 Feb 2010 03:56:02 No.4502394 Report
-Quoted By: >>4502437
->>4502382
-It makes sense, we are Nurse Tarask after all.
-Stealthyboy !fchRKomfls Tue 09 Feb 2010 04:06:02 No.4502437 Report
->>4502394
-When we finally get a dress for Arado, we've got to see about getting a nurses uniform for Katina too.
-Sciencegar Sciencebolt Tue 09 Feb 2010 04:10:02 No.4502463 Report
-Quoted By: >>4502479 >>4502482 >>4502483 >>4502490 >>4502513 >>4502541
 "I'll have to do things the old-fashioned way..." You grumble as you walk towards the door of the Trilobites meeting room.
 
-Miss Tarask, I don't think you're going to get what you want this time.
+*Miss Tarask, I don't think you're going to get what you want this time.*
 
 "Wuh...Dumi, what do you mean?"
 
-I've been listening in on the conversation, from the vibrations in the walls. They're in a much more serious mood than you, I'm afraid. Irm is confused and rather out of his depth, truth be told. Kai is continuing to manuver himself into a full authority position over the group, with Echidna continually reminding him that he's not a true Shadow Mirror. They're caught in a deadlock between wanting to send a small group to Africa, or simply remaining here until Axel recovers to reclaim command. Should you abruptly enter the room demanding they all go the carnival, I don't think it would greatly improve their opinion of you."
+*I've been listening in on the conversation, from the vibrations in the walls. They're in a much more serious mood than you, I'm afraid. Irm is confused and rather out of his depth, truth be told. Kai is continuing to manuver himself into a full authority position over the group, with Echidna continually reminding him that he's not a true Shadow Mirror. They're caught in a deadlock between wanting to send a small group to Africa, or simply remaining here until Axel recovers to reclaim command. Should you abruptly enter the room demanding they all go the carnival, I don't think it would greatly improve their opinion of you.*
 
-"Oh...Do you want to come?"
+"Oh... Do you want to come?"
 
-I'd love to.
+*I'd love to.*
 
 CONTINUE ON COURSE, FIND OTHERS, GO TO RING?
 Fromage Tue 09 Feb 2010 04:14:02 No.4502479 Report
