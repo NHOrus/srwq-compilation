@@ -451,132 +451,10 @@ You round on the guard and jab a finger to his nose. "Don't get attached to her,
 
 "Good!" You walk out of the room, leaving behind a crying girl and a very confused guard.
 
+---
+
 It's quite fortunate that you left when you did, as you can now see the wounded Shadow Mirrors, previously being kept in the outbuildings, are now being shuttled in. The PT squad is being redistributed, with each Trilobite taking some of the damaged and some of the fresh. Everything is a mess, and even just standing in the hangar, you're having to dodge rushing engineers and the odd cranelift.
 
-THERE IS LITTLE YOU CAN DO HERE. GO TO MEET SOMEONE SPECIFIC, OR LET TIME PASS? Or we could have another vignette, I guess.
-Anonymous Fri 12 Feb 2010 06:52:03 No.4517647 Report
->>4517638
-Let's go chat with Kai, if he's not too busy (if he is, we try to help out). I want to find out why he left the EFA and what he's so worried about. He was about to tell us when we left to take on Shine.
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 06:52:03 No.4517649 Report
->>4517638
-I'd like us to meet with Lenonjayce.
-Anonymous Fri 12 Feb 2010 06:58:03 No.4517684 Report
-we haven't heard from lat in awhile
-Anonymous Fri 12 Feb 2010 06:58:03 No.4517685 Report
->>4517638
-
-Another vignette of something please.
-
-Let's see what the OG folks are up to since breaking through the cordon.
-Anonymous Fri 12 Feb 2010 06:59:03 No.4517692 Report
-Quoted By: >>4517715 >>4517718
-Am I the only one that thinks there's something insidious hidden under Kai's eyepatch?
-
-I could totally see him losing the eyepatch in an explosion, and he's got like wriggling einst-tentacles or some robotic eye or some shit under there.
-
-Think about it. That eyepatch rubbing habit of his doesn't seem very natural. Why would you rub a place where you were wounded? It would probably hurt like a bitch.
-Anonymous Fri 12 Feb 2010 07:03:03 No.4517715 Report
-Quoted By: >>4517723
->>4517692
-phantom limb syndrome
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 07:03:03 No.4517718 Report
->>4517692
->and he's got like wriggling einst-tentacles or some robotic eye or some shit under there
-OH FUCK HE'S ONE OF THE INVADERS
-CALL RYOMA.
-
-But seriously, I trust Kai even less than I do Kusuha, now.
-
-And I would't mind meeting with Lat, either.but we've definately got to meet with Jayce sometime soon, we haven't even seen him at all yet!
-Anonymous Fri 12 Feb 2010 07:04:03 No.4517723 Report
->>4517715
-Eyes aren't limbs, they're sensory organs.
-Anonymous Fri 12 Feb 2010 07:11:03 No.4517749 Report
-Quoted By: >>4517773 >>4517779
-You know, we kind of DID just almost suffocate a little girl for no real reason.
-
-Before we run off trying to molest Arado or Latooni, or go formulating crazy conspiracy theories about Einst, Kai's eyepatch and how a Tronium Engine works, maybe we should like, apologize or something. We don't want to get locked in a bathroom again.
-Sanger Zombolt! Fri 12 Feb 2010 07:12:03 No.4517752 Report
-Quoted By: >>4517797
-Sciencegar.
-
-Is there a chance that we may get an early bird cameo from a non-OG mecha series character soon?
-
-I mean, can we meet someone like....I don't know, Ryoma or Simon before we start jumping dimensions thanks to Dark Brain?
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 07:17:03 No.4517773 Report
->>4517749
-We had a reason. We were intimidating her in order to break her defences to tell us what she knew. Albeit this was basically a flimsy excuse for our little sadist Katina to have some shits and giggles, but I don't see why we should apologize for anything. Who would you even have us apologize to? Shine? She'd attempt to kill us in a heartbeat if she got free, she deserves no pity.
-Couch Fri 12 Feb 2010 07:17:03 No.4517779 Report
-Quoted By: >>4517790
->>4517749
-This. Go back in and apologize, with a -little- dere but not a lot. It's the humane thing to do, and those intending to add Shine to the harem should also approve.
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 07:19:03 No.4517790 Report
-Quoted By: >>4517814
->>4517779
-We've been far too dere over the past few threads. It's nice to see some of the psycho side come back out again.
-Sciencegar Sciencebolt Fri 12 Feb 2010 07:21:03 No.4517797 Report
-Quoted By: >>4517803 >>4517807
->>4517752
-
-I'm debating it, I am getting to the point where I'm running out of OG characters I haven't accounted for. Although, given how randomly popular Ensign Mickey was, I may just make up random characters of my own.
-
-(Ooh, twist the knife, Sciencegar, twist it hard.)
-Anonymous Fri 12 Feb 2010 07:22:03 No.4517803 Report
->>4517797
-Just you wait.
-
-We can rebuild him. Stronger. Faster. Less prone to self-destructing.
-View SameGoogleiqdbSauceNAO 1264224199303.jpg, 116KiB, 400x536
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 07:23:03 No.4517807 Report
-Quoted By: >>4517814
->>4517797
-You just had to bring Ensign Mickey back up again.
-I'd almost gotten over my grief.
-*Salutes*
-Lord Guilford !UuMJgvNa0Y Fri 12 Feb 2010 07:25:03 No.4517814 Report
->>4517807
-Far sadder than Ace.
-
->>4517790
-This.
-Sciencegar Sciencebolt Fri 12 Feb 2010 07:31:03 No.4517832 Report
-Quoted By: >>4517841 >>4517844
-Still, we're evenly split between visiting Kai, visiting Lat, meeting Lenonjayce, and apologising to Shine. If I narrow it down to those options, which shall we go for?
-Anonymous Fri 12 Feb 2010 07:32:03 No.4517841 Report
->>4517832
-Apologizing to Shine.
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 07:33:03 No.4517844 Report
->>4517832
-Meeting Jayce.
-Anonymous Fri 12 Feb 2010 07:34:03 No.4517850 Report
-Lenonjayce
-Anonymous Fri 12 Feb 2010 07:36:03 No.4517867 Report
-Quoted By: >>4517876
-You know, I can't see any attempt to apologize to her working out well right now.
-
-We just tried to kill her. Or maybe we weren't trying. But the result is still the same. Which is that she's probably not going to be the most understanding person right now.
-
-Besides, she's a little brat who doesn't understand that the world doesn't revolve around her. It revolves around us, and beer, and molesting as many of our allies as possible before we die in a blaze of glory.
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 07:38:03 No.4517876 Report
->>4517867
-I can't condone ever apologizing to Shine, and for one reason only.
-
-She killed Ensign Mickey.
-Anonymous Fri 12 Feb 2010 07:45:03 No.4517915 Report
-Quoted By: >>4517927
->>4516585
-So zetta SLOOOOOOOWWWWW...
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 07:49:03 No.4517927 Report
->>4517915
->You now realize post >>4516585 was approximately 3 hours ago.
-Anonymous Fri 12 Feb 2010 07:55:03 No.4517947 Report
-I just know, I want to see someone tied up properly.
-Anonymous Fri 12 Feb 2010 08:03:03 No.4517969 Report
-You know, I think I -like- hungover Katina.
-
-We should get drunk more often.
-Sciencegar Sciencebolt Fri 12 Feb 2010 08:03:03 No.4517970 Report
-Quoted By: >>4517977 >>4517978 >>4518044 >>4518059
 You rush out of the Trilobite and head over to the Tausendfuessler in the middle of the field. The Granzon is being stowed aboard, next to a smaller mech covered in a tarp.
 
 "Dr. Shuu! Why are you packing the Granzon away? Aren't we going to teleport to Africa?"
@@ -595,36 +473,8 @@ The new arrival is a silver-haired man, in his late 20s like Irm and Ring. He's 
 
 "Something like that." The man called Starlord waves at you, and turns back to the Tausendfuessler, while Shuu returns to his notebook, of which he has three others in different pockets.
 
-TALK TO JAYCE, TALK TO SHUU, FIND RING, SOMETHING ELSE?
-Anonymous Fri 12 Feb 2010 08:04:03 No.4517974 Report
-Why the hell would we apologise to Shine? We're halfway to breaking her, damnit!
+---
 
-Let's go meet Lenonjayce.
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 08:05:03 No.4517977 Report
->>4517970
-Go talk to Jayce. Try not to mention how fabulous his surname is.
-Anonymous Fri 12 Feb 2010 08:05:03 No.4517978 Report
-Quoted By: >>4517990
->>4517970
->"Come off it, Doc. You just finally realised how close you were to teleporting Mexico to the Moon."
-TELEPORT MEXICO TO THE MOON
-AdviceSMShuu.jpg
-JUSTICE!
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 08:08:03 No.4517990 Report
-Quoted By: >>4519734
->>4517978
-Aw, damn. I forgot to save the image of SM!Shuu.
-Someone else make this.
-Anonymous Fri 12 Feb 2010 08:17:03 No.4518006 Report
-Talk to Shu. Dumi did bring up some points about him, even if the robot is just as suspicious. Ask him about his plan to protect the Earth, and from what.
-Anonymous Fri 12 Feb 2010 08:30:03 No.4518044 Report
->>4517970
-Talk to Shu.
-Anonymous Mk-II Fri 12 Feb 2010 08:33:03 No.4518059 Report
->>4517970
-lets have a chit-chat with jayce
-Sciencegar Sciencebolt Fri 12 Feb 2010 08:48:03 No.4518111 Report
-Quoted By: >>4518117 >>4518134 >>4518139 >>4518146 >>4520400
 "...Starlord? Seriously?"
 
 The silver-haired man turns and looks at you as you hop into the Tausendfuessler behind him.
@@ -636,6 +486,8 @@ The silver-haired man turns and looks at you as you hop into the Tausendfuessler
 "I've heard about you from Irm. This is my ship, I get the right to stab people before anyone else."
 
 "Aaawww..."
+
+---s
 
 Inside you find Ring, playing around on some datapads. "Feeling ok this morning, Katina."
 
@@ -649,33 +501,6 @@ Inside you find Ring, playing around on some datapads. "Feeling ok this morning,
 
 "You try carting that guy around for a few months, with his mumbling and half-baked speeches, and you'd be the same, Ring. You at least had the EX to work on, I've watched every movie and read every book on this Fuesslers 3TB harddrive, and I still had to talk to that crazy bastard to fill out the time."
 
-ANYTHING IN PARTICULAR YOU'D LIKE TO SAY?
-Sanger Zombolt! Fri 12 Feb 2010 08:51:03 No.4518117 Report
->>4518111
-You have a fabulous name.
-Anonymous Fri 12 Feb 2010 08:56:03 No.4518134 Report
->>4518111
-"Have you gone through all the videogames yet?"
-Anonymous Mk-II Fri 12 Feb 2010 08:57:03 No.4518139 Report
->>4518111
-"cool shit. BTW since you are the chairwoman of mao industries would you like to make a bussines deal with the Shadow-mirrors once we find the funny green haried warmonger? we are gonna start the fires of war and anihilation but we need someone backing us with parts, weapons and lots of funky prototypes.
-Anonymous Fri 12 Feb 2010 08:58:03 No.4518146 Report
-Quoted By: >>4518163
->>4518111
-so ring is building the EX? interesting.
-Anonymous Fri 12 Feb 2010 09:03:03 No.4518163 Report
-Quoted By: >>4518169
->>4518146
-Suggest the Kusuha-drink engine.
-
-Or, failing that, an electric flaming chainsword.
-Anonymous Fri 12 Feb 2010 09:08:03 No.4518169 Report
->>4518163
-it would have to be a gravity chainsword.
-Anonymous Fri 12 Feb 2010 09:19:03 No.4518196 Report
-I can't think of too much to say, and I'm still in favour of trying to get Shu's plan out of him.
-Sciencegar Sciencebolt Fri 12 Feb 2010 09:21:03 No.4518204 Report
-Quoted By: >>4518347
 "Well, we can't sit around here forever! Jayce, lets warm up the Tausendfuessler and get her course laid in. Then we can try some multiplayer. I think I have a flash card with Goldeneye on it..."
 
 "Don't you have to be on your own ship, to pilot your mech?"
@@ -684,30 +509,10 @@ Quoted By: >>4518347
 
 "Heh, we'll have to see about that..."
 
-INCOMING ELSEWHERE, STAY TUNED
-Anonymous Fri 12 Feb 2010 10:12:03 No.4518347 Report
-Quoted By: >>4518352
->>4518204
-*stays tuned*
-BSRaven !!pZhu/eJf6iW Fri 12 Feb 2010 10:14:03 No.4518352 Report
-Quoted By: >>4518401
->>4518347
-We're moving channel dipshit.
+---
 
-Go back to the Program Guide Menu.
-Anonymous Fri 12 Feb 2010 10:27:03 No.4518401 Report
-Quoted By: >>4518408
->>4518352
-The hell're you talking about?
-BSRaven !!pZhu/eJf6iW Fri 12 Feb 2010 10:29:03 No.4518408 Report
->>4518401
-Nevermind. I don't know what I was thinking either... too early for me to be posting on /m/ I guess.
-View SameGoogleiqdbSauceNAO Justice-Shu-TELEPORT-MEXICO-TO-T (...).jpg, 113KiB, 407x405
-Couch Fri 12 Feb 2010 18:32:03 No.4519734 Report
-Quoted By: >>4520400
->>4517990
-Ask and ye shall receive.
-Sciencegar Sciencebolt Fri 12 Feb 2010 22:33:03 No.4520394 Report
+####ELSEWHERE
+
 "So, everyone made it out ok?" Tetsuya looks tired on the comm screen, as does Lefina.
 
 "So it would seem. The Kurogane and Hiryu made their breakthroughs with minimal damage, and the Giest has successfully teleported to Argentina. And most of our lost lambs have met up with the Shadow Mirrors, so only Latooni and Shine are unaccounted for."
@@ -720,36 +525,16 @@ Lefina nods. "Agreed, but, where shall we start?"
 
 "Ratsel and Sanger have been in contact with the Neo DC of this universe, and they've given us some slight leads. Tetsuya, take the Kurogane to Aidoneus Island, and investigate the underground chambers. Lefina, theres a man in Canada by the name of Helios Olympus. He may have some clues."
 
-"Helios...Wait, wasn't that...?"
+"Helios... Wait, wasn't that...?"
 
 "My name, yes. It could simply be an imposter, but we can't afford to pass anything up at this stage. I'll continue trying to make contact with the EFA and other factions, and see who will work with us. The others will be checking Africa, and the Earth Cradle."
 
 "Gilliam, what kind of timescale do we have to work with here? How long do we have?"
 
 "I honestly don't know. The Zweizergain could make the jump tomorrow, or it could wait in hiding for years, potentially. But we have more to worry about than that. Unless we can finally get in contact with the EFA and call them off, we will eventually be overrun and picked off."
-Sciencegar Sciencebolt Fri 12 Feb 2010 22:34:03 No.4520395 Report
-(Yeah, that was pretty shit, but I felt there had to be some exposition from the OG guys. I'll try something more interesting next time.)
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 22:35:03 No.4520400 Report
-Quoted By: >>4520433 >>4520464
->>4519734
-It's not quite SM!Shuu, but meh, close enough.
 
->>4518111
-The EX... as in the Huckebein EX? That's the only EX I can remember...
-Sciencegar Sciencebolt Fri 12 Feb 2010 22:44:03 No.4520433 Report
->>4520400
+---
 
-You didn't ask.
-Anonymous Fri 12 Feb 2010 22:53:03 No.4520464 Report
-Quoted By: >>4520475
->>4520400
-Must be the Huckebein. People are going to shit bricks at a Black Hole Engine powered Vanishing Trooper.
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 22:55:03 No.4520475 Report
-Quoted By: >>4520482
->>4520464
-Thing is, it being the Huckey EX would be seriously weird, considering there was never a Huckebein Mk II to upgrade the original Huckebein's frame to.
-Sciencegar Sciencebolt Fri 12 Feb 2010 22:56:03 No.4520481 Report
-Quoted By: >>4520498 >>4520502
 Miami Auxiliary Base is considered by many in the EFA to be a waste of resources. Why put such a large base there, they say, when Langley base is a few hundred miles north? These people fail to realise that the whole point of MAB is that it isn't Langley, and thus things can happen there outside the eyes of the EFA top brass.
 
 The Black Knight walks out onto the runway as the Tausendfuessler taxis to a stop. She flashes her ID at one of the staff, and tells him to hurry with the refuelling, as she hops aboard.
@@ -760,7 +545,7 @@ A whisper. "They've been covered in stealth coating. So the color will be right 
 
 "I don't care much for the color, more the performance. Are these mechs really going to equal to the Schwartzritter?"
 
-"I....I'm sorry. They don't have the multi-combat abilities. My mech is specialised for long-range combat, you have been assigned the melee specialist. I...I can recquisition more weapons, if you'd like."
+"I... I'm sorry. They don't have the multi-combat abilities. My mech is specialised for long-range combat, you have been assigned the melee specialist. I... I can recquisition more weapons, if you'd like."
 
 The Black Knight smiles warmly, and places her hand on the other girls shoulder. "Sister, don't apologise for the shortcomings of the engineers. Radom Group has fallen a long way since they made the Schwartzritter for me, you can't be blamed for that. Besides, its up to the pilots to overcome the limitations of their mechs."
 
@@ -768,151 +553,46 @@ The Black Knight smiles warmly, and places her hand on the other girls shoulder.
 
 The Tausendfuessler rumbles as it turns to face the runway again. "We'll be at the targets before you know it, so be ready. We'll find these Shadow Mirrors and that brat Shine, and even if we never end up fighting them, we'll be sure to find out every secret they're fighting."
 
-Especially....if its really him...
+Especially... if its really him...
 
-The silver-haired girl nods. "Yes sister....I'll do my best."
-Anonymous Fri 12 Feb 2010 22:57:03 No.4520482 Report
-Quoted By: >>4520502
->>4520475
-Just cause they're both called Huckebein EX doesn't mean they're the same. Could just be Ring decided to customise the fuck out of the 008L on this side and called it EX just cause she wanted to.
-Anonymous Fri 12 Feb 2010 23:01:03 No.4520498 Report
->>4520481
->SM Seolla is like OG Latooni
->Pilotting a pair of mechs with SM Ouka
+The silver-haired girl nods. "Yes sister... I'll do my best."
 
-OH GOD AWESOMENESS
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 23:03:03 No.4520502 Report
->>4520481
-Calling SM!Ouka sister... it can't be either SM!Arado or SM!Latooni, Could this be SM!Seolla?
->>4520482
-Yeah, I suppose so. Unless Ring somehow got access to one of the OGsider's Huckey Mk II's...
-Sciencegar Sciencebolt Fri 12 Feb 2010 23:42:03 No.4520629 Report
-Quoted By: >>4520641 >>4520774
+---
+
 Its cold in the pod. Really cold, so much that if his blood were meant to flow, it'd probably freeze anyway. He sort of wishes he could finish up here and go to hell properly, at least it'd be warmer there.
 
-But no. They had to bring him back. Corpse was still fresh, they said. Minimal brain damage, they said. Fehu will know what to do. And ever since, the pod has been his prison as much as his useless corpse, the only outside contact being the pointless programming and....her.
+But no. They had to bring him back. Corpse was still fresh, they said. Minimal brain damage, they said. Fehu will know what to do. And ever since, the pod has been his prison as much as his useless corpse, the only outside contact being the pointless programming and... her.
 
 I should get over it, he thinks. If I worry about vengeance, I'll end up as a ghost, walking the earth forever. Better to just do nothing and let them get bored, and finally switch the pod off, and let him rest.
 
-Or you could try living.
+*Or you could try living.*
 
 Who?
 
-I'm a friend.
+*I'm a friend.*
 
 Dead people don't have friends. How are you talking to me?
 
-You're not truly dead, W-BC-01. It's just that the world, as it is, can't make you truly alive again. But I can.
+*You're not truly dead, W-BC-01. It's just that the world, as it is, can't make you truly alive again. But I can.*
 
 What?
 
-Egret Fehu may have been able to save your brain, and Lemon Browning able to coax you into a semblance of life, but theres an essential element missing from this world that would make you complete. I can help you find that, and bring you back.
+*Egret Fehu may have been able to save your brain, and Lemon Browning able to coax you into a semblance of life, but theres an essential element missing from this world that would make you complete. I can help you find that, and bring you back.*
 
 Sounds too good to be true. What's the catch?
 
-A fairly high one, for you.
+*A fairly high one, for you.*
 
 I'm dead. How can it get any worse for me?
 
 If I find a way to revive you, you have to promise me you'll leave Katina alive.
 
-...That is a tough one, but I'm that vengeful a ghost.
+*...That is a tough one, but I'm that vengeful a ghost.*
 
 ...And, if I deem it nessecary, you'll have to leave her side, and come with me. Niether revenge nor reconciliation will be yours, if she's uncooperative.
 
-....Damn you! Damn you!!
+*...Damn you! Damn you!!*
 
 Those are the terms. And if you can convince Katina of the merits of joining me, then you can have your happy ending.
 
-....alright.
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 23:44:03 No.4520641 Report
->>4520629
-So Dumi's trying to turn Arado to his side...
-Anonymous Fri 12 Feb 2010 23:59:03 No.4520701 Report
-Quoted By: >>4520703
-Given how sorta dere we've been around OG Arado lately it wouldn't actually be that difficult for us to reconcile with W Series Arado.
-
-We shall have both!
-BSRaven !!pZhu/eJf6iW Sat 13 Feb 2010 00:01:03 No.4520703 Report
-Quoted By: >>4520719
->>4520701
-ADD THEM TO THE HAR...
-
-Wait, they're already part of the harem aren't they?
-Stealthyboy !fchRKomfls Sat 13 Feb 2010 00:05:03 No.4520719 Report
-Quoted By: >>4520727
->>4520703
-Well, SM!Arado isn't yet.
-He's not even been released from his pod yet.
-BSRaven !!pZhu/eJf6iW Sat 13 Feb 2010 00:07:03 No.4520727 Report
-Quoted By: >>4520735
->>4520719
-I wonder if SMArado is aware of how dere we are for his OG brother...
-
-If yes, I suggest we go dere OGArado some more.
-Anonymous Sat 13 Feb 2010 00:09:03 No.4520731 Report
-inevitably, we're going to have to destroy dumi from the looks of it, and i am not looking forward to that.
-Stealthyboy !fchRKomfls Sat 13 Feb 2010 00:09:03 No.4520735 Report
-Quoted By: >>4520745
->>4520727
-As long as this dere doesn't go too over the top, and still retains a bit of the psycho side, I can get behind this suggestion.
-
-Besides, we still haven't fixed up his lovely new dress!
-BSRaven !!pZhu/eJf6iW Sat 13 Feb 2010 00:11:03 No.4520745 Report
->>4520735
-Dere into false sense of security
-(adviceSMKatina.jpg)
-"WEAR THIS FUCKING DRESS NOW."
-Anonymous Sat 13 Feb 2010 00:16:03 No.4520774 Report
->>4520629
-The plot thickens.
-Sciencegar Sciencebolt Sat 13 Feb 2010 00:35:03 No.4520846 Report
-Quoted By: >>4520849 >>4520852 >>4520856 >>4520857 >>4520879 >>4520887 >>4520891 >>4520971
-Ok, the thread is nearing autosage levels, and I'm low on ideas for the next one. I think I'll have a short aside with one of the Shadow Mirrors before we make it to Africa.
-
-Here are your options:
-
-Irm
-Ibis
-Russel
-Latooni
-Giado
-Lamia
-Brooklyn
-
-Choose your destiny.
-BSRaven !!pZhu/eJf6iW Sat 13 Feb 2010 00:35:03 No.4520849 Report
->>4520846
-Russel.
-Haken Browning !zHe7DH816A Sat 13 Feb 2010 00:35:03 No.4520852 Report
->>4520846
-Ibis.
-Stealthyboy !fchRKomfls Sat 13 Feb 2010 00:36:03 No.4520856 Report
->>4520846
-Sir Brooklyn. Or AxeLamia. whichever really.
-Anonymous Sat 13 Feb 2010 00:36:03 No.4520857 Report
->>4520846
-Latooni
-Zeta Zaku Sat 13 Feb 2010 00:41:03 No.4520879 Report
->>4520846
-Ibis, as well.
-Anonymous Sat 13 Feb 2010 00:43:03 No.4520887 Report
->>4520846
-
-Giado
-Anonymous Sat 13 Feb 2010 00:43:03 No.4520891 Report
->>4520846
-Ibis.
-Anonymous Sat 13 Feb 2010 01:05:03 No.4520971 Report
->>4520846
-latooni
-Anonymous Sat 13 Feb 2010 01:09:03 No.4520984 Report
-Irm
-Anonymous Sat 13 Feb 2010 01:23:03 No.4521026 Report
-Quoted By: >>4521055
-Another vote for Latooni here (putting Lat and Ibis tied at 3 votes each)
-Sciencegar Sciencebolt Sat 13 Feb 2010 01:31:03 No.4521055 Report
->>4521026
-Ibis/Lat tagteam it is then.
-
-New thread here: >>4521053
+*...alright.*
