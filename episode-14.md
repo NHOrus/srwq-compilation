@@ -130,62 +130,26 @@ You plop down on a bollard and start to ramble. "Well... where else would I go? 
 
 "Hurm....maybe that wouldn't be the worst idea ever..."
 
-I don't think they build AIs specifically to come up with the worst ideas ever.
+*I don't think they build AIs specifically to come up with the worst ideas ever.*
 
 "Maybe we should ask that cool Shuu guy to help! His mech can teleport a whole bunch of stuff at once, maybe it'll reach to space!"
 
-That does present some intruiging tactical possibilities if it is true. However, I'm not sure Dr. Shirakawa can be completely relied on.
+*That does present some intruiging tactical possibilities if it is true. However, I'm not sure Dr. Shirakawa can be completely relied on.*
 
 "What makes you say that?"
 
-From scanning my archives, it appears the man is a cypher of the highest order. He has worked with basically every faction on the planet for almost a decade, the EFA, EOTI, DC, multiple scientific institutions and engineering companies. He's abandoned each one in mysterious circumstances, sometimes leaving scattered notes on his theories in twisted recompense for stealing information or cash. And now that I've actually met the man, he doesn't present the kind of demeanour needed to justify such actions.
+*From scanning my archives, it appears the man is a cypher of the highest order. He has worked with basically every faction on the planet for almost a decade, the EFA, EOTI, DC, multiple scientific institutions and engineering companies. He's abandoned each one in mysterious circumstances, sometimes leaving scattered notes on his theories in twisted recompense for stealing information or cash. And now that I've actually met the man, he doesn't present the kind of demeanour needed to justify such actions.*
 
 "Ugh...how so?"
 
-Well, primarily, I am unimpressed by his grandstanding over his great 'plan', which he seems to be incredibly vague on the details of. I suspect either it's of a contraversial nature he cannot reveal to us, or he actually doesn't have a real plan at all.
+*Well, primarily, I am unimpressed by his grandstanding over his great 'plan', which he seems to be incredibly vague on the details of. I suspect either it's of a contraversial nature he cannot reveal to us, or he actually doesn't have a real plan at all.*
 
-CONTINUE THIS LINE OF CONVERSATION OR SWITCH TO THE OTHER NIGGLING DOUBT IN THE BACK OF YOUR MIND?
-Anonymous Mk-II Wed 10 Feb 2010 22:34:14 No.4510403 Report
->>4510361
-that should be enough. just keep an eye on shuu, if he smirks we kill him without warning
-Sciencegar Sciencebolt Wed 10 Feb 2010 23:03:14 No.4510507 Report
-Quoted By: >>4510534
 "Y've given me a fair bit to think about, Dumi, but if I stay out here much longer, I'll sober up. I'll catch ya in the morning maybe, and see what we can do then."
 
-Very well. Enjoy the rest of your festivities.
+*Very well. Enjoy the rest of your festivities.*
 
-RETURN TO BAR, OR FIND ARADO AND CO? Other suggestions possible.
-Haken Browning !zHe7DH816A Wed 10 Feb 2010 23:11:14 No.4510534 Report
-Quoted By: >>4510720 >>4510765
->>4510507
-INCREASE LAT AND IBIS'S BLOOD ALCOHOL CONTENT
-*adviceDesu*
-COYOTE UGLY BAR DANCING
-Anonymous Mk-II Wed 10 Feb 2010 23:34:14 No.4510586 Report
-Quoted By: >>4510720 >>4510765
->>INCREASE LAT AND IBIS'S BLOOD ALCOHOL CONTENT
+---
 
-seconded
-Anonymous Thu 11 Feb 2010 00:09:14 No.4510720 Report
->>4510534
->>4510586
-Lat's not here remember?
-
-Let's go check on the kiddiewinks before gettingmore drunk with the adults.
-Anonymous Thu 11 Feb 2010 00:16:14 No.4510765 Report
-Quoted By: >>4510862 >>4510926
->>4510534
->>4510586
-Thirded. Except replace Lat with Ring.
-Anonymous Thu 11 Feb 2010 00:29:14 No.4510862 Report
->>4510765
-Fourth.
-Fromage Thu 11 Feb 2010 00:38:14 No.4510926 Report
->>4510765
-Fifth
-But Add Russel to see how much he can take before being drunk
-Sciencegar Sciencebolt Thu 11 Feb 2010 01:28:14 No.4511156 Report
-Quoted By: >>4511272 >>4511298 >>4511306
 You re-enter the bar, and, after checking your wallet, realise you have just enough to buy a round of 'health drinks' for the table. Thank God for universal currency.
 
 Ibis shakily takes hers, Ring politely sips, Russel gives his a swig. Kusuha knocks back the half of one she had and starts on the fresh one.
@@ -198,91 +162,11 @@ Ring looks concerned. "Uh, Kusuha, isn't that, like, your fifth."
 
 "Old drunks trick, takin'he corner seat." Kusuha does not look very well.
 
-CONTINUE CHATTING OR TAKE ADVANTAGE OF SITUATION?
-Anonymous Thu 11 Feb 2010 01:50:14 No.4511272 Report
-Quoted By: >>4511391
->>4511156
-Take advantage of the situation in what way? Getting everyone naked or asking them details about their lives?
-Anonymous Thu 11 Feb 2010 01:55:14 No.4511298 Report
->>4511156
-Dang, this Mardi Gras is taking way too long. Get everyone arrested already. Or some other thing.
-BSRaven !!pZhu/eJf6iW Thu 11 Feb 2010 01:57:14 No.4511306 Report
-Quoted By: >>4511322
->>4511156
-Tell Kusuha you'll buy her two 'health drinks' if she gets naked on the spot.
-Anonymous Thu 11 Feb 2010 01:59:14 No.4511322 Report
-Quoted By: >>4511329 >>4511352
->>4511306
-I say we get everyone else drunk first and then attempt this.....but on EVERYONE.
-BSRaven !!pZhu/eJf6iW Thu 11 Feb 2010 02:00:14 No.4511329 Report
-Quoted By: >>4511352
->>4511322
-Alright, fine by me.
-
-Extend to EVERYONE. When they call you out on not buying them drinks, just say that we'd never mentioned buying them TODAY.
-Sanger Zombolt! Thu 11 Feb 2010 02:04:14 No.4511352 Report
->>4511329
->>4511322
-Let's do this. We already know enough of the plot. Let's do this and then go back to whatever we should do in the ship.
-Sciencegar Sciencebolt Thu 11 Feb 2010 02:09:14 No.4511386 Report
-Quoted By: >>4511393 >>4511396
-You have enough money for a coke at best. Kusuha is, as we say in Ireland, "Schtuckered". Ibis isn't sober, but hasn't managed to force down the second drink yet either. Russel has only hade 3 Guinness and a health drink, his fine Wexford liver can take it. Ring is pretending to drink. Katina herself isn't all that great given that she's put 15 units of alcohol into her system.
-Anonymous Thu 11 Feb 2010 02:10:14 No.4511391 Report
->>4511272
->Take advantage of the situation in what way?
-In every way possible, of course!
-Sciencegar Sciencebolt Thu 11 Feb 2010 02:10:14 No.4511393 Report
->>4511386
-
-What I'm trying to say is, there are ample oppurtunities, just not universal ones.
-Anonymous Thu 11 Feb 2010 02:11:14 No.4511396 Report
-Quoted By: >>4511416 >>4511433 >>4511447
->>4511386
-Just find a way to do it. Do it for the hilarity, man!
-Anonymous Thu 11 Feb 2010 02:14:19 No.4511416 Report
->>4511396
-To further my point:
-
-http://tvtropes.org/pmwiki/pmwiki.php/Main/RuleOfFunny
-
->I'll go where the humor takes me, and if that happens to create gross inconsistencies, then so be it.
-
-------
-
->That doesn't make any sense.
-
->Doesn't have to, I'm in a monster truck!
-View SameGoogleiqdbSauceNAO narbonic_ruleoffunny.png, 33KiB, 197x269
-Anonymous Thu 11 Feb 2010 02:16:14 No.4511433 Report
-Quoted By: >>4511447 >>4511470 >>4511503
->>4511396
-To further my point:
-
-http://tvtropes.org/pmwiki/pmwiki.php/Main/RuleOfFunny
-
->I'll go where the humor takes me, and if that happens to create gross inconsistencies, then so be it.
-
-------
-
->That doesn't make any sense.
-
->Doesn't have to, I'm in a monster truck!
-Sanger Zombolt! Thu 11 Feb 2010 02:18:14 No.4511447 Report
->>4511433
->>4511396
-I agree with this school of thought.
-
-Just do it.
-Anonymous Thu 11 Feb 2010 02:23:14 No.4511470 Report
->>4511433
-And don't forget to include Seolla, Arado, Rio and Ryoto in it!
-Sciencegar Sciencebolt Thu 11 Feb 2010 02:30:14 No.4511492 Report
-Quoted By: >>4511503 >>4511507 >>4511531 >>4511538
 "R'ssel, I got'he last round, s'y'r turn."
 
 "Katina, lass, I t'ink maybe you've had enough."
 
-"Mebbe...mebbe...but the ussers hasn't. 'Ey need some."
+"Mebbe... mebbe... but the ussers hasn't. 'Ey need some."
 
 Kusuha perks up. "Yeh, Ursel, g'v's anuvver."
 
@@ -292,7 +176,7 @@ Kusuha perks up. "Yeh, Ursel, g'v's anuvver."
 
 "No, I think you two should call it a night. Maybe we all should, its getting late and we do still have work to do. We'll gather everyone up and head back."
 
-YOUR EVIL PLAN IS BEING THWARTED BY SENSIBLE DRINKING HABITS. WHAT WILL YOU DO?
+    YOUR EVIL PLAN IS BEING THWARTED BY SENSIBLE DRINKING HABITS. WHAT WILL YOU DO?
 Anonymous Thu 11 Feb 2010 02:32:14 No.4511503 Report
 >>4511492
 See:
