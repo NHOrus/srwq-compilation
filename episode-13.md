@@ -207,7 +207,3 @@ The lights of Brasilia fill your vision as you cross the Amazon on the Neo Brasi
 "PERVERTED LITTLE BASTARD!! I'LL PUT OUT YOUR LECHEROUS EYES!!"
 
 "I EXPECT MY BEADS TOMORROW ARADO!!" You chuckle as you tie up the front of your dress. "Now for some liquid entertainment."
-
----
-
-You get to the bar and see that the others have settled in already. Ibis is talking with some of the locals and showing them a piece of paper, Ring and Russel are in a relatively quiet corner, and Kusuha is at the bar, negotiating loudly with the barman.
