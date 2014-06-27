@@ -1,34 +1,17 @@
+# Episode 16
 
-SRWQ Mission 16: Cradle of Fuckin' Civilisation
-Sciencegar Sciencebolt Sat 13 Feb 2010 01:31:27 No.4521053 ViewReplyOriginalReport
+## SHADOW MIRROR QUEST (AKA SRW Q)
+
+###SRWQ Mission 16: Cradle of Fuckin' Civilisation
+
 We continue to follow the adventures of the Shadow Mirrors, in particular Katina Tarask, as their world is turned upside down by the arrival of the OG Heroes, seeking to stop the plans of Dark Brain. On the run from the EFA, the rag-tag fleet of former terrorists heads to Africa, where Colonel Van Vat Tran has made his last stand, after the defeat of his allies, the Inspectors.
 
 We take a short break from Katina while Lenonjayce Starlord kicks her ass at Counterstrike, and focus on two of our other heroines: Latooni Subota, cold calculating School Graduate, and Ibis Douglas, team artillery expert, pining for her lost friend Sleigh.
 
 What awaits our heroes in Africa? Who is chasing them? And what threats lie within their own ranks? Only time will tell...
-Haken Browning !zHe7DH816A Sat 13 Feb 2010 01:33:27 No.4521060 Report
->Fuckin' Civilisation
-DAMMIT, WHO LET GANDHI COMPLETE THE MANHATTAN PROJECT AGAIN
-Sciencegar Sciencebolt Sat 13 Feb 2010 01:34:27 No.4521066 Report
-Previous threads:
 
-http://archive.easymodo.net/cgi-board.pl/m/thread/4415513
-http://archive.easymodo.net/cgi-board.pl/m/thread/4419117
-http://archive.easymodo.net/cgi-board.pl/m/thread/4420922
-http://archive.easymodo.net/cgi-board.pl/m/thread/4426965
-http://archive.easymodo.net/cgi-board.pl/m/thread/4429260
-http://archive.easymodo.net/cgi-board.pl/m/thread/4432887
-http://archive.easymodo.net/cgi-board.pl/m/thread/4438663
-http://archive.easymodo.net/cgi-board.pl/m/thread/4469339
-http://archive.easymodo.net/cgi-board.pl/m/thread/4472897
-http://archive.easymodo.net/cgi-board.pl/m/thread/4479556
-http://archive.easymodo.net/cgi-board.pl/m/thread/4488105
-http://archive.easymodo.net/cgi-board.pl/m/thread/4496632
-http://archive.easymodo.net/cgi-board.pl/m/thread/4500480
-http://archive.easymodo.net/cgi-board.pl/m/thread/4505042
-http://archive.easymodo.net/cgi-board.pl/m/thread/4514805
-Sciencegar Sciencebolt Sat 13 Feb 2010 01:39:27 No.4521075 Report
-Quoted By: >>4521077
+---
+
 Current complement:
 
 Trilobite 1 carrying
