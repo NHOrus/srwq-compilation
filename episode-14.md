@@ -1,6 +1,9 @@
+# Episode 14
 
-SRWQ Mission 14: You people will be the death of me.
-Sciencegar Sciencebolt Tue 09 Feb 2010 20:27:14 No.4505042 ViewReplyOriginalReport
+## SHADOW MIRROR QUEST (AKA SRW Q)
+
+###SRWQ Mission 14: You people will be the death of me.
+
 You are the Shadow Mirror version of Katina Tarask. Your groups attempt to invade the OGverse was cut painfully short when the heroes of the OGverse counter-invaded to prevent the entity Dark Brain from destroying them. In the confusion, you and a small group of Shadow Mirrors escaped with some experimental super robots and a prisoner, Arado, who dredged up memories of his Shadow Mirror counterpart for you. After allying with the DC and agreeing by proxy to track down Vindel Mauser and his Zweizergrain, the source of all this trouble.
 
 Through many battles, the surviving Shadow Mirrors have gathered in a hideaway in Brasilia to lick their wounds and figure out what to do next.
@@ -8,24 +11,9 @@ Through many battles, the surviving Shadow Mirrors have gathered in a hideaway i
 In the lull, you have decided to drag a group of both Shadow Mirrors and shaky OG allies to the city for the Mardi Gras.
 
 This can't possibligh end badly.
-Sciencegar Sciencebolt Tue 09 Feb 2010 20:36:14 No.4505067 Report
-The previous threads list is now so long it's better put in the second post.
 
-http://archive.easymodo.net/cgi-board.pl/m/thread/4415513
-http://archive.easymodo.net/cgi-board.pl/m/thread/4419117
-http://archive.easymodo.net/cgi-board.pl/m/thread/4420922
-http://archive.easymodo.net/cgi-board.pl/m/thread/4426965
-http://archive.easymodo.net/cgi-board.pl/m/thread/4429260
-http://archive.easymodo.net/cgi-board.pl/m/thread/4432887
-http://archive.easymodo.net/cgi-board.pl/m/thread/4438663
-http://archive.easymodo.net/cgi-board.pl/m/thread/4469339
-http://archive.easymodo.net/cgi-board.pl/m/thread/4472897
-http://archive.easymodo.net/cgi-board.pl/m/thread/4479556
-http://archive.easymodo.net/cgi-board.pl/m/thread/4488105
-http://archive.easymodo.net/cgi-board.pl/m/thread/4496632
-http://archive.easymodo.net/cgi-board.pl/m/thread/4500480
-Sciencegar Sciencebolt Tue 09 Feb 2010 20:40:14 No.4505079 Report
-Quoted By: >>4505085 >>4505086 >>4505088
+---
+
 You head to the bar where Kusuha is still animatedly talking to the barman.
 
 "Is there a problem, Nurse Mizuha?"
@@ -36,18 +24,6 @@ The barman puts down a large glass tumbler and pours out a measure of vodka, one
 
 "It's my patent-pending health drink. Wanna try one?"
 
-WELL, DO YOU?
-Fromage Tue 09 Feb 2010 20:42:14 No.4505085 Report
->>4505079
-Try it of course !
-Anonymous Tue 09 Feb 2010 20:42:14 No.4505086 Report
->>4505079
-YES
-Anonymous Tue 09 Feb 2010 20:42:14 No.4505088 Report
->>4505079
-Do it.
-Sciencegar Sciencebolt Tue 09 Feb 2010 20:57:14 No.4505136 Report
-Quoted By: >>4505150 >>4505158
 The feeling of drinking this mixture is as if you were deepthroating someone whos dick was on fire. You can just about manage large sips, and you're no lightwieght. Kusuha drains a quarter of the large glass in one go.
 
 "It *kaff* wakes you up, at least."
@@ -62,16 +38,6 @@ You sit at the table next to Ring and Russel. Ibis is still at the other end of 
 
 "Seeing Arado off. So, whats the agenda for tonight?"
 
-WHAT WOULD YOU LIKE TO BE THE FIRST TOPIC OF CONVERSATION?
-Anonymous Tue 09 Feb 2010 21:02:14 No.4505150 Report
-Quoted By: >>4506878
->>4505136
-Fill Ring in on alternate dimension stuff. Wonder what the hell everyone's alternate selves would be like.
-Anonymous Tue 09 Feb 2010 21:05:14 No.4505158 Report
->>4505136
-drag ibis, get more drunk
-Sciencegar Sciencebolt Tue 09 Feb 2010 21:25:14 No.4505212 Report
-Quoted By: >>4505249 >>4505997 >>4506265
 Ring sips at her drink. "So, I'll admit I've only caught a little of what's happening with the Shadow Mirrors. Can you fill me in?"
 
 Russel looks like he's about to talk, but you begin before him. "Well, we were planning to use some wierd technology to move into another dimension, get out from under the EFA and rebuild on another world, but we attracted the wrong sort of attention. The people from the other world distrupted our transport and sent their mechs in, saying that if we used it it'd lead some monster or something to destroy their universe."
