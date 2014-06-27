@@ -140,65 +140,15 @@ Arado pipes up. "Wait, so you give Ibis the option to come, but not us underage 
 
 *I'd love to.*
 
-CONTINUE ON COURSE, FIND OTHERS, GO TO RING?
-Fromage Tue 09 Feb 2010 04:14:02 No.4502479 Report
->>4502463
-we've got no choice : grab Bags and Dumi and go to Ring
-Anonymous Tue 09 Feb 2010 04:14:02 No.4502482 Report
->>4502463
-I guess this is a time to not be impulsive (madness I know).
+---
 
-Us, Seolla, Arado, Ryuune, Ring and Dumi can go party down.
-
-We wll have to dance with Latooni at a later date.
-Anonymous Tue 09 Feb 2010 04:14:02 No.4502483 Report
-Quoted By: >>4502491 >>4502492 >>4502494
->>4502463
-Is Dumi listening in to -everything-?
-
-...And how the hell is it talking to us anyway? Do we have an implant in our head that allows it to talk to us, ala Codec?
-Sanger Zombolt! Tue 09 Feb 2010 04:16:02 No.4502490 Report
-Quoted By: >>4502513
->>4502463
->>4501972
-Let's bring Russel and then lets go tt Ring.
-Sciencegar Sciencebolt Tue 09 Feb 2010 04:16:02 No.4502491 Report
-Quoted By: >>4502511
->>4502483
-
-Again with my inability to set the scene. You met Ibis in the Hangar, and were walking past Dumi to get to the meeting room.
-Anonymous Tue 09 Feb 2010 04:16:02 No.4502492 Report
-Quoted By: >>4502503
->>4502483
-He is like the Brave robots.
-Anonymous Tue 09 Feb 2010 04:17:02 No.4502494 Report
-Quoted By: >>4502503
->>4502483
-He is like the Brave mechs.
-Anonymous Tue 09 Feb 2010 04:18:02 No.4502503 Report
->>4502492
->>4502494
-Bravemind
-Anonymous Tue 09 Feb 2010 04:19:02 No.4502511 Report
->>4502491
-Well that makes a lot more sense.
-
-Anyway, grab teh Bagman and go to the big gay party.
-Anonymous Tue 09 Feb 2010 04:20:02 No.4502513 Report
->>4502490
->>4502463
-Tell Dumi to tell them to cool their asses down and come join us in Mardi Gras. They can make a decision after some R&R.
-
-Then let's roun up Russel, those that are coming, and go glomp Ring.
-Sciencegar Sciencebolt Tue 09 Feb 2010 04:24:02 No.4502540 Report
-Quoted By: >>4502551 >>4502565
 You find Russel at the other end of the hangar driving a forklift of parts over to Rio and Ryoto, who are working on a half-dismantled Gespenst.
 
 Ryoto looks about ready to pass out. "Man, how does Kai even know mechs well enough to give us a list of changes this long? I thought pilots just used the damned things, and mechanics were the ones who knew where all the screws went."
 
 "Ack sure, Kai's hardly an ordinary pilot, lad. He was an Aggressor, back when they were still buildin' the first Gespenst, and he woulda been workin' with the design team every day."
 
-"Urgh....I suppose...but still, he's practically asking us to rebuilt the whole thing."
+"Urgh... I suppose... but still, he's practically asking us to rebuilt the whole thing."
 
 "BAGS!!" You shout to get Russels attention, and make the universal gesture for 'having a few scoops.'
 
@@ -206,52 +156,8 @@ Russels face lights up like you were offering him a pot of gold.
 
 "Hey, where are you going? The whole lot of you? Are you going to the city? I can go to the city too. Wait!"
 
-TAKE RYOTO AND/OR RIO?
-Stealthyboy !fchRKomfls Tue 09 Feb 2010 04:25:02 No.4502541 Report
-Quoted By: >>4502572
->>4502463
->"Oh...Do you want to come?"
+---
 
->I'd love to.
-
-D'AWWWWW. Add Dumi to the harem. Somehow, I don't care.
-Stealthyboy !fchRKomfls Tue 09 Feb 2010 04:26:02 No.4502551 Report
-Quoted By: >>4502561
->>4502540
-Also, yes take both Ryoto and Rio.
-Hopefully we will get an opportunity to convert Ryoto to the ways of the badass.
-Anonymous Tue 09 Feb 2010 04:28:02 No.4502561 Report
-Quoted By: >>4502573
->>4502551
-Preverably via drunken rambling.
-Anonymous Tue 09 Feb 2010 04:28:02 No.4502565 Report
->>4502540
-No reason not to take them. Bring them along.
-Zeta Zaku Tue 09 Feb 2010 04:29:02 No.4502572 Report
->>4502541
-Perhaps come upgrade time, Echidna can provide him a W-Series body to make him a Real Boy.
-Stealthyboy !fchRKomfls Tue 09 Feb 2010 04:30:02 No.4502573 Report
-Quoted By: >>4502579 >>4502585
->>4502561
-More like drunken fumbling, amirite?
-wilyeyebrow.gif
-Anonymous Tue 09 Feb 2010 04:31:02 No.4502579 Report
->>4502573
-Yes. Yes you are.
-Anonymous Tue 09 Feb 2010 04:32:02 No.4502585 Report
-Quoted By: >>4502592
->>4502573
-I think Rio might kill us if we did that.
-
-Wait... are they even together in this world?
-
-NEW PLAN GUYS! If Ryoto and Rio aren't together in the shadow mirror world then once they're both drunk as lords we lock them in a bedroom together.
-Stealthyboy !fchRKomfls Tue 09 Feb 2010 04:33:02 No.4502592 Report
->>4502585
-With us.
-onceagainwilyeyebrow.gif
-Sciencegar Sciencebolt Tue 09 Feb 2010 04:49:02 No.4502655 Report
-Quoted By: >>4502667 >>4502673 >>4502701 >>4502727
 You lead the group outside, where Ring is waiting in a left-over transport truck. "Well, I wasn't expecting quite a turn-out, but there should be enough room in the ba-"
 
 "SHOTGUN!!!"
@@ -266,240 +172,27 @@ Ring looks confused, then looks up at the giant motorcycle driving out of the Tr
 
 Leaving Ring standing agape, you hop into the cab of the truck. It's a three-seater, and the third seat is already occupied by a young asian woman in a military nurses outfit with Shadow Mirror trimmings.
 
-"Oh...more warm bodies for the charge?"
+"Oh... more warm bodies for the charge?"
 
 "Heh-heh, something like that. I'm Kusuha, Kusuha Mizuha. My shift is over, so I thought I'd join the group."
-Anonymous Tue 09 Feb 2010 04:51:02 No.4502667 Report
-Quoted By: >>4502682
->>4502655
 
-Hmmm... how does her health drinks taste?
-Stealthyboy !fchRKomfls Tue 09 Feb 2010 04:52:02 No.4502673 Report
->>4502655
-Something about the way Kusuha laughed then...
-For some reason, I don't trust her.
-Zeta Zaku Tue 09 Feb 2010 04:53:02 No.4502682 Report
->>4502667
-Like delicious nectar of the gods. It's claimed that after one, Axel was lucid for a full week. Lemon still glows when she talks about it.
+---
 
-Or maybe some things are just so bad they transcend dimensions.
-Sanger Zombolt! Tue 09 Feb 2010 04:57:02 No.4502701 Report
-Quoted By: >>4502722
->>4502655
-
-4 of the Alpha numbers are already with us.
-
-2 are in a known location.
-
-Only Yui and Carla remain. I wonder where are they.
-Anonymous Tue 09 Feb 2010 05:04:02 No.4502722 Report
-Quoted By: >>4502735
->>4502701
-Aren't we missing Tasuku?
-Anonymous Tue 09 Feb 2010 05:04:02 No.4502727 Report
-Quoted By: >>4502745
->>4502655
-
-Wait a minute, why does she want to sit in front instead of siiting next to Arado?
-Stealthyboy !fchRKomfls Tue 09 Feb 2010 05:06:02 No.4502735 Report
->>4502722
-Tasuku's with Leona in Ryuune's DC.
-Anonymous Tue 09 Feb 2010 05:07:02 No.4502745 Report
->>4502727
-Reflex.
-Anonymous Tue 09 Feb 2010 05:10:02 No.4502758 Report
-OH SHIT
-
-WE FORGOT TO GRAB BULLET
-Gamlin !Xb1uRYUg66 Tue 09 Feb 2010 05:11:02 No.4502765 Report
-Quoted By: >>4502777
-So do we still have that bug Dumi told us to put in our ear?
-Sciencegar Sciencebolt Tue 09 Feb 2010 05:13:02 No.4502773 Report
-Quoted By: >>4502783 >>4502791
 The lights of Brasilia fill your vision as you cross the Amazon on the Neo Brasilia bridge. You're soon in the thick of the festival, dodging wayward floats and patches of dancers. You get out of the truck in the only parking lot you can find with free space, dodging a bunch of kids playing soccer. The group seems to be a little split on where to go. Rio, Ryoto, Ryuune, Arado and that girl you've-seen-her-somewhere-before-dammit are headed to a nearby park, where a concert is playing. Ring, Russel, Ibis, and Kusuha are headed in another direction, towards a raucous-sounding bar. Dumi slowly crawls along the nearest main street, placing him directly between the two points. He seems to have attracted a crowd.
 
-WHERE SHALL KATINA GO?
-Sciencegar Sciencebolt Tue 09 Feb 2010 05:14:02 No.4502777 Report
->>4502765
+---
 
-Yes, actually. It just hasn't come up for a while.
-Anonymous Tue 09 Feb 2010 05:17:02 No.4502783 Report
-Quoted By: >>4502815 >>4502829
->>4502773
-Strip naked and run around, creeping and arousing people out wherever you go.
-Stealthyboy !fchRKomfls Tue 09 Feb 2010 05:19:02 No.4502791 Report
->>4502773
-AAARGH. Part of me wants to go with Arado's group (partly to fluster Seolla, partly to turn Ryoto badass), but the suspicious part of me doesn't want to let Kusuha out of our sight...
-Oh screw it.
-Go with Arado's group.
-Anonymous Tue 09 Feb 2010 05:22:02 No.4502796 Report
-Quoted By: >>4502881
-Go with Ring, Russel, Ibis, and Kusuha to the bar, its time for a crazy party.
-Sanger Zombolt! Tue 09 Feb 2010 05:27:02 No.4502815 Report
-Quoted By: >>4502829
->>4502783
-Fanservice? In my SRW fanfic?
-
-Count me in. Oh, and go with Arado's group while naked.
-Anonymous Tue 09 Feb 2010 05:32:02 No.4502829 Report
->>4502815
->>4502783
-Dohoho. This will confuse Arado like hell and induce an Arado-killing rage on Seolla. I want to see this.
-Anonymous Tue 09 Feb 2010 05:34:02 No.4502839 Report
-Quoted By: >>4502842
-gODDAMNIT PEOPLE
-
-...
-
-I mean, goddamnit people, we have to be at least slightly drunk to do the stripping thing. I vote that we go get smashed first, then when sufficiently inebriated we find the concert group.
-Anonymous Tue 09 Feb 2010 05:35:02 No.4502842 Report
-Quoted By: >>4502854
->>4502839
-This Katina needs no reason to get naked. Only normal people do.
-
-Anyway, I vote we make everyone else drunk so everyone can join the nnaked fun!
-Anonymous Tue 09 Feb 2010 05:38:02 No.4502854 Report
-Quoted By: >>4502861
->>4502842
-But getting naked would mean that we're not wearing our dress.
-View SameGoogleiqdbSauceNAO castro crop.jpg, 152KiB, 360x287
-Anonymous Tue 09 Feb 2010 05:40:02 No.4502861 Report
->>4502854
-But it means being naked!
-Gamlin !Xb1uRYUg66 Tue 09 Feb 2010 05:41:02 No.4502864 Report
-Russel is interesting, bad ass, and member #1 of our harem. Go with his group.
-
-Also Ring is fucking awesome, let's go with her.
-Anonymous Tue 09 Feb 2010 05:42:02 No.4502866 Report
->SRW Q
->Go to Mardi Gras
->run around naked
-Goddamnit, 4chan.
-View SameGoogleiqdbSauceNAO alligator.jpg, 16KiB, 480x360
-Sanger Zombolt! Tue 09 Feb 2010 05:46:02 No.4502878 Report
-I don't really think Sciencegar will really do it, but if he does, this whole festival is going to be one huge BLAM.
-Anonymous Tue 09 Feb 2010 05:46:02 No.4502881 Report
->>4502796
-This. No naked time. We don't /always/ have to be batshit insane, people.
-Sciencegar Sciencebolt Tue 09 Feb 2010 05:49:02 No.4502890 Report
-Quoted By: >>4502895 >>4502896
-Ok, maybe I should be a little clearer about the outcomes on offer here:
-
-GET DRUNK WITH THE ADULTS
-TRACK DOWN ARADO AND CAUSE PROBABLE CATFIGHT WITH SEOLLA
-STRIP NAKED AND GET ARRESTED, LOSING DRESS IN PROCESS
-
-Does that make things clearer?
-Anonymous Tue 09 Feb 2010 05:51:02 No.4502895 Report
-Quoted By: >>4502899 >>4502928 >>4502933
->>4502890
->STRIP NAKED AND GET ARRESTED, LOSING DRESS IN PROCESS
->GET ARRESTED, LOSING DRESS IN PROCESS
->LOSING DRESS IN PROCESS
-NOOOOOOOOOOOOOOOOOOOOOOO!
-
-Lets just get drunk, and while we're at it maybe display some unexpected depth to our character.
-Anonymous Tue 09 Feb 2010 05:51:02 No.4502896 Report
-Quoted By: >>4502904 >>4502916 >>4502966
->>4502890
->STRIP NAKED IN FRONT OF ARADO.
-
->STRIP ARADO DOWN TO NOTHING.
-
->CAUSE A CATFIGHT WITH SEOLLA THAT ENDS WITH HER NAKED TOO.
-
->WE ALL GET ARRESTED.
-Anonymous Tue 09 Feb 2010 05:52:02 No.4502899 Report
-Quoted By: >>4502928
->>4502895
-I approve of this. Perhaps getting drunk will make us act like a sane human being?
-
-...man, I bet that would freak the fuck out of everyone.
-kai !!2vdorzb/J61 Tue 09 Feb 2010 05:53:02 No.4502900 Report
-Track Arado
-Anonymous Tue 09 Feb 2010 05:54:02 No.4502903 Report
-"Heh. I'll tell you a secret. Cum'ere. Cm'ere...I...I didn't kill Arado because he was cheating on me. I killed him...because he knew too much..."
-Shas'El Tue 09 Feb 2010 05:54:02 No.4502904 Report
-Quoted By: >>4502907 >>4502912 >>4502930
-I was gonna say that we just followed Arado, but this:
-
->>4502896
-
-Sounds like something we can just pass out.
-Shas'El Tue 09 Feb 2010 05:55:02 No.4502907 Report
-Quoted By: >>4502912
->>4502904
->We can't...
-Anonymous Tue 09 Feb 2010 05:56:02 No.4502912 Report
->>4502904
->>4502907
->STRIP NAKED AND GET ARRESTED, LOSING DRESS IN PROCESS
->DO NOT WANT
-View SameGoogleiqdbSauceNAO zombolt.png, 117KiB, 225x350
-Sanger Zombolt! Tue 09 Feb 2010 05:57:02 No.4502916 Report
-Quoted By: >>4502930
->>4502896
-I change my vote to this. Best of both worlds. After this then we can see what everyone else is doing.
-Anonymous Tue 09 Feb 2010 05:59:02 No.4502928 Report
->>4502895
->>4502899
-Yeah. Lets get drunk with the adults. Besides, it'll even the groups out to a nice 5/5.
-Anonymous Tue 09 Feb 2010 06:00:02 No.4502930 Report
-Quoted By: >>4502948 >>4502972
->>4502904
->>4502916
-If we strip naked and get arrested, why the hell would our group bail us out of jail? We'd have proven ourself an incredible liability.
-
-Also we'd probably break our cover and then SUDDENLY EFA WHILE KATINA IS NAKED AND IMPRISONED.
-Anonymous Tue 09 Feb 2010 06:00:02 No.4502933 Report
->>4502895
-
-The dress is a necessary sacrifice if we are to have the biggest catfight in the universe. But make it casual and not pornographic. Just make me laugh.
-View SameGoogleiqdbSauceNAO mardi_nude.jpg, 29KiB, 200x310
-SpoilerClick to view
-Sanger Zombolt! Tue 09 Feb 2010 06:03:02 No.4502948 Report
-Quoted By: >>4502958
->>4502930
-Good point. But then again, many people get naked in Mardi Grases in Brazil, and noone get arrested.
-
-Even the Queens are naked at those events.
-Anonymous Tue 09 Feb 2010 06:03:02 No.4502950 Report
-One vote for SRS BSNS drunk Katina.
-View SameGoogleiqdbSauceNAO Mardi Gras.jpg, 71KiB, 700x525
-SpoilerClick to view
-Sanger Zombolt! Tue 09 Feb 2010 06:04:02 No.4502958 Report
-Quoted By: >>4502971 >>4502975 >>4502981
->>4502948
-
-Maybe we could get naked withotu getting arrested?
-Anonymous Tue 09 Feb 2010 06:07:02 No.4502966 Report
->>4502896
-This sounds like a plan. I want to see an epic catfight between Seolla and Katina. Should be fun to watch.
-View SameGoogleiqdbSauceNAO Mardi gras22.jpg, 52KiB, 286x320
-SpoilerClick to view
-Anonymous Tue 09 Feb 2010 06:09:58 No.4502971 Report
->>4502958
-Delicious black girls.
-Anonymous Tue 09 Feb 2010 06:09:02 No.4502972 Report
->>4502930
-Concur. We're regarded badly enough as it is without getting arrested to boot.
-View SameGoogleiqdbSauceNAO 123-334.jpg, 52KiB, 286x320
-Sanger Zombolt! Tue 09 Feb 2010 06:11:58 No.4502975 Report
->>4502958
-Anyway, posting more delicious brown girls.
-Sciencegar Sciencebolt Tue 09 Feb 2010 06:11:02 No.4502977 Report
-Quoted By: >>4502986 >>4502989 >>4502990 >>4503005
 "Seolla, what are you saying? I wouldn't do a thing like that!!"
 
-"Well how come she keeps implying...things? She certainly doesn't look like the kind of woman who'd say no."
+"Well how come she keeps implying... things? She certainly doesn't look like the kind of woman who'd say no."
 
-"Wha...What do you take me for? E-even if I was that kinda guy, it just wouldn't be safe to go with her!"
+"Wha... What do you take me for? E-even if I was that kinda guy, it just wouldn't be safe to go with her!"
 
 "What are you saying?"
 
 "Well, she's a lot more dangerous than our Katina, I'll put it that way..."
 
-"...Arado, I...I was just worried about you...This mission has been tough on all of us, knowing we might not make it back...I don't want to lose you too..."
+"... Arado, I... I was just worried about you... This mission has been tough on all of us, knowing we might not make it back...I don't want to lose you too..."
 
 "Seolla...I..."
 
