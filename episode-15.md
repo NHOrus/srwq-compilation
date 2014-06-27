@@ -1,7 +1,9 @@
+# Episode 14
 
-SRWQ Mission 15: The Morning After
-Sciencegar Sciencebolt Thu 11 Feb 2010 19:36:03 No.4514805 ViewReplyOriginalReport
-Quoted By: >>4514812 >>4514819 >>4516956
+## SHADOW MIRROR QUEST (AKA SRW Q)
+
+###SRWQ Mission 15: The Morning After
+
 "Katina, get up!"
 
 You are Katina Tarask, one of the few surviving member of Shadow Mirror, thrown out of The School for your rage issues and tendency towards molestation of the younger students.
@@ -16,82 +18,32 @@ As soon as you open the door, Ibis drags you out into the hangar, where a perple
 
 Echidna Iasaki, mistress of the mysterious W-Series, is pointing a gun at Kai Kitamura, the ex-EFA ace and eyepatched man of mystery, like Irm, your commander-in-theory, looks on in shock.
 
-WHAT SHALL YOU DO?
-Anonymous Thu 11 Feb 2010 19:39:03 No.4514812 Report
->>4514805
+---
 
-Barf. Barf like there's no tomorrow to attract their attention.
-Sciencegar Sciencebolt Thu 11 Feb 2010 19:39:03 No.4514813 Report
-Previous threads:
+####Current Roster (This may become quite relevant later)
 
-http://archive.easymodo.net/cgi-board.pl/m/thread/4415513
-http://archive.easymodo.net/cgi-board.pl/m/thread/4419117
-http://archive.easymodo.net/cgi-board.pl/m/thread/4420922
-http://archive.easymodo.net/cgi-board.pl/m/thread/4426965
-http://archive.easymodo.net/cgi-board.pl/m/thread/4429260
-http://archive.easymodo.net/cgi-board.pl/m/thread/4432887
-http://archive.easymodo.net/cgi-board.pl/m/thread/4438663
-http://archive.easymodo.net/cgi-board.pl/m/thread/4469339
-http://archive.easymodo.net/cgi-board.pl/m/thread/4472897
-http://archive.easymodo.net/cgi-board.pl/m/thread/4479556
-http://archive.easymodo.net/cgi-board.pl/m/thread/4488105
-http://archive.easymodo.net/cgi-board.pl/m/thread/4496632
-http://archive.easymodo.net/cgi-board.pl/m/thread/4500480
-http://archive.easymodo.net/cgi-board.pl/m/thread/4505042
-Anonymous Mk-II Thu 11 Feb 2010 19:44:03 No.4514819 Report
->>4514805
-what can we do?
-let em finish their business also echidna must have a very good reason to point a gun towards kai.
-Brave Exkaiser will Never Die Thu 11 Feb 2010 19:50:03 No.4514824 Report
-Quoted By: >>4514834
-RUNNING TACKLE.
-Anonymous Thu 11 Feb 2010 19:56:03 No.4514831 Report
-as much as i hate to admit it, kai is the least trustworthy of the two. in fact, he isn't trustworthy at all. we've been so caught up in how awesome he is that we let someone who is probably an enemy gain control over the SM survivors. i say we take echidna's side.
-Anonymous Thu 11 Feb 2010 19:59:03 No.4514834 Report
->>4514824
-ATTEMPT RUNNING TACKLE, BUT STOP AND BARF LIKE NO TOMORROW.
-Anonymous Thu 11 Feb 2010 20:01:03 No.4514838 Report
-no barfing
-Anonymous Thu 11 Feb 2010 20:03:03 No.4514840 Report
-Shout, "What the hell's going on.... oh god I need to be sick..."
++ Katina in her Raioh
++ Dumi the very helpful AI in the DGG-04, a transforming motorbike.
++ Irm, completely out of his depth, in a red Gespenst Mk-IIM.
++ Kai, the guy everyone listens to because he's so damned manly, whose green Gespenst is being upgraded.
++ Ibis, artillery specialist and gun nut, searching the world for Sleigh, in a Schutzwald.
++ Russel Bagman, keeps the group together with with his Irish 'cop-on', piloting a completely normal blue Gespenst.
++ Latooni, cold calculating School Graduate, piloting a Soldifar.
++ Echidna Iasaki, commander of 'W-Unit', in a Rathgrith.
++ A half-dozen wierd pods called W-Series, including one that TOTALLY DID NOT TALK TO YOU DAMMIT. One may have to be used to pilot your stolen WildRaubtier.
++ Giado and Garnet, Shadow Mirror agents who run this secret warehouse/safehouse in the jungle near Brasilia. Have a baby together.
++ Axel Almer: The true leader of Shadow Mirror while Lemon and Vindel are missing. Currently unconscious after the Soulgain went two rounds with Beowulf, one with an EFA battleship and another with the mysterious Black Knight, and promptly shut down.
++ Lamia Loveless, another active W-Series, who was badly damaged by elite EFA mechs. The Angelg has been repaired, but no word on her.
++Brooklyn 'Sir' Luckfield: A chivalrous warrior of the Shadow Mirror, quite big into honorable combat and the warrior ethic. Pilots the Vysaga.
++ Dr Shuu Shirakawa: Self-styled Scientific Savior of Earth, creator and pilot of the Invincible Earth Liberation Warrior Granzon. Claims to be about to save Earth, but from what, and how, no-ones really asked him yet.
++ Ring Mao: Former PTX Team member, head of PT creators Mao Industries, and ally of Shuu.
++ Lenonjayce Starlord: Another PTX veteran, currently piloting a Tausendfuessler.
++ Johnathan Kazahara, Rio and Ryoto: Heads of the maintenance and engineering staff you have. Repairing all your mechs is tough work, but John is finding the time to design the Neo Grungust.
++ OGverse Arado, Seolla, Ryuune and Masaki: Desperate to find the Zweizergain and anything else that could lead Dark Brain to their world, you are temporarily allied with some of the invaders from another universe. Relations are friendly for now, but oh-so-confusing, especially for poor Arado.
 
->The rest of the night is a blur.
-We don't get to remember snuggling up to Kusuha and Ibis?! No fair!
-Sciencegar Sciencebolt Thu 11 Feb 2010 20:05:03 No.4514847 Report
-Quoted By: >>4514893
-Current Roster (This may become quite relevant later)
+---
 
-Katina in her Raioh
-Dumi the very helpful AI in the DGG-04, a transforming motorbike.
-Irm, completely out of his depth, in a red Gespenst Mk-IIM.
-Kai, the guy everyone listens to because he's so damned manly, whose green Gespenst is being upgraded.
-Ibis, artillery specialist and gun nut, searching the world for Sleigh, in a Schutzwald.
-Russel Bagman, keeps the group together with with his Irish 'cop-on', piloting a completely normal blue Gespenst.
-Latooni, cold calculating School Graduate, piloting a Soldifar.
-Echidna Iasaki, commander of 'W-Unit', in a Rathgrith.
-A half-dozen wierd pods called W-Series, including one that TOTALLY DID NOT TALK TO YOU DAMMIT. One may have to be used to pilot your stolen WildRaubtier.
-Giado and Garnet, Shadow Mirror agents who run this secret warehouse/safehouse in the jungle near Brasilia. Have a baby together.
-Anonymous Thu 11 Feb 2010 20:17:03 No.4514868 Report
-Slur out questions about what the fuck is going on, try not to barf.
-
-Kai's pretty untrustworthy right now, so no trying to help him.
-Sciencegar Sciencebolt Thu 11 Feb 2010 20:19:03 No.4514873 Report
-Roster continued because I fear hitting the text limit on one post:
-
-Axel Almer: The true leader of Shadow Mirror while Lemon and Vindel are missing. Currently unconscious after the Soulgain went two rounds with Beowulf, one with an EFA battleship and another with the mysterious Black Knight, and promptly shut down.
-Lamia Loveless, another active W-Series, who was badly damaged by elite EFA mechs. The Angelg has been repaired, but no word on her.
-Brooklyn 'Sir' Luckfield: A chivalrous warrior of the Shadow Mirror, quite big into honorable combat and the warrior ethic. Pilots the Vysaga.
-Dr Shuu Shirakawa: Self-styled Scientific Savior of Earth, creator and pilot of the Invincible Earth Liberation Warrior Granzon. Claims to be about to save Earth, but from what, and how, no-ones really asked him yet.
-Ring Mao: Former PTX Team member, head of PT creators Mao Industries, and ally of Shuu.
-Lenonjayce Starlord: Another PTX veteran, currently piloting a Tausendfuessler.
-Johnathan Kazahara, Rio and Ryoto: Heads of the maintenance and engineering staff you have. Repairing all your mechs is tough work, but John is finding the time to design the Neo Grungust.
-OGverse Arado, Seolla, Ryuune and Masaki: Desperate to find the Zweizergain and anything else that could lead Dark Brain to their world, you are temporarily allied with some of the invaders from another universe. Relations are friendly for now, but oh-so-confusing, especially for poor Arado.
-Anonymous Mk-II Thu 11 Feb 2010 20:28:03 No.4514893 Report
->>4514847
-put latooni in the shutzwald . assign the soldifar to echidna and the rathgrith to ibis.
-Sciencegar Sciencebolt Thu 11 Feb 2010 20:30:03 No.4514897 Report
-Quoted By: >>4514915 >>4514919
-"What is... whu's...HWOOOORRFFF" You hurriedly grab a nearby bucket and empty your guts into it. Thankfully, you didn't eat a lot last night, so you're soon finished, and nothing gets on your dress.
+"What is... whu's... HWOOOORRFFF" You hurriedly grab a nearby bucket and empty your guts into it. Thankfully, you didn't eat a lot last night, so you're soon finished, and nothing gets on your dress.
 
 "Wha 'xactly's goin' on?"
 
