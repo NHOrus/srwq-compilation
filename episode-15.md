@@ -1,4 +1,4 @@
-# Episode 14
+# Episode 15
 
 ## SHADOW MIRROR QUEST (AKA SRW Q)
 
@@ -16,7 +16,7 @@ Ibis' voice is barely audible over the thumping in your head. You have a vague r
 
 As soon as you open the door, Ibis drags you out into the hangar, where a perplexing scene meets your eyes.
 
-Echidna Iasaki, mistress of the mysterious W-Series, is pointing a gun at Kai Kitamura, the ex-EFA ace and eyepatched man of mystery, like Irm, your commander-in-theory, looks on in shock.
+Echidna Iasaki, mistress of the mysterious W-Series, is pointing a gun at Kai Kitamura, the ex-EFA ace and eyepatched man of mystery, while Irm, your commander-in-theory, looks on in shock.
 
 ---
 
@@ -49,32 +49,10 @@ Echidna Iasaki, mistress of the mysterious W-Series, is pointing a gun at Kai Ki
 
 Echidna didn't even glance at you, her eyes fixed on Kai. "Mr Kitamura is attempting either theft of Shadow Mirror materiel, or a coup."
 
-Kai rubs his eyepatch in irritation. "That's just your interpretation, miss. What I said I was going to do was get some of our forces moving again. Waiting around here for all these busted mechs and dying pilots to get here will only increase the chance of the EFA finding us. Better that we get on with our mission, at least sending some of our people on to Africa, than sit here twiddling our thumbs."
+Kai rubs his eyepatch in irritation. "That's just your interpretation, miss. What I said I was going to do was get some of our forces moving again. Waiting around here for all these busted mechs and dying pilots to get better will only increase the chance of the EFA finding us. Better that we get on with our mission, at least sending some of our people on to Africa, than sit here twiddling our thumbs."
 
 "That is not your decision to make, Mr Kitamura. You are still officially a prisoner, and have only provisionly freedom by Lt. Irms request. The true decision on what we are doing lies with Major Almer, and no-one else."
 
-WHAT WILL KATINA DO?
-Sciencegar Sciencebolt Thu 11 Feb 2010 20:34:03 No.4514905 Report
-Man, my typing sucks today. I keep making errors:
-
->like Irm, your commander-in-theory, looks on in shock.
-
-That should say "while Irm looks on in shock".
-
->Waiting around here for all these busted mechs and dying pilots to get here 
-
-That should be 'waiting for them to get better'.
-Lord Guilford !UuMJgvNa0Y Thu 11 Feb 2010 20:35:03 No.4514906 Report
-As much as I'd like to get moving... we are NOT leaving Axel behind for anything, and we are NOT letting Kai take command of his own contingent.
-Anonymous Thu 11 Feb 2010 20:36:03 No.4514910 Report
-Too wasted to say something coherent. Let's say that Kai's so hot that he should be the new shadow mirror commander, followed by vomiting again.
-Anonymous Mk-II Thu 11 Feb 2010 20:37:03 No.4514915 Report
->>4514897
-bitchs right. and we better keep discipline if we wanna stick around when the fighting starts.
-Anonymous Thu 11 Feb 2010 20:38:03 No.4514919 Report
->>4514897
-I'm agreeing with Echidna on this one. This is Axel's call and I don't trust Kai enough for him to take a group off by himself.
-Sciencegar Sciencebolt Thu 11 Feb 2010 21:01:03 No.4514970 Report
 "Kai, you're cool and all, but this is a no-soldier-left-behind kinda gig. We stick together in the Shadow Mirror, and if the EFA do come, we fight together to fend them off."
 
 Kai looks over at you. He looks like he's dissappointed in you.
@@ -90,27 +68,10 @@ Irm sighs. "He's with Ryoto, if he does anything truly opposed to us the kid wil
 "...Very well."
 
 Echidna walks back towards the medbay, her face expressionless as ever.
-Anonymous Thu 11 Feb 2010 21:13:03 No.4514988 Report
-Quoted By: >>4515004
-Before Echidna goes, ask her how getting a pilot for the Raubtier is going.
-Anonymous Thu 11 Feb 2010 21:24:03 No.4515004 Report
->>4514988
-This. And ask her if you can at least see the next model.
-Anonymous Mk-II Thu 11 Feb 2010 21:28:03 No.4515010 Report
-Quoted By: >>4515025
-LOL if the next model is a random mass-produced W with no personality whatsoever.
-Anonymous Thu 11 Feb 2010 21:35:03 No.4515025 Report
->>4515010
-It's going to be Ashe.
 
-And then clone-fucking will ensue.
-Anonymous Thu 11 Feb 2010 21:35:03 No.4515026 Report
->You are Katina
+---
 
-Ugh.
-Sciencegar Sciencebolt Thu 11 Feb 2010 21:38:03 No.4515036 Report
-Quoted By: >>4515154
-ELSEWHERE
+####ELSEWHERE
 
 "Excellent work, Major Hausen. This report fulfills your mission objectives nicely, and without major loss of equipment this time."
 
@@ -131,12 +92,9 @@ Hamill blinks in surprise. "Units 1, 2P, 3P, and the R-Gun..."
 "Well, I guess I have no choice to agree, but what does it mean for us?"
 
 Yukiko Date rests her chin on her hands, and stares out into space. "The Shadow Mirrors have to be watched. Have Intelligence find an appropriate agent. In the meantime, these Irregulars must not come in contact with our forces. Give a general order to our personnel to go to ground and avoid exposure. We shall have to ensure that the only contact they have is with those forces allied with the Commitee."
-View SameGoogleiqdbSauceNAO giganspada.png, 93KiB, 400x231
-Archibald Grims !SonOfAYvRI Thu 11 Feb 2010 21:54:03 No.4515069 Report
-Quoted By: >>4515071
-Still no love for 'The Nicest Man in the World' I see.
-Sciencegar Sciencebolt Thu 11 Feb 2010 21:56:03 No.4515070 Report
-Quoted By: >>4515089 >>4515112 >>4515154
+
+---
+
 "Hello, Echidna. How are things?"
 
 "Why are you in the medical lab?"
@@ -147,34 +105,14 @@ Quoted By: >>4515089 >>4515112 >>4515154
 
 "Well, ok, but how are they as conversationalists?"
 
-"They are pilots, not philosWith a phonecord, Katina. Just because you couldn't handle me having a life.sk you to leave."
+"They are pilots, not philos *With a phonecord, Katina. Just because you couldn't handle me having a life.* sk you to leave."
 
 You quiver slightly. "Y-y-yeah, I'll go visit Axel and the chick with the big tits now."
 
 You half-run out of the lab. You definitely don't here that sad chuckle in the back of your mind. It's just your hangover.
-Sciencegar Sciencebolt Thu 11 Feb 2010 21:56:03 No.4515071 Report
->>4515069
 
-I have a lot of plot ideas to get through, Super-nice Archibald will appear eventually.
-Anonymous Thu 11 Feb 2010 22:03:03 No.4515089 Report
->>4515070
-Oh god oh god oh god.
+---
 
-I seriously doubt this is a situation where we can say "Two Arados?! Now neither of them will be virgins!"
-Anonymous Thu 11 Feb 2010 22:10:03 No.4515112 Report
->>4515070
-Well, looks like our "Arado From Hell to Punish Us For Our Sins" theory is back in play!
-
-Anyway, I think we should go talk with Kai and find out what's wrong with the bastard.
-Stealthyboy !fchRKomfls Thu 11 Feb 2010 22:25:03 No.4515154 Report
->>4515036
->dispose of your prisoner
-Noooo! Not Ensign Mickey, the manliest pilot the Shadow Mirror has ever known! How will we go on without him?!
-
->>4515070
-And it looks like we're going to have to play a lovely game of "Oops, I broke Mr. Flopsy" again with Arado...
-Sciencegar Sciencebolt Thu 11 Feb 2010 22:28:03 No.4515171 Report
-Quoted By: >>4515175 >>4515180 >>4515185 >>4515213
 You enter the medbay proper, and see Axel unconscious in the corner. His vital signs appear low, but steady, and the squiggly line on the chart appears to be going up, so it seems he's out of danger, at least.
 
 Your eye is drawn to the bed beside him, which is unmade, and you see the remains of a tattered green dress there. You pick it up and have a look at it: It's quite revealing, and made for someone with a much larger bust size.
@@ -187,7 +125,7 @@ You turn around and see a green-haired woman pulling on a pair of fingerless glo
 
 "Uh, ok, thanks. Wait, who are you again?"
 
-"I'm Lamia Loveless. I'm a...friend of Axels, I'll be fighting with him and you to create a better world."
+"I'm Lamia Loveless. I'm a... friend of Axels, I'll be fighting with him and you to create a better world."
 
 "Oh, cool. I'm Katina Tarask, I'm the teams crazy one. There's a WildRaubtier sitting out there with no pilot, it'd be better if we gave it to a real person than one of Echidna's pod-people."
 
@@ -200,35 +138,9 @@ The penny drops.
 "Wait a minute...those are Axel's clothes!!"
 
 But Lamia is gone.
-BSRaven !!pZhu/eJf6iW Thu 11 Feb 2010 22:30:03 No.4515175 Report
->>4515171
-Use psychodere sewing skills to fix dress to best of ability, then torture Arado with it.
-Sanger Zombolt! Thu 11 Feb 2010 22:30:03 No.4515180 Report
->>4515171
-What the fuck?
-Stealthyboy !fchRKomfls Thu 11 Feb 2010 22:32:03 No.4515185 Report
->>4515171
-...What just happened here?
-Normal talking Lamia... wearing Axel's clothes (HOW WITH HER FIGURE SERIOUSLY?!) Has something really weird happened, like Axel's mind's been transfered over to her or something?
-Blarg, mind confused.
-Anonymous Thu 11 Feb 2010 22:36:03 No.4515213 Report
->>4515171
-Let's chase her and find out!
-Sciencegar Sciencebolt Thu 11 Feb 2010 22:36:03 No.4515215 Report
->HOW WITH HER FIGURE SERIOUSLY?!
 
-I never said she was able to button up the jacket. The tshirt just about manages to get over the humps and cover her stomach, but she hasn't been able to tuck it into her pants.
-Anonymous Thu 11 Feb 2010 22:40:03 No.4515235 Report
-Quoted By: >>4515270
-CONVERT THAT DRESS TO BE FRILLY AND RIBBONY AND MOST IMPORTANTLY ARADO'S SIZE...Y
-Stealthyboy !fchRKomfls Thu 11 Feb 2010 22:49:03 No.4515270 Report
->>4515235
-Well, whatever the weirdness going on with Lamia is, at least I can focus on this. Seconding this idea.
-Anonymous Mk-II Thu 11 Feb 2010 22:52:03 No.4515278 Report
-what if we go to the hangar to inspect our units?
-you know there is a 13-year old soap mctavish running around taking hostages, maybe she rigged some explosives into our beloved mechs.
-Sciencegar Sciencebolt Thu 11 Feb 2010 23:00:03 No.4515303 Report
-Quoted By: >>4515315 >>4515316 >>4515327
+---
+
 You walk out into the hangar, your mind a storm from all thats happened this morning. You still have a touch of a hangover, and now you're getting hungry. But at least you have a spare dress for Arado now.
 
 Now all you need is his measurements and a sewing kit, and you're sorted.
@@ -239,17 +151,6 @@ You turn around and see Kai standing there, looking at you oddly.
 
 "I thought you were the type for dynamic action, girl. I never thought you'd agree to sit here on our laurels while we could be halfway to Van Trans fortress by nightfall."
 
-DO YOU HAVE A REPONSE TO KAI, OR ANY QUESTIONS FOR HIM?
-Zeta Zaku Thu 11 Feb 2010 23:05:03 No.4515315 Report
->>4515303
-Remind him that, despite how we may act, we are -still- a child of the School. We learned a lot more there besides how to hogtie and subdue a guy in less then 45 seconds, and stealing friendly assets for personal gain was not one of them.
-Stealthyboy !fchRKomfls Thu 11 Feb 2010 23:05:03 No.4515316 Report
->>4515303
-Ask him what the hell's going on.
-Anonymous Thu 11 Feb 2010 23:09:03 No.4515327 Report
->>4515303
-Tell him we've got plans for decisive action anyway (going to space but don't tell him that).
-Sciencegar Sciencebolt Thu 11 Feb 2010 23:39:03 No.4515398 Report
 "And I thought you were meant to be on our side, Kai. Splitting our forces and leaving the wounded pilots in such a dangerous place? You'd be condemning Axel to die! And all the engineers we'd leave behind to fix the other Trilobite. I may be crazy, but I'm not stupid."
 
 Kai crosses his arms and closes his good eye. "I had considered that, you know. And given the situation, I still think the risk of losing everyone if the EFA attacks us makes it worth abandoning the stragglers. Besides, our mission is too important for us to delay it. Even a few days might be critical."
@@ -259,23 +160,24 @@ Kai crosses his arms and closes his good eye. "I had considered that, you know. 
 "...This is bigger than a friendly thank-you to the DC, Kat. You know it is, all of you do, but you won't admit it. We've been given a chance to truly affect this world, to break the EFA and get the right people back in charge, but we're squandering it here. We can finally get what we wanted, an end to those damned F-"
 
 The alarm sounds across the hangar, as the voice of the operations officer cuts in. "Enemy unit detected retreating north. All fast interceptors, scramble immediately."
-Sciencegar Sciencebolt Thu 11 Feb 2010 23:47:03 No.4515420 Report
-Quoted By: >>4515432 >>4515433 >>4515439 >>4515444
-MOMENTS EARLIER
+
+---
+
+####MOMENTS EARLIER
 
 Shine climbed out of the R-Blades cockpit, checking her gun as she went. Fully loaded. She looked down at where she knew her prisoner had gone. Bound hand and foot, Mickey had managed to crawl a short distance from the bloodstained grass where she'd interrogated him, over to the R-Blades torso. He lay panting next to the humming Stealth Shade, drops of blood and sweat travelling down his skin.
 
 "It's no use, Mister, I can see your future, and you don't have one." She cocks the pistol.
 
-"..f....figured....But a Shadow Mirror....knows how to die..."
+"..f... figured... But a Shadow Mirror... knows how to die..."
 
 "Quiet."
 
-The shot rips into his left shoulder. The sound isn't the wet thunk she'd expected. It sounded like the bullet hit...metal.
+The shot rips into his left shoulder. The sound isn't the wet thunk she'd expected. It sounded like the bullet hit... metal.
 
 And then she knew what was about to happen.
 
-"....W-35....Initiating code ATA..."
+"...W-35... Initiating code ATA..."
 
 Shine dives into the brush as the fireball burst around her mech. Looking back, she saw the scorch marks on the grass, and the buckled plating around the now-inactive Stealth Shade.
 
