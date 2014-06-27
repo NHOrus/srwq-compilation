@@ -182,87 +182,20 @@ And then she knew what was about to happen.
 Shine dives into the brush as the fireball burst around her mech. Looking back, she saw the scorch marks on the grass, and the buckled plating around the now-inactive Stealth Shade.
 
 "fffffffFFFFFFFFFUUUUUUU
-Anonymous Thu 11 Feb 2010 23:50:03 No.4515432 Report
->>4515420
-OH GOD MANLY TEARS
-Haken Browning !zHe7DH816A Thu 11 Feb 2010 23:50:03 No.4515433 Report
->>4515420
-NOOO! MICKEY!
 
-MY BROTHER FROM MOSTLY THE SAME MOTHER EXCEPT SHE WAS TOO LAZY TO GET LAID AGAIN AND MADE YOU A ROBOT INSTEAD!
-View SameGoogleiqdbSauceNAO w.jpg, 42KiB, 500x375
-Sanger Zombolt! Thu 11 Feb 2010 23:51:03 No.4515439 Report
->>4515420
-Zeta Zaku Thu 11 Feb 2010 23:52:03 No.4515444 Report
-Quoted By: >>4515474 >>4515481
->>4515420
-MICKEEEEEEEEY!
+---
 
-We must name a Trilobite after him now. Also, Shine is rapidly proving to be about as useful as Tenzan. I'm beginning to wonder what Yukiko sees in her.
-Sciencegar Sciencebolt Thu 11 Feb 2010 23:54:03 No.4515456 Report
-Quoted By: >>4515473 >>4515474 >>4515483 >>4515499
 Kai is already gone, hopping over to the Guarlion and entering the cockpit. You look about, and see Lamia hopping into the WildRaubtier, powering it up in the same way.
 
-Ready to go, Katina
+*Ready to go, Katina*
 
 Dumi rolls forward in Motorad form, the Raioh perched on his back. Rungs pop out of the DDG-04s hull, leading to the open cockpit. You hop up, and are in the pilot seat by the time the two super robots are on the grass.
 
-How should we get to the target, Katina?
+*How should we get to the target, Katina?*
 
-CHOOSE TRAVEL METHOD:
-FLYING IN THE SKY Not as fast as the Guarlion or Raubtier, but still fairly impressive.
-THROUGH THE JUNGLE Faster, but will leave an obvious trail.
-DOWN THE RIVER Fastest but also the long way around, and you'd likely be seen by river traffic.
-
-Also, DO YOU HAVE WORDS FOR EITHER OF THE OTHER TWO PILOTS?
-Zeta Zaku Thu 11 Feb 2010 23:56:03 No.4515473 Report
->>4515456
-Sky or river route. We absolutely don't want to leave a track back to the base.
-
-Also, tightbeam Lamia and suggest she stick close to Kai. He's obviously up to something and this is a great opportunity for him to jump ship.
-Haken Browning !zHe7DH816A Thu 11 Feb 2010 23:56:03 No.4515474 Report
->>4515456
-Through the Jungle. Bonus points if we pass by AAAA-MAAAAA-ZOOOOOOON.
-
->>4515444
-What every government super-child breeding program sees: 100% DV of loli.
-Sciencegar Sciencebolt Thu 11 Feb 2010 23:57:03 No.4515481 Report
-Quoted By: >>4515510 >>4515511
->>4515444
-
-Evil Shine is modelled on Asuka: She's awesome in personal combat but once shit starts going wrong for her, it goes wrong all the way.
-
-Yukiko mainly values for her report-writing skills. "This is exactly what the thing that pounded me in the ass was capable of."
-Anonymous Thu 11 Feb 2010 23:57:03 No.4515483 Report
->>4515456
-FLYING THE SKY
-something something matake
-blah blah sora wo bla blah blahblah
-SHINING FINGER
-Sanger Zombolt! Thu 11 Feb 2010 23:59:03 No.4515499 Report
->>4515456
-Through the sky. Either one of the other options will leave an trail to our base.
-Anonymous Thu 11 Feb 2010 23:59:04 No.4515505 Report
->>4514803
-Why must you stupid guys constantly spam and attack www . anon
-talk . com for? Please stop. We don't want any chanturds there.
-Haken Browning !zHe7DH816A Fri 12 Feb 2010 00:00:03 No.4515510 Report
-Quoted By: >>4517064
->>4515481
->"This is exactly what the thing that pounded me in the ass was capable of."
-
-DAMMIT, QUIT GIVING US REASONS TO ADD HER TO THE HAREM
-Zeta Zaku Fri 12 Feb 2010 00:00:03 No.4515511 Report
-Quoted By: >>4517064
->>4515481
->"This is exactly what the thing that pounded me in the ass was capable of."
-
-Now looking forward to her detailed play-by-play of potential experiences as Katina's POW.
-Sciencegar Sciencebolt Fri 12 Feb 2010 00:25:03 No.4515611 Report
-Quoted By: >>4515636 >>4515640 >>4515647
 "Take us up Dumi, I want to keep a close eye on those two."
 
-Very well. Engaging Motorad Surf mode.
+*Very well. Engaging Motorad Surf mode.*
 
 The DGG04 splits vertically and fold up into a floating platform, the wheel modules flying off and plugging into the side. With the Raioh standing tall, the whole assembly lifts off the ground and speeds after the other two mechs.
 
@@ -274,7 +207,7 @@ The DGG04 splits vertically and fold up into a floating platform, the wheel modu
 
 "Ok, but I'd be curious as to his reasons for doing what he's doing. Humans are complex creatures, it helps to understand their motivations."
 
-"Yeah...well...I like simplicity."
+"Yeah... well... I like simplicity."
 
 Kai cuts in over the squad channel. "Enemy sighted, it looks like that R-Blade unit you got trashed back when we met."
 
@@ -282,27 +215,11 @@ Lamia clicks her tongue. "It might be the pilot Luckfield fought yesterday. She 
 
 "How? You got teleported hundreds of miles!"
 
-"...O-oh yeah. I...guess she was part of the teleportation then."
+"...O-oh yeah. I... guess she was part of the teleportation then."
 
-ANY COMMENTS AT THIS STAGE? Kai is the only one who's caught up with Shine yet, and since he has no rank in Shadow Mirror, technically you can give him orders.
-BSRaven !!pZhu/eJf6iW Fri 12 Feb 2010 00:30:03 No.4515636 Report
->>4515611
-Have him kick SMShine's R-Blade in the crotch.
-
-Because that's worked well so far.
-Anonymous Fri 12 Feb 2010 00:31:03 No.4515640 Report
->>4515611
-Tell him to try to disable it, but if he can't do that just slow it down for us to catch up. When we catch up get Kai and Lamia to distract the thing so we can catch it with our Plasma Leader things for hostage taking.
-Anonymous Fri 12 Feb 2010 00:32:03 No.4515647 Report
->>4515611
-GO FOR THE EYES, KAI, GO FOR THE EYES!
-
-And by that I mean wait for us and Lamia so we can gang up on her. We piloted an R-Blade, so we know the thing isn't very fast. We have plenty of time to coordinate our attack on her.
-Sciencegar Sciencebolt Fri 12 Feb 2010 00:50:03 No.4515744 Report
-Quoted By: >>4515809 >>4515811
 "Just try to slow it down, Kai, we'll be there in a minute or two."
 
-The sounds of railgun shots sound over the comms. "Hrmm...might be a little tricky. this one can certainly move. And with a pretty busted-up mech, I might add."
+The sounds of railgun shots sound over the comms. "Hrmm... might be a little tricky. this one can certainly move. And with a pretty busted-up mech, I might add."
 
 "Just make her dodge to places that are not away!"
 
@@ -324,29 +241,9 @@ The Guarlion incribes a blue circle as it accelerates into the sky and comes bac
 
 The Guarlion emerges from the jungle, trailing smoke and missing an arm. "She's VERY good."
 
-LAMIA IS NOW IN RANGE, GIVE HER SOME ORDERS?
-Zeta Zaku Fri 12 Feb 2010 01:02:03 No.4515809 Report
-Quoted By: >>4515859 >>4515884
->>4515744
-Box Shine in. Her mobility is less then optimal right now, and the two of them should be able to keep her pinned until we arrive.
-BSRaven !!pZhu/eJf6iW Fri 12 Feb 2010 01:03:03 No.4515811 Report
->>4515744
-FULL BURST.
-
-FIRE EVERYTHING.
-
-NO ENEMY SURVIVORS.
-Anonymous Fri 12 Feb 2010 01:14:03 No.4515859 Report
->>4515809
-This. They only have Real Types, we're the Super Robot.
-Fromage Fri 12 Feb 2010 01:20:03 No.4515884 Report
->>4515809
-seconded, try also to cut down her mobility
-Sciencegar Sciencebolt Fri 12 Feb 2010 01:25:03 No.4515907 Report
-Quoted By: >>4515918
 "Dammit, just keep her boxed in! Once I get there she's toast!"
 
-"Ok!" Lamia flies in firing missiles, while Kai, deprived of a primary ranged weapon, opens up with his machine cannons."
+"Ok!" Lamia flies in firing missiles, while Kai, deprived of a primary ranged weapon, opens up with his machine cannons.
 
 The girl voice screeches over the comms. "Not now! Not to the likes of you! My future doesn't have defeat in it!" The stolen railgun barks in the R-Blades right hand as the mech rolls away from the impacting missiles. Kai dodges the first few, but two slam into the Guarlions torso.
 
@@ -358,274 +255,87 @@ The girl voice screeches over the comms. "Not now! Not to the likes of you! My f
 
 "We have to stop her now, she's almost at the river!!" Lamia shouts.
 
-THE RAIOH IS ALMOST THERE, BUT EVEN AT THIS SPEED SHE'LL HIT THE WATER BEFORE YOU GET WITHIN RANGE.
-
-ANY IDEAS?
-Anonymous Fri 12 Feb 2010 01:27:03 No.4515918 Report
-Quoted By: >>4515925 >>4515934
->>4515907
-"Dumi! Throw me!"
-Zeta Zaku Fri 12 Feb 2010 01:29:03 No.4515925 Report
->>4515918
-DO IT.
-
-Flying tackle the R-Blade back into the forest.
-View SameGoogleiqdbSauceNAO 12236-620x-advice-master-asia.jpg, 83KiB, 620x465
-Anonymous Fri 12 Feb 2010 01:30:03 No.4515934 Report
->>4515918
->>4515918
-LAUNCH ME DUMI!
-Sciencegar Sciencebolt Fri 12 Feb 2010 01:40:03 No.4515969 Report
-Quoted By: >>4515977 >>4515996
 "Dumi!! Gimme a boost, I'm taking her out now!"
 
-A boost?
+*A boost?*
 
 "Figure something out!" you launch the Raioh into the air and lock the legs into Lightning Fall formation.
 
-Very well... The DGG-04 transforms to mech mode, flies up behind you and engages its forcefield. In a perfect synchronisation, the field extends outward as you engage boosters, and the Raioh flies like a comet across the jungle.
+*Very well...* The DGG-04 transforms to mech mode, flies up behind you and engages its forcefield. In a perfect synchronisation, the field extends outward as you engage boosters, and the Raioh flies like a comet across the jungle.
 
 The explosion rips leaves off the trees for half a mile, and leaves nothing standing within a hundred meters. The shockwave billows out, plasma searing off the R-Blades paint as the mech is sent flying.
 
 It hits the water, it's left arm and leg shearing off from the forces its enduring, its weapons blown to the four winds, but its still intact, and its under the water now.
 
-I think that would have gone better if I had been the projectile.
+*I think that would have gone better if I had been the projectile.*
 
 "Shutupshutupshutup!"
 
-GOING IN AFTER HER?
-Anonymous Fri 12 Feb 2010 01:41:03 No.4515977 Report
-Quoted By: >>4515986
->>4515969
-Can we use the... whatsits for Counter Break to pull her out?
-Sciencegar Sciencebolt Fri 12 Feb 2010 01:44:03 No.4515986 Report
->>4515977
-
->Thingies made of lightning
-> Water
-
-Yeah, not the best plan.
-
-Also, they're called the Plasma Leaders.
-Anonymous Fri 12 Feb 2010 01:48:03 No.4515995 Report
-Quoted By: >>4516011
-If she's down several limbs her maneuveurablity will be shot. Stand a damn good chance of a capture if we go in after her at high speed.
-
-(just checking, the Raioh can work in the water right?)
-Anonymous Fri 12 Feb 2010 01:48:03 No.4515996 Report
->>4515969
-She's half crippled, DAMN RIGHT WE GO IN AFTER HER!
-Sciencegar Sciencebolt Fri 12 Feb 2010 01:53:03 No.4516011 Report
-Quoted By: >>4516016 >>4516019
->>4515995
-
-The Raioh itself should be fine, but its attack will be heavily blunted: The raging waters of the Amazon might not be the best place for attacks which mostly use electricity and plasma.
-Anonymous Fri 12 Feb 2010 01:54:03 No.4516016 Report
-Quoted By: >>4516020
->>4516011
-Make a note that if we ever upgrade this unit we need some weapons that won't fry us if we fight underwater.
-Fromage Fri 12 Feb 2010 01:55:03 No.4516019 Report
->>4516011
-after her ! we'll force her out with a RISING METEO !
-Anonymous Fri 12 Feb 2010 01:55:03 No.4516020 Report
->>4516016
-Maybe chainsaws...
-Sciencegar Sciencebolt Fri 12 Feb 2010 02:08:03 No.4516088 Report
-Quoted By: >>4516104 >>4516113 >>4516280 >>4516581
 The Raioh makes a massive splash as it enters the water, putting out many of the forest fires the previous attack had started. You plunge down into the dark depths, seeking your prey, but you can't see the light of any boosters.
 
 "Where in the hell..."
 
-She's drifting downstream, attempting to avoid detection by not moving.
+*She's drifting downstream, attempting to avoid detection by not moving.*
 
 You surge through the water, and sure enough, you catch a glimpse of something hugging the bottom of the river. Its boosters light up as you approach, stealth no longer an option.
 
 "Give it up girl. Surrender calmly, and I'll make sure you're treated right..."
 
-"No! I'm no fairytale princess to be captured and locked in a tower, I'm the Princess of...oh god..."
+"No! I'm no fairytale princess to be captured and locked in a tower, I'm the Princess of... oh god..."
 
 "Huh?"
 
-"My future...if I go with you....I'd rather die!"
+"My future... if I go with you... I'd rather die!"
 
 She forces even more speed out of her half-dead mech, remaining tantalisingly out of your grip. she appears to be headed towards some kind of boat, heading downstream in a similar way.
 
-WHAT DO YOU DO?
-Anonymous Fri 12 Feb 2010 02:10:03 No.4516104 Report
-Quoted By: >>4516157
->>4516088
-Accelerate ahead of her, smash the boat, turn around and grab her.
-Anonymous Fri 12 Feb 2010 02:11:03 No.4516113 Report
-Quoted By: >>4516157
->>4516088
-Hop out of the river. Use lightning attack on water. Collect her mech after it shorts the fuck out.
-
-She's missing two limbs, her structural integrity is non-existant and extremely vulnerable.
-Sciencegar Sciencebolt Fri 12 Feb 2010 02:20:03 No.4516157 Report
-Quoted By: >>4516183 >>4516204
->>4516104
-
-You have no idea what the boat is. Just pointing this out.
-
->>4516113
-
-If this was a placid lake or a country stream, yeah, this would work. This is the AMAZON RIVER, the river so fucking huge it turns the sea brown, the river so huge you can be a hundred miles from the south american coast and the water is isn't salty, the river so huge they had to name a kamen rider after it. You simply can't generate that much juice.
-Anonymous Fri 12 Feb 2010 02:27:03 No.4516183 Report
->>4516157
-Damn... Uh. Do we have any way of going faster? Can Lamia, Kai, or Dumi fly fast enough to get ahead of her?
-
-I'm not sure we'll catch her.
-Anonymous Fri 12 Feb 2010 02:30:03 No.4516203 Report
-If Kai's been keeping up in his fast Guarlion which I assume he has been, he could possibly box her in from above and thus give us a chance to catch her.
-
-I'm concerned about this boat thing though, I must say.
-Anonymous Fri 12 Feb 2010 02:30:03 No.4516204 Report
->>4516157
-Could always try to simply grab the boat. Maybe lure her out of the water with it, assuming it's actually what she's after and not simply coincidence.
-Anonymous Fri 12 Feb 2010 02:32:03 No.4516215 Report
-this might actually be a good time to go psycho. if we start screaming "IM GONNA VIOLATE YOU" shine will push her already crippled mech even harder, possibly beyond it's breaking point.
-
-also, how big is the boat?
-View SameGoogleiqdbSauceNAO ON TOP OF HER.jpg, 12KiB, 569x533
-Sanger Zombolt! Fri 12 Feb 2010 02:47:03 No.4516280 Report
->>4516088
-Jump out of the water and use the boost in the air to catch up with her and fall in top of her. Not by ligtning falling, just boosting.
-
-She is in the water. She should be moving slowly, making her easier to catch this way.
-Anonymous Fri 12 Feb 2010 02:57:03 No.4516317 Report
-Where are Lamia and Kai at the moment? How is Kai's Guarlion holding up?
-Sciencegar Sciencebolt Fri 12 Feb 2010 03:08:03 No.4516356 Report
-Quoted By: >>4516386 >>4516467
 "Guys, break ahead of her!!"
 
-Lamia and I are already in position. Kai has retreated.
+*Lamia and I are already in position. Kai has retreated.*
 
 "What the heck is that boat she's heading to?"
 
-It appears to be a cargo vessel, 300m long, loaded with containers.
+*It appears to be a cargo vessel, 300m long, loaded with containers.*
 
 "Right..."
 
-DOES THIS CHANGE YOUR STRATEGY? She's manuvering under the cargo ship, possibly trying to use it as cover.
-Anonymous Fri 12 Feb 2010 03:14:03 No.4516386 Report
->>4516356
-She's probably trying to hide behind innocents or use them as hostages. We shouldn't destroy them for no reason, we want the citizens liking the Shadow Mirror (and maybe we can get supplies off of them if they don't die). Can we catch up to her before she does something horrible to the boat?
-Anonymous Fri 12 Feb 2010 03:15:03 No.4516392 Report
-300m long cargo ship ship loaded with containers eh? theres a pretty good chance those containers are loaded with gespensts come to kill us, but theres an equally good chance those containers are filled with supplies meant for us that we were never told about because we don't ask about that kind of thing. either way, it isnt worth taking the chance. scream "IM GONNA VIOLATE YOU" and blow up the boat. then have dumi and lamia slow shine down while we move in for the capture.
-Sanger Zombolt! Fri 12 Feb 2010 03:32:03 No.4516467 Report
-Quoted By: >>4516482
->>4516356
-Let's jump incredibly high and come crashing down on top of her at full speed.
-
-The waves caused by the drop should cause her to lose control and get incredibly confused. Then, when we get incredibly close to her, hug her while using Counter Break. Not to kill her, but to jam her mech.
-
-We, too, will be affected, but we have friends that will capture her once we are finished.
-Sanger Zombolt! Fri 12 Feb 2010 03:35:03 No.4516482 Report
->>4516467
-Also, try to drop at an angle that doesn't harm the ship.
-Sciencegar Sciencebolt Fri 12 Feb 2010 03:49:03 No.4516553 Report
-Quoted By: >>4516560 >>4516562 >>4516565
 "Get ready!!!" You boost the Raioh out of the water and into the sky, piroquette, and boost back down again, plunging into the water not twenty meters clear of the ship. The wave created rocks the ship mightily, and dozen of containers, unsecured on the normally calm waters of the river, are tossed over the side.
 
 Through this storm of steel emerges the R-Blade, manuvering desperately to avoid the crates, and the incoming fire from Lamia. But with the R-Blade so badly damaged, she can only do so much. The mech kerangs of a container full of plant extracts and clay samples, and falls right into the arms of a waiting Dumi.
 
-"No! Let me go!! This isn't my future, and it's not yours either!! Your future....your....[/i]
+"No! Let me go!! This isn't my future, and it's not yours either!! Your future... your...
 
-Please miss, it'll go easier if you just cal-
+*Please miss, it'll go easier if you just cal-*
 
 Shine piercing scream fills the comms.
 
 It doesn't stop until she passes out just before you land at the base.
-Anonymous Fri 12 Feb 2010 03:50:03 No.4516560 Report
->>4516553
-Hehehehe, time to rape her
-Sanger Zombolt! Fri 12 Feb 2010 03:51:03 No.4516562 Report
->>4516553
-I....I think we killed her.
-Zeta Zaku Fri 12 Feb 2010 03:51:03 No.4516565 Report
->>4516553
->Shine Hausen-CAPTURED
 
->Battle Mastery Achieved
-View SameGoogleiqdbSauceNAO 1257761498840.gif, 10KiB, 399x498
-Anonymous Fri 12 Feb 2010 03:54:03 No.4516578 Report
-Quoted By: >>4516689
-I can only hope she is properly contained (like this)
-And I hope Latooni as well
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 03:55:03 No.4516581 Report
-Quoted By: >>4516585
->>4516088
->I'm the Princess of...oh god..."
->"Huh?"
->"My future...if I go with you....I'd rather die!"
+---
 
-Sounds like we'll definately be having some fun with Shine later.
-
-As for a strategy... Psychological warfare IS fun, isn't it, and it's been a long time since we actually saw the psycho side of Katina...
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 03:56:03 No.4516585 Report
-Quoted By: >>4517915 >>4517927
->>4516581
-...Aaaaand we've already got her.
-Sciencegar Sciencebolt Fri 12 Feb 2010 04:17:03 No.4516678 Report
-Quoted By: >>4516688 >>4516689 >>4516702
 The unconscious pilot is bound and wheeled away under guard to the medical bay. Irm looks on after it, then turns as Kai dismounts the damaged Guarlion and starts talking.
 
-"Well...guess I wasn't so full of shit after all."
+"Well... guess I wasn't so full of shit after all."
 
-Irm looks at the badge taken off the girls flightsuit. "Major Shine Hausen, SRX Project Ancilliary."
+Irm looks at the badge taken off the girls flightsuit. "Major Shine Hausen, SRX Project Auxiliary."
 
 "The EFA's most top-secret division. Turn over the comm logs and I'll bet you'll find she's fresh after giving our location away. We've run out of time to wait, Irm. We have to get underway, some of us or all of us, it doesn't matter, or the EFA will be sending their top people here. By tomorrow morning, this place will be wiped off the map."
 
-Irm grunts, and nods. "I...guess we don't have much option. But its going to be a complete withdrawal, Kai, no-one left behind. We move as one unit, even if we have to wait until they're rapping on the door of the hangar."
+Irm grunts, and nods. "I... guess we don't have much option. But its going to be a complete withdrawal, Kai, no-one left behind. We move as one unit, even if we have to wait until they're rapping on the door of the hangar."
 
 "Well then, guess we'd better get started..."
 
-ANY COMMENTS AT THIS POINT, OR ACTIONS OTHER THAN HELPING OUT WITH THE EVAC?
-Sanger Zombolt! Fri 12 Feb 2010 04:19:03 No.4516688 Report
->>4516678
+---
 
->Get close to Shine.
-
->See what happens.
-Anonymous Fri 12 Feb 2010 04:19:03 No.4516689 Report
->>4516678
-Outside of having her taped up like >>4516578 none.
-DO IT BECAUSE WE'RE 100 AWAY BROS
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 04:22:03 No.4516702 Report
-Quoted By: >>4516723
->>4516678
-Check out those crates on that boat Shine was hiding on if you have the time.
-
-Also, try to get the chance to ... interrogate... the prisoner. Alone.
-Sciencegar Sciencebolt Fri 12 Feb 2010 04:28:03 No.4516723 Report
-Quoted By: >>4516741
->>4516702
-
-No, seriously guys, it was just a cargo boat. It was full of cheap brasilian knockoff products and stuff from the rainforest. That's it. There are thousands of them on the river, she just picked that one randomly, because it had the most 'I get away' futures attached to it.
-Anonymous Fri 12 Feb 2010 04:30:03 No.4516737 Report
-Quoted By: >>4516747
-if shine saw the wrong future, it would be sad. she would have failed at the one thing she's good at, so let's do the right thing, and make sure the future she saw comes true. after all, we don't want this poor little girl to be an absolute failure at life, do we?
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 04:30:03 No.4516741 Report
->>4516723
-Oh. So much for that then.
-Still try to get your hands on Shine.
-I mean, she wears red, we wear red... it's like a sign!
-Haken Browning !zHe7DH816A Fri 12 Feb 2010 04:32:03 No.4516747 Report
->>4516737
-But in order to properly fulfill Shine's prophecy, we'd have to destroy everything. EVERYTHING. Then connect it all.
-
-...oh, wait, you mean the future that involves rape. Carry on, then.
-Sciencegar Sciencebolt Fri 12 Feb 2010 04:35:03 No.4516765 Report
-Quoted By: >>4516774 >>4516776 >>4516785
 You sneak into the medbay, one of the few areas of the ship that's not a hive of activity, and find Shine strapped to the bed next to Axels, with a bored-looking guard sitting beside her. He doesn't even look at you twice.
 
 Shine seems to be coming around, but theres a faraway expression on her face.
 
-"Wh...what did I see? Was that even a future?..."
+"Wh... what did I see? Was that even a future?..."
 
 "Rise and shine, Princess Leia." You tug on one of her elaboate bangs to get her attention.
 
-"AH!! Y-you!!! H...how am I not dead? I was going to self-destruct..."
+"AH!! Y-you!!! H... how am I not dead? I was going to self-destruct..."
 
 "Well, you didn't, and now you're in my clutches." You grin.
 
