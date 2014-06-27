@@ -44,49 +44,14 @@ Russel looks like he's about to talk, but you begin before him. "Well, we were p
 
 "...Wow. Ugh, that puts me a little out of my depth. I'm just a pilot, engineer, and businesswoman, interdimensional warfare is a little out of my league."
 
-"Once you focus on the important details its not that wierd. Anyway, the EFA started attacking the newcomers, so they had to ask the DC to help them find Colonel Mauser, who has the dimension jumping technology. We were sheltering with the DC so we decided the best thing was to find the Colonel, and then see what to do then."
+"Once you focus on the important details its not that weird. Anyway, the EFA started attacking the newcomers, so they had to ask the DC to help them find Colonel Mauser, who has the dimension jumping technology. We were sheltering with the DC so we decided the best thing was to find the Colonel, and then see what to do then."
 
 "So the threat of these guys is so great you'd sell out your own leader to them?"
 
 "Well, Arado is one of them, so maybe not...."
 
-CONTINUE, CHANGE SUBJECTS, OR DRINK ANOTHER HEALTH DRINK?
-Anonymous Tue 09 Feb 2010 21:36:14 No.4505249 Report
-Quoted By: >>4506329
->>4505212
-Drag Ibis over, have her drink a health drink. For her health.
+---
 
-Then converse more with Ring. BACKSTORY TIME. What the hell is a pilot engineer businesswoman doing out here?
-Anonymous Tue 09 Feb 2010 22:58:14 No.4505411 Report
-Didn't Arado mention something about AU Mao Industries to us? Maybe bring that up with Ring, and tell her about some of the scary mechs these guys have. Not that we've seen them really show off so far.
-Anonymous Tue 09 Feb 2010 23:39:14 No.4505503 Report
-Quoted By: >>4506165 >>4506329 >>4506367
-Get health drinks for everyone.
-
-Take health drinks out to Rio, Ryoto, Ryuune, Arado and Seolla but disguise them as something innocent.
-Fromage Wed 10 Feb 2010 01:27:14 No.4505997 Report
->>4505212
-Let's continue, and ask more about Ring and Kusuha.
-Anonymous Wed 10 Feb 2010 02:03:14 No.4506165 Report
->>4505503
-This sounds entertaining. Pretty sure being a soldier gives you a degree of leniency when it comes to underage drinking laws.
-Sanger Zombolt! Wed 10 Feb 2010 02:31:14 No.4506265 Report
->>4505212
-Keep talking with Ring.
-Lord Guilford !UuMJgvNa0Y Wed 10 Feb 2010 02:45:14 No.4506329 Report
->>4505249
->>4505503
-Something in between these two.
-Sciencegar Sciencebolt Wed 10 Feb 2010 02:54:14 No.4506367 Report
-Quoted By: >>4506385
->>4505503
-
-The smell alone would give them away. You're in a rundown old bar full of sweaty mardi gras attendees, half of whom are smoking, and you still can't get the smell of alcohol out of your nose.
-Anonymous Wed 10 Feb 2010 02:57:14 No.4506385 Report
->>4506367
-Then do one of the other suggestions, god.
-Sciencegar Sciencebolt Wed 10 Feb 2010 03:27:14 No.4506508 Report
-Quoted By: >>4506546 >>4506550 >>4506572 >>4506878
 "Um, Has-o visto esta mujer-o?"
 
 "Nós falam o espanhol aqui, senhorita, nós falamos portugese. "
@@ -109,48 +74,9 @@ Russel looks confused. "I thought one of them was crew from the other Trilobite.
 
 "The Moon Cradle is practically run by the EFA since they recaptured it from the aliens. I was sidelined and basically made a puppet while they started development on the next wave of Gespensts. Between that and all the horror stories being circulated about the EFAs inner workings, I decided I was better out of that place. So when Shuu showed up asking to look at our Black Hole Engine, I stole it and the three of us went underground to build his dream."
 
-IS KATINA SOBER ENOUGH TO NOTICE THE PROBLEMS WITH THAT SENTENCE?
-Jerid Messa !!AbDOcayw4O/ Wed 10 Feb 2010 03:30:14 No.4506522 Report
-Yes she is.
-
-Will Ibis learn awesome martial arts? Because I think she needs to learn awesome martial arts for when she finds Sleigh locked in some Machine Cell robot.
-Anonymous Wed 10 Feb 2010 03:34:14 No.4506536 Report
-Quoted By: >>4506580
->So when Shuu showed up asking to look at our Black Hole Engine, I stole it and the three of us went underground to build his dream.
-
-First off, 'Three'? Secondly I thought Shuu worked firsthand on the black hole engine.
-Gamlin !Xb1uRYUg66 Wed 10 Feb 2010 03:35:14 No.4506537 Report
-I support my previous plan. Get Ibis to ask Shuu for help.
-
-She is a cute, innocent, damsel in distress so Shuu will have to help her.
-Sanger Zombolt! Wed 10 Feb 2010 03:36:14 No.4506546 Report
->>4506508
-She is.
-Haken Browning !zHe7DH816A Wed 10 Feb 2010 03:36:14 No.4506550 Report
->>4506508
->three
-
-THIS CAN ONLY RESULT IN THE TALE OF THE MULTI-PURPOSE SUPER ROBOT, TH-I mean, KOUTA!
-Anonymous Wed 10 Feb 2010 03:42:14 No.4506572 Report
-Quoted By: >>4506578 >>4506621 >>4506665
->>4506508
-A BLACK HOLE WOULD BE THE PERFECT POWER SOURCE FOR THE NEO GRUNGUST!
-Anonymous Wed 10 Feb 2010 03:43:14 No.4506578 Report
->>4506572
-GENIUS!
-Anonymous Wed 10 Feb 2010 03:43:14 No.4506580 Report
->>4506536
-He did. He left the flaw in it so it could explode Rai so the Aerogators/Inspectors depending on the continuity wouldn't notice there was someone smart enough to figure out their trick.
-
-Ask more about horror stories and Black Hole Engine. Also confirm if Kusuha is the third person or not.
-Anonymous Wed 10 Feb 2010 03:49:14 No.4506621 Report
->>4506572
-Why not power it up with hamsters instead?
-Sciencegar Sciencebolt Wed 10 Feb 2010 03:59:14 No.4506659 Report
-Quoted By: >>4506692 >>4506696 >>4506878
 "Wait, Three? I thought it was just you and Dr. Shuu?"
 
-"Oh...dammit that's right, we left Jayce in the Tausendfuessler, outside of the base! I really should have invited him along, he's been skulking in there for days! Agh, such an idiot!"
+"Oh... dammit that's right, we left Jayce in the Tausendfuessler, outside of the base! I really should have invited him along, he's been skulking in there for days! Agh, such an idiot!"
 
 "Jayce?"
 
@@ -160,100 +86,6 @@ Quoted By: >>4506692 >>4506696 >>4506878
 
 "The Agressors and PTX were rivals, remember? Our S-types versus their R-type Gespensts, and they won, hard, even with my company backing us. But Kai was the worst of them, working all sorts of backroom deals and undercutting us in subtle ways. Man should have been a politician, not a pilot."
 
-WHERE SHALL WE STEER THE CONVERSATION?
-Sanger Zombolt! Wed 10 Feb 2010 04:01:14 No.4506665 Report
-Quoted By: >>4506677 >>4506681 >>4506709 >>4506761 >>4506878
->>4506572
-Good idea.
-
-Anyway, ideas for the Neo Grungust's parts and abilities?
-
-We already know what it's attacks will be, but what about everything else? It's stats, non-gameplay related specs and, most important of all, it's unique technology.
-
-I mean, an ability that seprates him from your average custom Grungust. I am talking about things like AT fields, Getter Rays and Zero Systems. A piece of tech that makes it broken.
-
-What could it be?
-Sanger Zombolt! Wed 10 Feb 2010 04:02:14 No.4506677 Report
->>4506665
-Besides the Black Hole engine, of course.
-Brave Exkaiser will Never Die Wed 10 Feb 2010 04:03:14 No.4506681 Report
->>4506665
-Twin Tronium Engine.
-Anonymous Wed 10 Feb 2010 04:04:14 No.4506692 Report
-Quoted By: >>4506724
->>4506659
-Hrm. I'm actually out of ideas. Maybe we should check on Dumi, see if he can tell what the other group is up too. I will be very displeased if they're plotting against us.
-Anonymous Wed 10 Feb 2010 04:05:14 No.4506696 Report
->>4506659
-Start asking about Kai's background. We don't know much about him yet, this is a chance to pick up something not filtered through either him or rumours. It's filtered through a woman who hates him, but hey.
-Fromage Wed 10 Feb 2010 04:07:14 No.4506709 Report
-Quoted By: >>4506730
->>4506665
-if the pilot was Katina, it would mostly connect on her brain and run on Psycho D Rays (wink,wink)
-Anonymous Wed 10 Feb 2010 04:08:14 No.4506724 Report
->>4506692
-We should make sure to go check up on Dumi when we're nice and smashed. Don't want... him? her? to feel left out.
-
-Also get more energy drinks for people.
-Anonymous Wed 10 Feb 2010 04:09:14 No.4506730 Report
-Quoted By: >>4506755
->>4506709
-The pilot is Irm. Or Dr John Kazahara.
-Fromage Wed 10 Feb 2010 04:13:14 No.4506755 Report
-Quoted By: >>4506768
->>4506730
-Irm as Pilot and his father as co-pilot would be interesting
-Anonymous Wed 10 Feb 2010 04:15:14 No.4506761 Report
-Quoted By: >>4506769 >>4506796
->>4506665
-This may seem like a stupid idea, but.....how about an engine that works on Kusuha's energy drinks?
-
-You have seen just how much it powers up normal humans after they get over the initial effects, even if they drank just a lil bit of it.
-
-Imagine if we had several gigantic tanks that are poured into the Grungust's stomach-like power source whenever we release a limiter of sorts, which powers up the Grungust to the point that it becomes invincible and all of it's attacks are powered up inmensely.
-Anonymous Wed 10 Feb 2010 04:16:14 No.4506768 Report
->>4506755
-The mech runs on womanizing.
-Anonymous Wed 10 Feb 2010 04:17:14 No.4506769 Report
-Quoted By: >>4506794
->>4506761
-This, of course, has the unfortunate side effect of halving the Grungust's speed and power for a short while. But the pay-off lasts for the remainder of the fight.
-Fromage Wed 10 Feb 2010 04:20:14 No.4506794 Report
->>4506769
-It would also ignite the chainsword for the final attack !
-Sanger Zombolt! Wed 10 Feb 2010 04:20:14 No.4506796 Report
-Quoted By: >>4506797 >>4506822 >>4506832
->>4506761
-This makes no sense.
-Anonymous Wed 10 Feb 2010 04:21:14 No.4506797 Report
->>4506796
-It doesn't have to.
-Fromage Wed 10 Feb 2010 04:25:14 No.4506822 Report
->>4506796
-OGverse kusuha's drink would turn a dead man alive...
-no wonder the SMverse one can overpower a super robot.
-Sanger Zombolt! Wed 10 Feb 2010 04:26:14 No.4506832 Report
-Quoted By: >>4506850 >>4506873
->>4506796
-But I guess it would be interesting. Also, include several unlocked abilities the more energy drinks you use.
-
-One drink? Power and Speed increased permanently.
-
-Two? Armour increased permanently.
-
-Three? Range and movement increased.
-
-Four? Hot-Blooded energy coating.
-
-Five? Hot Blood induced flight.
-
-Six? The mech has emotions and can now use his own Spirit commands. Also, infinite SP.
-
-Seven? Permanent INVINCIBLE, SOUL and STRIKE.
-
-Eight? Ultimate attack enabled. You win the fight.
-Sciencegar Sciencebolt Wed 10 Feb 2010 04:27:14 No.4506840 Report
-Quoted By: >>4506853 >>4506881 >>4506886 >>4506892 >>4506906 >>4506931 >>4506933
 "Mmm, ats'nice." You polish off your second 'health drink'. "Gonna check on Dumi, back in a sec."
 
 Russel cocks and eyebrow "Are y'sure? Tisn't like the big fella will get nicked or anything."
@@ -262,110 +94,39 @@ Russel cocks and eyebrow "Are y'sure? Tisn't like the big fella will get nicked 
 
 You walk mostly straight out to the main street, where you find Dumi covered in cast-off bits of festival regalia, greatly adding to his disguise.
 
-Hello Katina. You appear to be inebriated.
+*Hello Katina. You appear to be inebriated.*
 
 "'m fine. What's going on out here?"
 
-The citywide celebrations are still proceeding apace. It's quite the spectacle to my sensors.
+*The citywide celebrations are still proceeding apace. It's quite the spectacle to my sensors.*
 
 "Wha'bout the others?"
 
-The girl called Seolla has finally calmed down, and she and Arado are enjoying the concert, while speaking to Rio and Ryoto about their universe. It appears that they know the counterparts to many of our fellows, although only some of them came in the newcomer group.
+*The girl called Seolla has finally calmed down, and she and Arado are enjoying the concert, while speaking to Rio and Ryoto about their universe. It appears that they know the counterparts to many of our fellows, although only some of them came in the newcomer group.*
 
 "Huh. S'interesting."
 
-I realise this may not be the best time to ask this, Katina...But have you given major thought to what you're doing with this group?
+*I realise this may not be the best time to ask this, Katina...But have you given major thought to what you're doing with this group?*
 
-WHAT IS KATINAS RESPONSE TO THAT?
-Fromage Wed 10 Feb 2010 04:28:14 No.4506850 Report
->>4506832
-DRUNKGUST MODE ON !
-Anonymous Wed 10 Feb 2010 04:28:14 No.4506853 Report
->>4506840
-"No, not really."
-Anonymous Wed 10 Feb 2010 04:31:14 No.4506873 Report
->>4506832
-HOLY SHIT, THIS!.... but let's give it less broken newfound abilities.
-Stealthyboy !fchRKomfls Wed 10 Feb 2010 04:32:14 No.4506878 Report
->>4506659
->Jayce
-FUCK YEAH! Try to get him a Super Robot. Preferably a one from 64. Vairose maybe?
->WHERE SHALL WE STEER THE CONVERSATION?
-Compare bust size with Ring. Consider adding her to the harem. Maybe also follow the second part of >>4505150, seeing what everyone thinks their alternates would be like would be fun.
+You plop down on a bollard and start to ramble. "Well... where else would I go? The Shadow Mirrors are my friends, the only people I've ever known who'd really give me a chance to be me. I can barely remember life before the School, and those old farts at the School just think I'm a defect. The Mirrors have seen the worst I can do, and will still let me go with them. Besides, the idea of a world of fighting forever... I can get behind that."
 
-Also, reading >>4506508, I realise that the entire other group is made of OG!versers. Shit, we should have gone with them.
+*I see... but are you going to get that, the way things are going?*
 
->>4506665
-I don't know about specs or tecnology or anything, but stats wise it should act like a Grungust. Tanks like a wall, dodges like a brick. Probably give it a G-Wall or G-Territory if we can outfit it with some sort of Gravicon like system.
-Anonymous Wed 10 Feb 2010 04:32:14 No.4506881 Report
->>4506840
-Major thought? Aside from loyalty to the Shadow Mirrors as the only group to take us in? Not really.
-Anonymous Wed 10 Feb 2010 04:33:14 No.4506886 Report
->>4506840
->WHAT IS KATINAS RESPONSE TO THAT?
+"I... I don't get what you mean."
 
-"Of course I have! I'm trying to get laid as often as I can by as many pretty people as I can!"
-Stealthyboy !fchRKomfls Wed 10 Feb 2010 04:35:14 No.4506892 Report
->>4506840
-Oh right, there's Ryoto and Rio there.
-Derp.
-Fromage Wed 10 Feb 2010 04:37:14 No.4506906 Report
->>4506840
-"i'm no brain worker. i'm just having fun, maybe?"
-Stealthyboy !fchRKomfls Wed 10 Feb 2010 04:41:14 No.4506931 Report
->>4506840
-To collect as many 64 original mechs as possible, sexually harass as many people as possible, kill as many enemies as possible, and become a god.
+*Look at where things are going, Katina. The Shadow Mirrors are shattered as a group, and in order to survive in the long run, they're going to have to give up their best mechs and their top leaders. The lives of Vindel Mauser and Lemon Browning are forfeit to the Irregulars, as is Axel's, because his attachment to Lemon will not allow him to let her die. The top surviving Shadow Mirror after this is either Echidna or Irm, neither of whom are truly cut out for command. In all likelihood, the group will fall under the sway of Captain Kai, who has an as-yet unknown agenda. And all this assumes the fighting to come will not destroy the group. The EFA's response to the crisis has been haphazard so far, but will escalate exponentially in the coming days and weeks. The chances of them finding and targetting us are quite high.*
 
-Well that's MY plans for Katina anyway.
-Anonymous Wed 10 Feb 2010 04:41:14 No.4506933 Report
-Quoted By: >>4507124
->>4506840
-let stay with the shadow mirrors, this world is shit and we are insane enough to change it into something slightly worst.
-never ending war and eternal bloodshed you know thats the reason why you sticked with vindels crew in the first place.
-Stealthyboy !fchRKomfls Wed 10 Feb 2010 05:09:14 No.4507124 Report
->>4506933
-More in character? Probably this. I can see Katina getting behind endless war.
+*The perfect life of eternal war may not be feasible right now.*
 
-To be honest, with all the sanitizing people have been doing to Katina, I think people have forgotten that we're PSYCHOdere. Right now we seem to be acting more like Excellen than Katina. I know we went a bit over the top before and started becoming a liability, but I think we've gone a bit too far in the other direction recently.
-Sciencegar Sciencebolt Wed 10 Feb 2010 05:10:14 No.4507129 Report
-Quoted By: >>4507149 >>4507158 >>4507162 >>4507212
-You plop down on a bollard and start to ramble. "Well...where else would I go? The Shadow Mirrors are my friends, the only people I've ever known who'd really give me a chance to be me. I can barely remember life before the School, and those old farts at the School just think I'm a defect. The Mirrors have seen the worst I can do, and will still let me go with them. Besides, the idea of a world of fighting forever...I can get behind that."
-
-I see...but are you going to get that, the way things are going?
-
-"I...I don't get what you mean."
-
-Look at where things are going, Katina. The Shadow Mirrors are shattered as a group, and in order to survive in the long run, they're going to have to give up their best mechs and their top leaders. The lives of Vindel Mauser and Lemon Browning are forfeit to the Irregulars, as is Axel's, because his attachment to Lemon will not allow him to let her die. The top surviving Shadow Mirror after this is either Echidna or Irm, neither of whom are truly cut out for command. In all likelihood, the group will fall under the sway of Captain Kai, who has an as-yet unknown agenda. And all this assumes the fighting to come will not destroy the group. The EFA's response to the crisis has been haphazard so far, but will escalate exponentially in the coming days and weeks. The chances of them finding and targetting us are quite high.
-
-The perfect life of eternal war may not be feasible right now.
-
-RESPONSE?
-Anonymous Wed 10 Feb 2010 05:14:14 No.4507149 Report
->>4507129
-"You got any better ideas?"
-Anonymous Wed 10 Feb 2010 05:16:14 No.4507158 Report
->>4507129
-Robot's got a point. I'm pretty suspicious of Kai after listening in on that conversation and Ring's little outburst, so I'm not really in favour of letting him take command.
-
-We're not exactly suited for command either, so it's not like we can lead this littler group to victory. Maybe we should try to buddy up with the Newcomers while we can and let THEM smash the EFA.
-
-As long as we can stay friends with Shu we've at least one super-broken mech on our side to protect us, but I don't know how well "fight for justice!" meshs with "world of eternal war".
-Jerid Messa !!AbDOcayw4O/ Wed 10 Feb 2010 05:16:14 No.4507159 Report
-Respond by saying you'll help rebuild the Shadow Mirrors and the people will start flocking to them once they start winning. And then open up an arena once the EFA is dead.
-Stealthyboy !fchRKomfls Wed 10 Feb 2010 05:17:14 No.4507162 Report
->>4507129
-So what do you suggest, Dumi? That we take command ourselves?
-Sciencegar Sciencebolt Wed 10 Feb 2010 05:25:14 No.4507202 Report
-Quoted By: >>4507216 >>4507246 >>4507267 >>4507269 >>4507303 >>4507340 >>4508939
 "Well then, what do you suggest?"
 
-I think the group needs a new direction. The conflict here on Earth is pointless, we will at best be bit players in the struggle between dimensions. Once its over, we will probably not be any better off.
+*I think the group needs a new direction. The conflict here on Earth is pointless, we will at best be bit players in the struggle between dimensions. Once its over, we will probably not be any better off.*
 
-Our best chance to not only survive, but to prosper, is to leave the conflict behind completely and find new pastures. And currently, the only place to do that is in space.
+*Our best chance to not only survive, but to prosper, is to leave the conflict behind completely and find new pastures. And currently, the only place to do that is in space.*
 
 "What, just up sticks and leave?"
 
-The Trilobites have the ability, they can make orbit with minimal chance of detection and be out of the Earth Sphere in a few days. The group could hide among the colonies, or better yet, at a farflung location like Jupiter where the EFA would not have the resources to pursue us. There, we could rebuild the Shadow Mirror, or something similar.
+*The Trilobites have the ability, they can make orbit with minimal chance of detection and be out of the Earth Sphere in a few days. The group could hide among the colonies, or better yet, at a farflung location like Jupiter where the EFA would not have the resources to pursue us. There, we could rebuild the Shadow Mirror, or something similar.*
 
 RESPONSE?
 Anonymous Wed 10 Feb 2010 05:27:14 No.4507212 Report
