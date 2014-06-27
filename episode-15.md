@@ -341,27 +341,6 @@ Shine seems to be coming around, but theres a faraway expression on her face.
 
 She recoils from you as much as the restraints will allow. "Y-you won't get anything out of me! I'm loyal, I'm dedicated! I'll eat my own tongue before one word rolls off it!!"
 
-WHAT ARE YOU GOING TO DO? As opposed to 'what would you like to do?', which we've already established in the past 14 threads.
-Anonymous Fri 12 Feb 2010 04:37:03 No.4516774 Report
->>4516765
-Tape her up.
-I'm sure total bodily helplessness will make her want to talk in a couple of hours.
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 04:38:03 No.4516776 Report
->>4516765
-Business first, pleasure later. Let's get some information out of her. I'm sure her foresight can see all of the horrible things we could do.
-Zeta Zaku Fri 12 Feb 2010 04:39:03 No.4516785 Report
-Quoted By: >>4516933
->>4516765
-Use her precognition against her to get her to spill information. She's a Major, even if it's only a courtesy rank she has to know something about this world's SRX Project. At the moment it seems like Yukiko is probably our biggest threat.
-Anonymous Fri 12 Feb 2010 04:44:03 No.4516814 Report
-Quoted By: >>4516828 >>4516933
-precognition is awesome! we can rape and torture her just by sitting here. given the sheer insanity katina is capable of, she'll crack in record time, and we won't have to lift a finger!
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 04:46:03 No.4516828 Report
-Quoted By: >>4516933
->>4516814
-I think just sitting there with a GONNARAEPGONNARAEPGONNARAEP grin on her face is gonna both work and be hilarious.
-Sciencegar Sciencebolt Fri 12 Feb 2010 04:56:03 No.4516906 Report
-Quoted By: >>4516919 >>4516921 >>4516927 >>4516940 >>4516968 >>4517004
 "Yeah, we'll see how long that lasts. First things first: How'd a little girl like you get to be a Major?"
 
 "I'm not a girl!! I'm the Princess of Foretold Victory!"
@@ -382,119 +361,12 @@ You pick up a scalpel and start fiddling with it. Shine starts to squirm.
 
 "Did you give our location away to anyone?"
 
-".....!" Shine twists her head aside as you toss the scalpel into the pillow. You're not sure if you were trying to hit her or not.
+"...!" Shine twists her head aside as you toss the scalpel into the pillow. You're not sure if you were trying to hit her or not.
 
 "Don't fuck with me, little girl, I went to the School. I know shit about torture the guys in the middle ages would shit themselves if they saw. A brat like you will snap like a twig."
 
 The guard is finally paying attention to you now, and is looking a little worried.
 
-DO YOU HAVE A NEW LINE OF QUESTIONING, OR SHALL WE DO SOMETHING ELSE?
-Sanger Zombolt! Fri 12 Feb 2010 04:59:03 No.4516919 Report
-Quoted By: >>4516951
->>4516906
-Keep up the pressure, but this time let's do a good-cop/bad-cop routine with our dere and psycho sides in the weirdest possible way.
-
-Let's show her we really are crazy. Then she should crack and tell us something.
-Lord Guilford !UuMJgvNa0Y Fri 12 Feb 2010 04:59:03 No.4516921 Report
->>4516906
-Tell the guard to get us some salt, continue questioning.
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 05:00:03 No.4516927 Report
->>4516906
-Obviously simple intimidation isn't working.
-Move onto stage 2: molestation.
-Or, alternatively simply psycho mode out. Fun times had by all*
-
-*Not guaranteed for anyone who isn't Katina.
-Anonymous Fri 12 Feb 2010 05:00:03 No.4516928 Report
-faggotry
-Sciencegar Sciencebolt Fri 12 Feb 2010 05:00:03 No.4516933 Report
-Quoted By: >>4516957 >>4516972
->>4516785
->>4516814
->>4516828
-
-Katina hasn't a clue about her precognition, so she can't use it to her advantages. As far as she knows, Shine's just really good at dodging and shooting things.
-Anonymous Fri 12 Feb 2010 05:00:03 No.4516934 Report
-if we know so much about torture from the school, wouldn't lat, the queen of the school, know more?
-Anonymous Fri 12 Feb 2010 05:01:03 No.4516940 Report
->>4516906
-Makes gestures that implies rape in her future. That will teach her to try to play tough girl in front of you.
-Anonymous Fri 12 Feb 2010 05:03:03 No.4516951 Report
->>4516919
-This.
-Anonymous Fri 12 Feb 2010 05:04:03 No.4516956 Report
->>4514805
-We need fucking mods to bad this shit
-Zeta Zaku Fri 12 Feb 2010 05:04:03 No.4516957 Report
->>4516933
-Every time we fought her, she's spouted off something about "seeing her future," or something. Surely Katina must realize she's some sort of psychic by now.
-Anonymous Fri 12 Feb 2010 05:05:03 No.4516968 Report
-Quoted By: >>4516995
->>4516906
-Creepy sexual stimulation. Get close to her, and make her trust us.
-
-Step one: Deny her humanity.
-Step two: Ridicule her ideals.
-Step three: Give her nothing to go back to.
-Step four: Offer a small bit of kindness.
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 05:06:03 No.4516972 Report
-Quoted By: >>4517024
->>4516933
-Well, surely even if Katina doesn't know about it Shine will still be able to see the glee in Katina's face for what she's going to do. After all, Shine's been a thorn in our side far too long, I can see Katina really enjoying all of this.
-Anonymous Fri 12 Feb 2010 05:06:03 No.4516980 Report
-Quoted By: >>4517002 >>4517007
-I'm surprised how /m/ allows this balant RP to continue to progress. I guess the average /m/ user of today is 12 years old and retarded
-Anonymous Fri 12 Feb 2010 05:09:03 No.4516995 Report
->>4516968
-Seconding this. Better than regular rape
-Anonymous Fri 12 Feb 2010 05:10:03 No.4517002 Report
-Quoted By: >>4517013
->>4516980
-It gets people to think outside of their own heads. That is a useful skill for when ZeonQuest starts up on Saturdays.
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 05:10:03 No.4517004 Report
->>4516906
-And make sure you pick that scalpel back up.
-Don't want her being given a chance to escape, not after all the trouble we went through.
-Anonymous Fri 12 Feb 2010 05:10:03 No.4517007 Report
-Quoted By: >>4517013 >>4517020
->>4516980
-No, blatant RP is downloading SRW alpha portrait rips, and have thread long conversations between Kouji and Kamille about sandwiches. Compared to that, this "quest" stuff isn't so bad.
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 05:12:03 No.4517013 Report
->>4517002
->>4517007
-Don't respond to the troll. Just report for sageflooding and move on.
-Haken Browning !zHe7DH816A Fri 12 Feb 2010 05:13:03 No.4517020 Report
->>4517007
->blatant RP is downloading KR screencaps and having thread long conversations between JT tripfags about waifus.
-Please update your definition databases.
-Sciencegar Sciencebolt Fri 12 Feb 2010 05:14:03 No.4517024 Report
-Quoted By: >>4517049
->>4516972
->Shine's been a thorn in our side far too long, I can see Katina really enjoying all of this.
-
-Sorry to call the continuity police, but this was the first time Katinas ever met Shine. The other times, she was fighting the OG people and Bullet. Katina has no reasons to want vengeance. Sexual dominance, sure, but not revenge.
-Anonymous Fri 12 Feb 2010 05:17:03 No.4517040 Report
-I wonder if pointing out how wrong she's been about the future so far would work. Start mocking her and asking to know where she got all her stupid ideas anyway. Plus more threatening with the scalpel.
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 05:18:03 No.4517049 Report
-Quoted By: >>4517064
->>4517024
-Well she'll still enjoy a nice light torture/rape session, being the little sadist that she is, and I'm sure Shine can pick up on that.
-
-And cause it hasn't been said yet...
-Add Shine to the Harem.
-Haken Browning !zHe7DH816A Fri 12 Feb 2010 05:21:03 No.4517064 Report
-Quoted By: >>4517113
->>4517049
-Have you forgotten DOUBLE ERO already?
->>4515510
->>4515511
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 05:27:03 No.4517113 Report
->>4517064
-Bah, neither of those posts used the exact wording right!
-
-iamablindidiot.jpg
-Sciencegar Sciencebolt Fri 12 Feb 2010 05:28:03 No.4517118 Report
-Quoted By: >>4517140 >>4517145
 You grab the scalpel and start picking at your nails with it. "Of course, maybe you don't know anything. You're too young to be really be important to anyone. They probably just sent you out without any ide-"
 
 "Your pathetic attempts at reverse psychology won't work on me! I'm the jewel of the SRX project and if yo-!" She rolls with the slap, so that she's barely scraped by your nails, but she shuts up.
@@ -505,24 +377,13 @@ You grab the scalpel and start picking at your nails with it. "Of course, maybe 
 
 "I'm no mastermind or spy, but I'm good with blades."
 
-"Y-you won't hurt me....that way...." Tears start forming at the corner of her eyes, but she blinks them away.
+"Y-you won't hurt me... that way..." Tears start forming at the corner of her eyes, but she blinks them away.
 
 The guard is looking quite concerned now. "Miss, are you the actual interrogater?"
 
-ANY RESPONSE TO HIM?
-
-AND CAN WE CONCENTRATE LESS ON THE FORMAT OF THE TORTURE AND MORE ON WHAT WE ACTUALLY WANT TO FIND OUT?
-Anonymous Fri 12 Feb 2010 05:30:03 No.4517140 Report
->>4517118
-Sure. We want to find out if anyone's coming here, what the SRX Project is about, and any information on her bosses we can drag out of her.
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 05:31:03 No.4517145 Report
->>4517118
-Just stare at the guard until he shuts up if he knows what's good for him. One body bleeds as well as another, although Shine's does look nicer.
-Sciencegar Sciencebolt Fri 12 Feb 2010 05:56:03 No.4517294 Report
-Quoted By: >>4517314 >>4517326 >>4517364
 "What does it look like I am?"
 
-"Er, well...it's just..."
+"Er, well... it's just..."
 
 "You think I don't know what I'm doing?"
 
@@ -534,7 +395,7 @@ You vault over the bed and pin the guard to the wall, digging the scalpel into t
 
 The guard can only manage some choking sounds in his throat. You pull out the scalpel, and turn to face Shine again. Theres a great big smile on your face.
 
-"Now...where were we? Oh yes, who's coming to get us?"
+"Now... where were we? Oh yes, who's coming to get us?"
 
 Shine looks rather mor worried now. "I-I don't know, they didn't tell me about the operation afterwards. I-I was just supposed to return to EFA territory."
 
@@ -542,7 +403,7 @@ Shine looks rather mor worried now. "I-I don't know, they didn't tell me about t
 
 "The SRX project doesn't deal with simple terrorists! We were put together to face threats to the entire Earth! Like the Aliens, or these Irregulars, not a couple of anarchists like you!"
 
-"So what you're saying is...no-ones coming to get you?"
+"So what you're saying is... no-ones coming to get you?"
 
 Shine doesn't answer immediately, her eyes defocus for a moment. Then the hard-bitten expression returns. "I'll be fine."
 
@@ -554,48 +415,6 @@ Shine doesn't answer immediately, her eyes defocus for a moment. Then the hard-b
 
 Shine starts to squirm again.
 
-WHERE DO WE GO FROM HERE?
-Anonymous Fri 12 Feb 2010 05:58:03 No.4517314 Report
-Quoted By: >>4517466
->>4517294
-Tape her up.
-She's not going anywhere.
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 06:00:03 No.4517326 Report
->>4517294
-Get Shine to tell us about herself, who she is and why she is part of the SRX project.
-Anonymous Fri 12 Feb 2010 06:01:03 No.4517329 Report
-Quoted By: >>4517367
-well obviously, we haven't figured out THAT ONE QUESTION that we're supposed to ask. would it be too much to ask for a hint?
-Anonymous Fri 12 Feb 2010 06:02:32 No.4517342 Report
->>4514802
-Why must you stupid guys constantly spam and attack www . anon
-talk . com for? Please stop. We don't want any chanturds there.
-Anonymous Fri 12 Feb 2010 06:06:03 No.4517364 Report
->>4517294
-"So they sent you out with no plans to bring you back, against a much larger force, for fun? They obviously don't want you around. They must have wanted an excuse to get rid of you. Ha ha ha, you're so pathetic! You mean NOTHING to them!"
-
-Breaking their minds makes them spit out information faster.
-Sciencegar Sciencebolt Fri 12 Feb 2010 06:06:03 No.4517367 Report
-Quoted By: >>4517400 >>4517456
->>4517329
-
-Who says I'm waiting for any specific question? Mainly I'm waiting for you guys to either get bored or go too far.
-
-If you want me to distrupt the interrogation, fair enough...
-Anonymous Fri 12 Feb 2010 06:11:03 No.4517400 Report
->>4517367
-no no, more interrogation is fine
-Anonymous Fri 12 Feb 2010 06:15:03 No.4517430 Report
-Ask about that Director she mentioned
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 06:20:03 No.4517456 Report
->>4517367
-Try to find out about the defences of Izu base and the capabilities and specs (if possible) of the SRX machines.
-Anonymous Fri 12 Feb 2010 06:21:03 No.4517466 Report
->>4517314
-
-She's already strapped to a medical table, as far as I noticed.
-Sciencegar Sciencebolt Fri 12 Feb 2010 06:22:03 No.4517473 Report
-Quoted By: >>4517496 >>4517547
 "Why did they send you?"
 
 "The details of my mission are top se-"
@@ -606,7 +425,7 @@ Quoted By: >>4517496 >>4517547
 
 "Yet you fucked up on this one."
 
-"I didn't...No! I was...there was..."
+"I didn't... No! I was... there was..."
 
 "You came up to our base in a busted-up mech, and got caught. That's not how a competent spy works, girl!"
 
@@ -626,42 +445,6 @@ You lift the pillow and Shine coughs down air desperately. There are genuine tea
 
 The guard puts a hand on your shoulder. "Seriously miss, you're going too far!"
 
-WHAT SHALL WE SAY TO THAT?
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 06:26:03 No.4517496 Report
-Quoted By: >>4517508 >>4517524
->>4517473
-Remind the guard that what is before him is not a little girl. It is the enemy, pure and simple, and having remorse towards your enemy leaves other people on your side at risk.
-
-If that doesn't work, cut him and smear his blood on Shine's face.
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 06:28:03 No.4517508 Report
->>4517496
-There is no hypocrisy in my above statement.
-
-Psychosis is fun.
-Zeta Zaku Fri 12 Feb 2010 06:31:03 No.4517524 Report
-Quoted By: >>4517554
->>4517496
-The last time we did something like that, we got locked up in the bathroom. We just started making headway on making most of our team think we're more competent then we appear, it's probably not a good idea to permanently ruin our reputation here.
-
-I say we back off for now. We're in the middle of evacuation now anyway.
-Anonymous Fri 12 Feb 2010 06:32:03 No.4517528 Report
-this is tricky, we need to remove the guard from the equation, but not in a violent way, lest we end up sliding back towards "liability" again. and under no circumstances can we kill the guard. the best bet would be to somehow convince him to just ignore what's going on in this room.
-Sanger Zombolt! Fri 12 Feb 2010 06:34:03 No.4517547 Report
->>4517473
-OK, that's enough for now. Right now, we are just torturing a little girl that knows as much as Kenzan about her orgnization.
-
-She knows nothing, fair and simple.
-Anonymous Fri 12 Feb 2010 06:35:03 No.4517550 Report
-Yeah, let's lay off and go help out with the evac. We need to avoid becoming a liability again.
-Stealthyboy !fchRKomfls Fri 12 Feb 2010 06:35:03 No.4517554 Report
->>4517524
-The second part of my statement was meant as a joke by the way. That's why I made the second post highlighting the obvious hypocrisy.
-
-I still say we open the guard's eyes to the fact that Shine should not be treated differently to any other enemy just because she is a young girl.
-Anonymous Fri 12 Feb 2010 06:37:03 No.4517561 Report
-Continue with the plot. We had our fun with Shine. We don't need to waste anymore time.
-Sciencegar Sciencebolt Fri 12 Feb 2010 06:50:03 No.4517638 Report
-Quoted By: >>4517647 >>4517649 >>4517685
 You round on the guard and jab a finger to his nose. "Don't get attached to her, mister sentimentality. This is one of the enemy, and with the situation as desperate as it is, we can't afford to show any emotions towards her. This is an enemy, plain and simple? Got that?"
 
 "Er, I-"
