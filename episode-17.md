@@ -1,8 +1,10 @@
+# Episode 17
 
-SRWQ Mission 17: Spreading Justice by kicking things with fire
-Sciencegar Sciencebolt Sun 14 Feb 2010 17:28:38 No.4529353 ViewReplyOriginalReport
-Quoted By: >>4529462 >>4529556 >>4529569
-The needles are on your brain, pumping in the fire. The simulator...No, it's real youregonnadie the mech is spinning through the curtains of bullet, and Old Man Adler is screaming you, stop being a failure, why are all of you failures, and you have no choice but to shoot at the target, and you paint Her face on each of them but you can still here the babies screaming...or is it you?
+## SHADOW MIRROR QUEST (AKA SRW Q)
+
+###SRWQ Mission 17: Spreading Justice by kicking things with fire
+
+The needles are on your brain, pumping in the fire. The simulator... No, it's real youregonnadie the mech is spinning through the curtains of bullet, and Old Man Adler is screaming you, stop being a failure, why are all of you failures, and you have no choice but to shoot at the target, and you paint Her face on each of them but you can still here the babies screaming... or is it you?
 
 
 "Any ideas, guys?"
@@ -17,194 +19,40 @@ Kai just blinks at him. "I thought you were supposed to stop trusting me and fol
 
 "I want to see if you kids can handle this without me."
 
-WILL KATINA INTERJECT HER OPINION?
-Sciencegar Sciencebolt Sun 14 Feb 2010 17:36:38 No.4529374 Report
-Previous threads:
 
-http://archive.easymodo.net/cgi-board.pl/m/thread/4415513
-http://archive.easymodo.net/cgi-board.pl/m/thread/4419117
-http://archive.easymodo.net/cgi-board.pl/m/thread/4420922
-http://archive.easymodo.net/cgi-board.pl/m/thread/4426965
-http://archive.easymodo.net/cgi-board.pl/m/thread/4429260
-http://archive.easymodo.net/cgi-board.pl/m/thread/4432887
-http://archive.easymodo.net/cgi-board.pl/m/thread/4438663
-http://archive.easymodo.net/cgi-board.pl/m/thread/4469339
-http://archive.easymodo.net/cgi-board.pl/m/thread/4472897
-http://archive.easymodo.net/cgi-board.pl/m/thread/4479556
-http://archive.easymodo.net/cgi-board.pl/m/thread/4488105
-http://archive.easymodo.net/cgi-board.pl/m/thread/4496632
-http://archive.easymodo.net/cgi-board.pl/m/thread/4500480
-http://archive.easymodo.net/cgi-board.pl/m/thread/4505042
-http://archive.easymodo.net/cgi-board.pl/m/thread/4514805
-http://archive.easymodo.net/cgi-board.pl/m/thread/4521053
-Sciencegar Sciencebolt Sun 14 Feb 2010 17:44:38 No.4529384 Report
+---
+
 Ok, dramatis personae:
 
 In the room are:
-You, Katina Tarask, School dropout and crazy person
-Irm, your pseudo-leader
-Kai, Eye-patched free agent who helps out your group but seems to have his own agenda.
-Ryuune Zoldark, from the OGverse. Representing the needs of the Irregulars, who need to find the Zweizergain to save their universe.
-Echidna Iasaki, leader of the W-series, silent for now.
-Latooni Subota, team data analyst and ice-queen.
-Anonymous Sun 14 Feb 2010 17:56:38 No.4529394 Report
-Raise the possiblity of the team leaving us alone with her for ten minutes and she'll give us anything we want.
-Sciencegar Sciencebolt Sun 14 Feb 2010 18:01:38 No.4529398 Report
++ You, Katina Tarask, School dropout and crazy person
++ Irm, your pseudo-leader
++ Kai, Eye-patched free agent who helps out your group but seems to have his own agenda.
++ Ryuune Zoldark, from the OGverse. Representing the needs of the Irregulars, who need to find the Zweizergain to save their universe.
++ Echidna Iasaki, leader of the W-series, silent for now.
++ Latooni Subota, team data analyst and ice-queen.
+
 Back on the ships:
 
-OG Arado, Seolla and Masaki: Met up with you by various methods.
-Shuu Shirakawa: Mysterious scientist who claims he will save the earth, from something, eventually.
-Ring Mao: Former industrialist and test pilot, ally of Shuu.
-Lenonjayce Starlord: Tired of ferrying Ring and Shuu around.
-Ibis Douglas: Joined Shadow Mirror to find her friend Sleigh. Gun Nut and Artillery specialist.
-Lamia Loveless: One of the W-series, has recently vowed to become a real person and fight for herself and her friends. Has stolen all of Axels clothes.
-Axel Almer: Ranking leader of the Shadow Mirror, in the absence of Vindel and Lemon. In a coma after fighting his way across the US and the Gulf of Mexico, causing Soulgain to absorb too much of his lifeforce.
-Brooklyn: A Chivalrous warrior.
-Kusuha: A nurse with a penchant for alcohol.
-Johnathan: Irm's father, designing the Neo Grungust.
-Rio: Engineer, skilled at multitasking.
-Ryoto: Engineer, skilled at saying how awesome Shadow Mirror is.
-Shine: A captive enemy pilot, recovering from an impromptu interrogation session given by Katina.
-Russel: Token irishman.
-The Pods: They are not talking to you. Totally not talking to you.
-Dumi: The AI support for the Raioh, is really helpful and friendly. Maybe too much so...
-Anonymous Sun 14 Feb 2010 18:07:38 No.4529413 Report
-Quoted By: >>4529584
-It's a miracle! My timing is amazing!
++ OG Arado, Seolla and Masaki: Met up with you by various methods.
++ Shuu Shirakawa: Mysterious scientist who claims he will save the earth, from something, eventually.
++ Ring Mao: Former industrialist and test pilot, ally of Shuu.
++ Lenonjayce Starlord: Tired of ferrying Ring and Shuu around.
++ Ibis Douglas: Joined Shadow Mirror to find her friend Sleigh. Gun Nut and Artillery specialist.
++ Lamia Loveless: One of the W-series, has recently vowed to become a real person and fight for herself and her friends. Has stolen all of Axels clothes.
++ Axel Almer: Ranking leader of the Shadow Mirror, in the absence of Vindel and Lemon. In a coma after fighting his way across the US and the Gulf of Mexico, causing Soulgain to absorb too much of his lifeforce.
++ Brooklyn: A Chivalrous warrior.
++ Kusuha: A nurse with a penchant for alcohol.
++ Johnathan: Irm's father, designing the Neo Grungust.
++ Rio: Engineer, skilled at multitasking.
++ Ryoto: Engineer, skilled at saying how awesome Shadow Mirror is.
++ Shine: A captive enemy pilot, recovering from an impromptu interrogation session given by Katina.
++ Russel: Token irishman.
++ The Pods: They are not talking to you. Totally not talking to you.
++ Dumi: The AI support for the Raioh, is really helpful and friendly. Maybe too much so...
 
->Copied from end of last thread.
+---
 
-"So hey, if the Irregulars learn that whatsherface is here, won't they attack? And I mean they will find out because of Ryuune here and her buddies back at the planes. No, you can't kill them quickly enough for them to not run away. Also I think they don't care about us enough to worry about hostages.
-
-So anyway, if the Irregulars learn about her and the possibility of her making dimensional shit, they'd come for her. /Through/ your DC Remnants, Mr. Tran. So really, now that you have plenty of samples of her tech, your own men should be able to reproduce that much on their own. We can take her off your hands until this whole thing blows over, keeping your ass safe while we get what we want.
-
-Then you can have her back. Sound good?"
-
-Or something to that effect.
-Anonymous Sun 14 Feb 2010 18:11:38 No.4529419 Report
-Quoted By: >>4529435
-It's just now occured to me. Is it possible that the Lamia we're currently hanging around with is actually the Lamia who went over to OG world the first time round?
-Sciencegar Sciencebolt Sun 14 Feb 2010 18:21:38 No.4529435 Report
-Quoted By: >>4529445
->>4529419
-
-Yes, this Lamia is the direct past version of the 'OG' Lamia. This came up off-screen during the Axel-Irregular alliance part, but it wasn't immediately relevant to what we're doing.
-Anonymous Sun 14 Feb 2010 18:26:38 No.4529445 Report
-Quoted By: >>4529457
->>4529435
-Not what I mean. I'm wondering if the OG crew could have been tricky and swapped Lamias with us while we weren't paying attention to plant a mole in our team. There's probably something that contradicts this idea somewhere but I can't remember it.
-Sciencegar Sciencebolt Sun 14 Feb 2010 18:31:38 No.4529457 Report
-Quoted By: >>4529459 >>4529463
->>4529445
-
-They already sent Seolla, why use 2 spies?
-BSRaven !!pZhu/eJf6iW Sun 14 Feb 2010 18:32:38 No.4529459 Report
->>4529457
-Why not send two spies?
-Stealthyboy !fchRKomfls Sun 14 Feb 2010 18:33:38 No.4529462 Report
->>4529353
-Flirt with Aguija. Say that you've never been with an alien before.
-Anonymous Sun 14 Feb 2010 18:33:38 No.4529463 Report
-Quoted By: >>4529488
->>4529457
-I dunno, backup? This is just wild speculation with only the fact that you're putting in so much "THESE PEOPLE ARE SUSPICIOUS" stuff that I'm being conditioned to be wary of everyone.
-
-I'm actually looking forward to when we fight with Beowulf, he's nice and straightforward in what he wants us to do (die).
-Stealthyboy !fchRKomfls Sun 14 Feb 2010 18:43:38 No.4529488 Report
-Quoted By: >>4529506
->>4529463
-I'm pretty certain our Lamia is actually OUR Lamia, and I'm usually the one who get's suspicious of everyone.
-GUNDAMU !0smG1gQz9c Sun 14 Feb 2010 18:51:38 No.4529506 Report
-Quoted By: >>4529518 >>4529530
->>4529488
-Well, there's only one way to make sure.
-
-We have to test the sizes of Lamia's breasts, to see if they match up with our records.
-
-With our hands. And maybe our feet, if she's into that sort of thing.
-BSRaven !!pZhu/eJf6iW Sun 14 Feb 2010 18:55:38 No.4529518 Report
-Quoted By: >>4529524
->>4529506
-I'm okay with this...
-
-In fact, I SECOND THIS.
-GUNDAMU !0smG1gQz9c Sun 14 Feb 2010 18:58:38 No.4529524 Report
-Quoted By: >>4529533 >>4529549
->>4529518
-It's not like it'd be hard to get her consent. Lamia's probably going to be the easiest one to add to the harem.
-
-"You want to feel like a human, right? Then, I'll teach you all about what it means, to have a human body..."
-Stealthyboy !fchRKomfls Sun 14 Feb 2010 19:00:38 No.4529530 Report
->>4529506
-Considering the two Lamia's aren't actually alternate reality versions of each othe, but instead time displaced versions of each other...
-
-Either way, I second random molestation.
-Haken Browning !zHe7DH816A Sun 14 Feb 2010 19:01:38 No.4529533 Report
->>4529524
-IT'S LIKE I'VE STEPPED BACK INTO MY OWN FIC
-
-Seconding this. Good God.
-
-And also seconding delicious xeno flirting with Aguija.
-Anonymous Sun 14 Feb 2010 19:04:38 No.4529541 Report
-Quoted By: >>4529552
-Nice to see this going from plot to molestation.
-
-As ever.
-Jerid Messa !!AbDOcayw4O/ Sun 14 Feb 2010 19:07:38 No.4529549 Report
-Quoted By: >>4529553
->>4529524
-
-Any other time I'd want to avoid this. In fact I still want to avoid this for the time being, we're supposed to be getting fun Inspector technology. Aguija is pretty crazy right? Maybe Katina can talk about fun ways to kill people with her.
-Anonymous Sun 14 Feb 2010 19:08:38 No.4529552 Report
-Quoted By: >>4529559
->>4529541
-Well, considering that Lamia isn't even in the same room as Katina right now, all they're doing is blowing air.
-
-Notice how it's only the tripfags that are all gung-ho for molestation, however.
-BSRaven !!pZhu/eJf6iW Sun 14 Feb 2010 19:09:38 No.4529553 Report
->>4529549
-Then we invite her into helping us determine whether or nor Lamia is a spy.
-
-Two doses of what's wanted in one go.
-Anonymous Sun 14 Feb 2010 19:10:38 No.4529556 Report
->>4529353
->Report submitted! This window will close in 5 seconds...
-GUNDAMU !0smG1gQz9c Sun 14 Feb 2010 19:13:38 No.4529559 Report
-Quoted By: >>4529575
->>4529552
-You have some kind of problem with molestation, kid?
-
-I'll have you know it's a perfectly acceptable means of counter-spy activities.
-
-And interrogation.
-And drunk recreation.
-And punishment, and rewarding, and expressing your feelings, and artistic expression, and.... well, all sorts of things.
-
-You'd be hard pressed to find a situation where molesting somebody can't help you.
-Anonymous Sun 14 Feb 2010 19:15:38 No.4529569 Report
-Quoted By: >>4529579
->>4529353
-The only way is by tradind technologies. Try to get her to give us her cooperation by giving her some of the W-Series to play with and/or promise her to let her inspect the og-verse mechs when.
-Haken Browning !zHe7DH816A Sun 14 Feb 2010 19:16:38 No.4529575 Report
->>4529559
-Religious liasons, mostly.
-
-But yeah, taking into account that Lamia's not even in the room with us, I'd save the "real girl training" for later. Proceed with pressing Aguija for Cool Alien Martial-and-Marital Arts Techniques.
-Anonymous Sun 14 Feb 2010 19:19:38 No.4529579 Report
->>4529569
-Except Lamia and Echidna.
-
-And to make the deal even better tell her that if she shows some good will, the irregulars might even let her inspect some of their huckbeins when they regroup (remember this universe doesn't have even a single Hucky, even more the Mp versions and Mk-III.)
-Anonymous Sun 14 Feb 2010 19:20:38 No.4529584 Report
->>4529413
-Seconded
-Anonymous Sun 14 Feb 2010 19:24:38 No.4529593 Report
-Trade technologies first, force Lamia to get naked later when she is alone. Say to her that Axel is gonna wake up soon and he is gonna need his clothes or something.
-
-Best of both suggestions.
-Sciencegar Sciencebolt Sun 14 Feb 2010 19:38:38 No.4529632 Report
-Quoted By: >>4529638 >>4529641 >>4529647
 "So, you're a scientist, a handler of technology, Aguija?"
 
 "I'm the closest thing this mudball has."
@@ -223,127 +71,9 @@ Echidna turns to you. "Lt. Tarask, you don't have any authority to make that kin
 
 Ryuune also speaks out. "And you can't offer them our technology just like that, either!"
 
-ANY RESPONSE?
-View SameGoogleiqdbSauceNAO RmF_WilyEyebrow.gif, 1KiB, 50x50
-Stealthyboy !fchRKomfls Sun 14 Feb 2010 19:41:38 No.4529638 Report
->>4529632
-See if you can come to an arrangement. Later. In bed.
-Anonymous Sun 14 Feb 2010 19:42:38 No.4529641 Report
-Quoted By: >>4529662 >>4530005
->>4529632
-Moe-face Irm into saying we have the authority, then tell Ryuune that the Irregulars are going to have to start giving something if they ever want to complete their mission. Did they seriously think they could just walk in, blow up some stuff, then walk back out? Get realistic, girl.
-Jerid Messa !!AbDOcayw4O/ Sun 14 Feb 2010 19:43:38 No.4529645 Report
-Quoted By: >>4529652 >>4530005
-Ryuune wants to find Vindel right? If she wants to speed things up then she needs to cooperate. To Echidna, who's above Katina in terms of authority? Obviously Axel but well he's still in a coma. If we can pull it off just give her two of the mass produced W-Numbers, not like they'll be missed for Rio and Ryoto have the mechanic ability of 4 of them.
-Anonymous Sun 14 Feb 2010 19:44:38 No.4529647 Report
-Quoted By: >>4530005
->>4529632
-Tell them to zip it, this is war and staying still here with useless bickering is gonna get us nowhere.
-
-Also tell them that you believe that Irm feels the same.
-Stealthyboy !fchRKomfls Sun 14 Feb 2010 19:46:38 No.4529652 Report
-Quoted By: >>4529659 >>4529662
->>4529645
-I'm not sure I like the idea of giving away W-Numbers. Sure, they're just mindless dolls, but they're still our comrades right?
-Jerid Messa !!AbDOcayw4O/ Sun 14 Feb 2010 19:48:38 No.4529659 Report
-Quoted By: >>4529677
->>4529652
-
-On one hand I'd agree but these are the super generic ones I think, not super badass and awesome like the late Ensign Mickey. Though they may not even take them since the Inspectors did have their Bioroids.
-Haken Browning !zHe7DH816A Sun 14 Feb 2010 19:49:38 No.4529662 Report
-Quoted By: >>4529677
->>4529641
-This.
-
->>4529652
-Perhaps, but the whole point is to make sure Aguija also becomes our comrade. Thus, they never really leave our possession for long.
-Stealthyboy !fchRKomfls Sun 14 Feb 2010 19:53:38 No.4529677 Report
-Quoted By: >>4529706
->>4529662
->>4529659
-I still think we have to draw the line somewhere. Giving away technology is all fine and good, but giving away people, no matter how mindless, seems like one step too far
-Anonymous Sun 14 Feb 2010 19:59:38 No.4529706 Report
->>4529677
-They are not people, they are DOOOOOOOOOOLS, as Axel would say.
-
-Heck he might even give us a promotion when he wakes up.
-Anonymous Sun 14 Feb 2010 20:28:38 No.4529821 Report
-Giving away our comrades isn't very nice, but if we get Aguija to come along then we can just try to get them back later. When she's working with us try to be nice to her and treat her well, and make we can make a full ally out of her. Vat Tran isn't being nice to her, so maybe we can pull off some 'not all humans are assholes and we're worth saving' thing like we generally do to Mekibos.
-
-(and guys, maybe lay off the molestation a bit? Always going for that and not plot is why we're in this "we never do anything let's just blow everything up" mess in the first place. Let's try to take command of our destiny while we have the chance)
-Gamlin !Xb1uRYUg66 Sun 14 Feb 2010 20:28:38 No.4529822 Report
-Quoted By: >>4529843
-the non numbered w series don't have any sort of complicated mind. Them and the numbered series are miles apart in how complicated they are.
-Stealthyboy !fchRKomfls Sun 14 Feb 2010 20:32:38 No.4529843 Report
-Quoted By: >>4529865
->>4529822
-They're still our comrades. And besides, they may become useful should we ever decide to hold a coup and take control of the Shadow Mirror for ourselves.
-Anonymous Sun 14 Feb 2010 20:36:38 No.4529865 Report
->>4529843
-
-No need to apply spoiler tags considering the last segment of the previous thread was all about the idea of fucking everyone over and becoming evil bastards.
-
-Mostly.
-GUNDAMU !0smG1gQz9c Sun 14 Feb 2010 20:39:38 No.4529876 Report
-Quoted By: >>4529887
-Honestly, ask them if they have any better offers to make.
-
-Hell, if she gets her hands on technology and the W series, who knows what kinds of awesome shit she could make for us with them. If it makes her help us out, then in the long run, isn't that the best kind of offer we can make?
-
-I could totally see her making like, some kind of super-Huckebein for a prorotype ultra W series. Maybe even bring back Ensign Mickey as ULTRA MICKEY Mk. II. We can rebuild him. Stronger. Faster. Better than the rest.
-
-Ridiculous ideas aside, she could even come up with battle algorithms for the Huckebeins using W Series combat data. Imagine that, mass produced Huckebeins that don't suck. It's not like we have to let her experiment on people or anything.
-Stealthyboy !fchRKomfls Sun 14 Feb 2010 20:41:38 No.4529887 Report
-Quoted By: >>4529895
->>4529876
-But mass produced Huckeys don't suck already. Not compared to any other MP suit, anyway.
-GUNDAMU !0smG1gQz9c Sun 14 Feb 2010 20:43:38 No.4529895 Report
-Quoted By: >>4529900 >>4530085
->>4529887
-Then we'll make them not suck even more than they already don't, making each MP Huckebein as effective as the prototypes without needing black hole engines.
-Stealthyboy !fchRKomfls Sun 14 Feb 2010 20:44:38 No.4529900 Report
-Quoted By: >>4529911
->>4529895
-I don't think that would be possible to mass produce.
-Especially considering our lack of funds...
-GUNDAMU !0smG1gQz9c Sun 14 Feb 2010 20:47:38 No.4529911 Report
->>4529900
-Then we use the data to modify existing units, at least providing a boost to troops we already have.
-Anonymous Sun 14 Feb 2010 20:49:38 No.4529925 Report
-Quoted By: >>4529939 >>4529947 >>4529975
-We have mass produced Huckies? We have a Huckebein prototype, but we're a long way from being able to mass-produce them. Have we even seen it? While mass-produced Huckies would probably scare the shit out of everyone in the SM world, I don't think we have the resources to do it.
-Stealthyboy !fchRKomfls Sun 14 Feb 2010 20:52:38 No.4529939 Report
->>4529925
-We don't, but the OGsiders do.
-Anonymous Sun 14 Feb 2010 20:53:38 No.4529947 Report
->>4529925
-Irregulars have MP Huckies as grunts. We saw them when they invaded.
-GUNDAMU !0smG1gQz9c Sun 14 Feb 2010 20:57:38 No.4529975 Report
-Quoted By: >>4530002 >>4530005
->>4529925
-Maybe the mechs she could work with don't have to be Huckebeins, then. That was just the first thing that came to mind that she wouldn't have seen yet, seeing as the Shadow Mirrors don't have them.
-
-Anyway, the basic premise I'm supporting is that the offer we just made is the best choice. She doesn't have to experiment on people if she just uses data, and if the Irregulars are going to be on our side anyway, it would make sense to offer their technology if it helps in the long run.
-
-Speaking of technology she doesn't have, wouldn't the Raioh fall under that category? Maybe we can squeeze an upgrade to DaiRaioh in while it's being repaired, if she agrees to help us.
-Stealthyboy !fchRKomfls Sun 14 Feb 2010 21:01:38 No.4530002 Report
->>4529975
-Oh, yeah, let the oh so trustworthy alien invader look at one of our secret weapons. I can see THIS plan going well.
-Anonymous Sun 14 Feb 2010 21:01:38 No.4530005 Report
->>4529975
-The Raioh needs repairs, I say for now, we just do this:
->>4529647
->>4529645
->>4529641
-Anonymous Sun 14 Feb 2010 21:08:38 No.4530056 Report
-I'm not entirely sure we can force the Irregulars to help us out. Just the ones we have here, sure, but the rest of the forces would just walk all over us if they didn't want to give up even their MP Huckies. They could probably take anything short of the full might of the EFA and we know this because they did back in their world. It's awkward to point out with Aguija right there, but Lune could pretty easily testify to their strength.
-
-Now with meta-knowledge we know they'd probably hold up some bargains as long as we're not asking for super robots and they don't want the war to continue. My point is that we just can't dismiss Lune's objections, we have to convince her that giving up a bit of Irregular tech is the easiest way to find Vindel AND won't have any nasty consequences for them.
-Sciencegar Sciencebolt Sun 14 Feb 2010 21:09:38 No.4530060 Report
-Quoted By: >>4530100
 "Come on Irm, this is the best chance we have! We can't pass this up over a few weak objections."
 
-Irm furrows his brow, looking over at the other two women. "Well... we have to do something...but I don't know about handing people over to her, that doesn't seem right, even if they have been altered."
+Irm furrows his brow, looking over at the other two women. "Well... we have to do something... but I don't know about handing people over to her, that doesn't seem right, even if they have been altered."
 
 "Then tell Ryuune to stop being stubborn! Her forces got us into this mess, she owes us!"
 
@@ -353,7 +83,7 @@ Vat Tran stands up at this. "I assure you, Ms Zoldark, if the alien does any 'tu
 
 Aquija mutters something that her translator fails to translate. Vat Tran ignores her.
 
-Ryuune looks thoughtful for a moment. "I....I'll have to talk it over with the others."
+Ryuune looks thoughtful for a moment. "I... I'll have to talk it over with the others."
 Couch Sun 14 Feb 2010 21:12:38 No.4530085 Report
 Quoted By: >>4530130
 >>4529895
