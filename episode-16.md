@@ -14,63 +14,20 @@ What awaits our heroes in Africa? Who is chasing them? And what threats lie with
 
 Current complement:
 
-Trilobite 1 carrying
-Raioh, DGG-04 Dumi, WildRaubtier, Greenpenst (under construction), Redpenst, Blupenst, Rathgrith
+Trilobite 1 carrying: Raioh, DGG-04 Dumi, WildRaubtier, Greenpenst (under construction), Redpenst, Blupenst, Rathgrith
 
-Trilobite 1 carrying Angelg (Almost repaired), Vysaga, Soulgain (still smashed up), Schutzwald, Soldifar.
+Trilobite 2 carrying: Angelg (Almost repaired), Vysaga, Soulgain (still smashed up), Schutzwald, Soldifar.
 
 Tausendfuessler carrying Ganzon and one other mech.
-Stealthyboy !fchRKomfls Sat 13 Feb 2010 01:40:27 No.4521077 Report
-Quoted By: >>4521079
->>4521075
->one other mech
-This being the EX, I assume.
-Anonymous Sat 13 Feb 2010 01:42:27 No.4521079 Report
->>4521077
-Pretty sure we're on that transport, so we can check it out.
-Anonymous Sat 13 Feb 2010 01:44:41 No.4521086 Report
->>4521052
-Why must you stupid guys constantly spam and attack www . anon
-talk . com for? Please stop. We don't want any chanturds there.
-Sciencegar Sciencebolt Sat 13 Feb 2010 01:48:27 No.4521099 Report
-Quoted By: >>4521109 >>4521134 >>4521151
+
 Trilobite 2 is not in as good a shape as the one Ibis is used to. It entered the Lygeus portal and was rudely thrown out by a wave of unprobability, then sent on a desperate run across the US, dodging EFA patrols, before being worked over by the R-series in the middle of the Gulf of Mexico. It's been repaired as best it can, but its obvious one night of patching the holes and refitting the engines hasn't brought it back to full capacity.
 
 But its not really Ibis or Latooni's job to fix this, they're here to pilot mechs. The Schutzwald and the Soldifar are fully loaded, in case there should be any surprises in the Atlantic, but it occurs to Ibis that she hasn't really gotten to know this mech, and to Latooni that she hasn't even truly piloted the Assault Dragoon.
 
 On the other hand, two veteran Shadow Mirrors, Loveless and Luckfield, are in the hangar, checking on their mechs. And, to be honest, the two former squadmates of Barrison Platoon haven't had much chance to discuss what's happened over the past few days.
 
-WHAT WILL IBIS AND LATOONI DO? And don't say 'Start making out in the middle of the hangar'. Because I know you fuckers will.
-Lord Guilford !UuMJgvNa0Y Sat 13 Feb 2010 01:51:27 No.4521107 Report
-All the awesome dudes need to hang out and chat about being awesome Shadow Mirror dudes.
+---
 
-They can have an orgy with Katina when she's done with CS of course.
-Stealthyboy !fchRKomfls Sat 13 Feb 2010 01:51:27 No.4521109 Report
->>4521099
-Start making out in the middle of th- No of course not.
-Get to a room first!
-
-But seriously, go and talk to Lamia and Sir Brooklyn.
-Anonymous Sat 13 Feb 2010 01:55:27 No.4521134 Report
->>4521099
-Start talking about how sexy Katina is and how they both think they need to stop playing hard to get.
-
-Failing that, go speak to Brooklyn and Lamia.
-Anonymous Sat 13 Feb 2010 01:58:27 No.4521151 Report
-Quoted By: >>4521160
->>4521099
-
-Get to know your mech, Your social life pretty much commits suicide if you get your rear part blown away due your laziness to know your mech.
-Stealthyboy !fchRKomfls Sat 13 Feb 2010 01:59:27 No.4521160 Report
-Quoted By: >>4521198
->>4521151
-Well, I was going to suggest a group training session, but then I remembered we were on the move to Africa, so there's no real opportunity to right now.
-Anonymous Sat 13 Feb 2010 02:07:27 No.4521198 Report
->>4521160
-
-Maybe they have some sort of simulator, since in OG, Ryusei and co used one when they were heading to meet Bian.
-Sciencegar Sciencebolt Sat 13 Feb 2010 02:27:27 No.4521267 Report
-Quoted By: >>4521273 >>4521275
 "Well, it would seem we have a bevy of fine damsels I was not aware of..."
 
 Brooklyn bows courteously as the two girls approach.
@@ -83,22 +40,6 @@ Brooklyn bows courteously as the two girls approach.
 
 "Indeed! It was originally to be given to Unit W, but the failure of the portal meant I had to secure it from the enemy. Thankfully I was able to meet up with Major Axel, and, er, Lamia, and escort the ship to meet you. Hmm, I just realised, I never asked Ms Loveless her real rank..."
 
-TALK TO LAMIA, CHECK MECHS, OR DISCUSS TRAINING?
-Stealthyboy !fchRKomfls Sat 13 Feb 2010 02:29:27 No.4521273 Report
->>4521267
-Latooni'd probably either want to check mechs or discuss training, bloody workaholic.
-
-So screw that, lets talk to the chick wearing Axel's clothes.
-Anonymous Sat 13 Feb 2010 02:30:27 No.4521275 Report
->>4521267
-
-Discuss training.
-
-Getting familiar with fellow pilots while getting used to new mech in one package? VERY YEEEEEEEES!
-Anonymous Sat 13 Feb 2010 02:33:27 No.4521281 Report
-Discuss training, then get to know Lamia a bit. Once we've done speaking to them we can go check out the mechs.
-Sciencegar Sciencebolt Sat 13 Feb 2010 03:05:27 No.4521386 Report
-Quoted By: >>4521394 >>4521396 >>4521517 >>4521518
 "Er, do you guys happen to have a simulator on this ship? It's just, we only just got our mechs, and we're not 100% on what they can do..."
 
 "I'm afraid I have to dissappoint you, Ms Douglas. Trilobites are combat vessels, not training ships. One of the compromises it has to make for all the stealth and speed is that it's not a flying base like the Space Noah class. Facilities like training simulators have to be left back at base."
@@ -111,37 +52,13 @@ Quoted By: >>4521394 >>4521396 >>4521517 >>4521518
 
 "Well, we wouldn't want any stray shots to hit the other ships..."
 
-DOES THIS PLAN SEEM INTERESTING TO EITHER GIRL? Remember, Ibis is an artillery specialist, and Latooni is The Sniper Loli.
+---
 
-OTHERWISE, SHALL WE JUST TALK TO LAMIA?
-Anonymous Sat 13 Feb 2010 03:07:27 No.4521394 Report
->>4521386
-Not really much use doing sparring given what their specialities are, let's have them get to know Lamia.
-Stealthyboy !fchRKomfls Sat 13 Feb 2010 03:08:27 No.4521396 Report
->>4521386
-Neither the Schutzwald nor the Soldifar are melee units, I see no real gain in this.
-
-Talk to the large breasted individual. Feel envious.
-Anonymous Sat 13 Feb 2010 03:40:27 No.4521517 Report
->>4521386
-I think Ashe is a pretty cool guy. He kills aliens and doesn't afraid of anything.
-Anonymous Sat 13 Feb 2010 03:40:27 No.4521518 Report
-Quoted By: >>4521522
->>4521386
-
-Talk to green haired Mrs pillows and then check the mechas.
-Anonymous Sat 13 Feb 2010 03:42:27 No.4521522 Report
->>4521518
-This.
-Anonymous Sat 13 Feb 2010 04:06:27 No.4521613 Report
-talk to lamia
-Sciencegar Sciencebolt Sat 13 Feb 2010 04:17:27 No.4521666 Report
-Quoted By: >>4521687 >>4521699 >>4521763
 Dressed in her silver jacket, undershirt threatening to pull out of her pants with all the body it has to cover, Lamia Loveless paints a striking portrait. She walks over the hull of the Angelg as the last of its repairs are being completed.
 
 "Ahoy, Miss Loveless! How go things!" Brooklyn shouts up to her.
 
-She turns and climbs down to the small group. "Mr Luckfi...no, Brooklyn. I'm feeling fine, thank you very much. And...I haven't been introduced to you two yet."
+She turns and climbs down to the small group. "Mr Luckfi...no, Brooklyn. I'm feeling fine, thank you very much. And... I haven't been introduced to you two yet."
 
 "I'm Ibis, and this is Latooni. We're glad to meet y-"
 
@@ -149,7 +66,7 @@ She turns and climbs down to the small group. "Mr Luckfi...no, Brooklyn. I'm fee
 
 Latooni's question kills the conversation stone dead. Lamias face twists with a mixture of awkwardness and shame.
 
-"I....I was reconstructing by Miss Browning's methods, yes. But that...that doesn't mean...I'm not a person."
+"I... I was reconstructing by Miss Browning's methods, yes. But that... that doesn't mean... I'm not a person."
 
 "It should. Half your brain should be microchips."
 
@@ -157,66 +74,12 @@ Latooni's question kills the conversation stone dead. Lamias face twists with a 
 
 "I'm merely pointing out another irregularity in this crew. So far, our roster of pilots consists primarily of maniacs and alcoholics. It doesn't make for a very cohesive fighting unit."
 
-Lamia frowns at the teen. "I...I'm going to fight for this world, with all of you as my allies! I don't care whether you accept me or not, I'll fight anyway!"
+Lamia frowns at the teen. "I... I'm going to fight for this world, with all of you as my allies! I don't care whether you accept me or not, I'll fight anyway!"
 
 "So long as the damage to your personality doesn't degenerate further, making you useless."
 
 This is getting awkward, thinks Ibis.
 
-ACTIONS FOR THE GROUP?
-Anonymous Sat 13 Feb 2010 04:21:27 No.4521687 Report
-Quoted By: >>4521691
->>4521666
-Kick Latooni in the shins, hard.
-Anonymous Sat 13 Feb 2010 04:21:27 No.4521691 Report
->>4521687
-And discreetly.
-Stealthyboy !fchRKomfls Sat 13 Feb 2010 04:23:27 No.4521699 Report
-Quoted By: >>4521817
->>4521666
-*sniffs* Latooni, why are you being so mean to Lamia...
-
-Go and analyse your mech, Lat.
-Anonymous Sat 13 Feb 2010 04:25:27 No.4521708 Report
-Quoted By: >>4521748 >>4521866
-Point out to Latooni that for all of how everyone's personality quirks don't help group cohesion, her criticisms pointing this out damage group cohesion on top of this.
-Anonymous Sat 13 Feb 2010 04:32:27 No.4521748 Report
->>4521708
-This. Also shin kick.
-Anonymous Sat 13 Feb 2010 04:35:27 No.4521763 Report
-Quoted By: >>4521799
->>4521666
-Have a philosophical debate on WHAT IS A MAN
-Anonymous Sat 13 Feb 2010 04:42:27 No.4521799 Report
-Quoted By: >>4521810
->>4521763
-but a man is just a pile of secrets
-Anonymous Sat 13 Feb 2010 04:44:27 No.4521810 Report
-Quoted By: >>4521822 >>4521824
->>4521799
-So if Lamia has secrets, she is a man. QED.
-Anonymous Sat 13 Feb 2010 04:45:27 No.4521817 Report
->>4521699
->Go and analyse your mech, Lat.
-LATOONI! You've been a bad loli, go to your mech!
-Stealthyboy !fchRKomfls Sat 13 Feb 2010 04:45:27 No.4521822 Report
-Quoted By: >>4521829
->>4521810
-Makes...sense...
-It certainly explains what she's doing in Axel's clothes...
-Anonymous Sat 13 Feb 2010 04:46:27 No.4521824 Report
->>4521810
-But she isn't a man, so she must be a monster that doesn't belong in this world.
-Anonymous Sat 13 Feb 2010 04:46:27 No.4521829 Report
->>4521822
-Oh yeah, I forgot about that.
-
-Ask Lamia whats up with that (after kicking Lat and telling her off, of course)
-Anonymous Sat 13 Feb 2010 04:52:27 No.4521866 Report
->>4521708
-Do this, then ask why Lamia is wearing Axel's clothes.
-Sciencegar Sciencebolt Sat 13 Feb 2010 04:52:27 No.4521867 Report
-Quoted By: >>4521893 >>4521918
 Ibis tries to surreptiously kick Latooni, and mainly ends up stepping on her foot instead. Latooni barely seems to twitch.
 
 "Lat, that kind of talk is poisonous to the team! If you want to have a cohesive group, that kind of commentary is the worst thing you can do!"
@@ -225,209 +88,53 @@ Ibis tries to surreptiously kick Latooni, and mainly ends up stepping on her foo
 
 Ibis kicks her again, harder.
 
-"You...If you're so convinced we're useless, why don't you do something about it? Huh?"
+"You... If you're so convinced we're useless, why don't you do something about it? Huh?"
 
 Latooni adjusts her glasses, and starts walking back towards the Soldifar. "I don't want to. I like a challenging work environment."
 
-ACTIONS FOR ANYONE IN PARTICULAR?
-Stealthyboy !fchRKomfls Sat 13 Feb 2010 04:56:27 No.4521893 Report
-Quoted By: >>4521921
->>4521867
-Ibis, give Lamia a hug and tell her to ignore the mean loli.
-Then realise that her tits are ridiculously huge and that you're pretty flat.
-Anonymous Sat 13 Feb 2010 05:00:27 No.4521918 Report
->>4521867
-Group "Whatcha gonna do?" shrug.
-Anonymous Sat 13 Feb 2010 05:00:27 No.4521921 Report
-Quoted By: >>4521941
->>4521893
-I like this idea.
-
-Then ask her why she's wearing Axel's clothes, not that I'm complaining...
-
-...
-
-...god damn we need fanart of that.
-Stealthyboy !fchRKomfls Sat 13 Feb 2010 05:04:27 No.4521941 Report
-Quoted By: >>4522073
->>4521921
-I'd have given it a go, but I can't draw people with a mouse.
-And my usual backup method (see OP picture) is made impossible by two certain large round objects not found on Axel.
-View SameGoogleiqdbSauceNAO AxeLamia.jpg, 13KiB, 244x448
-Sciencegar Sciencebolt Sat 13 Feb 2010 05:33:27 No.4522073 Report
-Quoted By: >>4522080 >>4522097 >>4522185 >>4522249
->>4521941
-
-Bah! Inability to draw is no reason to not follow your dreams!
-Anonymous Sat 13 Feb 2010 05:34:27 No.4522080 Report
->>4522073
-Okay, I laughed my ass off at that.
-Stealthyboy !fchRKomfls Sat 13 Feb 2010 05:36:27 No.4522097 Report
->>4522073
-Yes, that's basically what my version would have ended up like...
-
-AUGH, MY EYES!
-View SameGoogleiqdbSauceNAO fappity fap..jpg, 292KiB, 556x992
-Anonymous Sat 13 Feb 2010 05:53:27 No.4522185 Report
-Quoted By: >>4522199
->>4522073
-Anonymous Sat 13 Feb 2010 06:01:27 No.4522199 Report
-Quoted By: >>4522211
->>4522185
-The "Oh..." kills it. Whoever made this has no sense of comedy.
-Haken Browning !zHe7DH816A Sat 13 Feb 2010 06:04:27 No.4522211 Report
-Quoted By: >>4522253
->>4522199
-Funny, I don't see a Glenn Beck logo in the corner.
-
-...And wait, who in our roster was the Carolina girl?
-Stealthyboy !fchRKomfls Sat 13 Feb 2010 06:13:27 No.4522249 Report
->>4522073
-Fuck it, you know what? You're right! I'm gonna give drawing her a go.
-Sciencegar Sciencebolt Sat 13 Feb 2010 06:15:27 No.4522253 Report
-Quoted By: >>4522261 >>4522267
->>4522211
-
-Ibis Douglas is a very american name. I just picked a state at random, as did Latooni, probably.
-
-The mixed nationalities of the OG cast is something I keep dwelling on. They have a lot more non-japanese than you'd expect, and even nationalities that aren't American or German. It's quite a change from many other anime and anime-inspired franchises.
-Zeta Zaku Sat 13 Feb 2010 06:19:27 No.4522261 Report
-Quoted By: >>4522267
->>4522253
-I know, it's refreshing to see a global setting actually take -advantage- of the fact that it's a global setting. Though the only character I can remember that's explicitly American is Excellen. .
-Lord Guilford !UuMJgvNa0Y Sat 13 Feb 2010 06:21:27 No.4522267 Report
-Quoted By: >>4522277 >>4522598
->>4522253
->>4522261
-Not sure of the veracity, but I remember hearing that Ibis is actually from New York.
-Sciencegar Sciencebolt Sat 13 Feb 2010 06:24:27 No.4522276 Report
-Quoted By: >>4522296
 Lamia turns away, a sad expression on her face. Ibis goes over to her, and puts a reassuring hand on her shoulder.
 
 "Don't worry about what Latooni said. You're a member of this team, and I for one will stick beside you."
 
 "And I!", Brooklyn proclaims. "A gentleman never abandons a lady."
 
-Lamia manages a weak smile. "Thank you. I wasn't sure how I'd be treated if everyone knew I was...one of the Series."
+Lamia manages a weak smile. "Thank you. I wasn't sure how I'd be treated if everyone knew I was... one of the Series."
 
 "Well, don't worry about it. It won't come up, at least not compared to Katinas antics."
 
 Brooklyn looks at Lamia thoughtfully. "Ms Loveless, if I may be so bold...Why are you wearing Major Almer's uniform?"
 
-Lamia visibly blushes. "Er...well....when I came too, after the fight...I just didn't want to put on that terrible green dress anymore. It just looked so...artificial...Like something a doll would wear. I wanted to wear something....a real person would wear."
+Lamia visibly blushes. "Er... well... when I came too, after the fight... I just didn't want to put on that terrible green dress anymore. It just looked so... artificial... Like something a doll would wear. I wanted to wear something... a real person would wear."
 
-"I...see. But, isn't the Major going to want his clothes back eventually?"
+"I...  see. But, isn't the Major going to want his clothes back eventually?"
 
-"I...er...didn't think of that."
+"I... er... didn't think of that."
 
-ANYTHING ELSE YOU'D LIKE IBIS OR LATOONI TO DO?
-Sciencegar Sciencebolt Sat 13 Feb 2010 06:25:27 No.4522277 Report
-Quoted By: >>4522279
->>4522267
-
-And I'm fairly sure OG Russel isn't Irish. I think using a mirror setting allows me some leeway.
-Lord Guilford !UuMJgvNa0Y Sat 13 Feb 2010 06:25:27 No.4522279 Report
->>4522277
-Yeah, just an FYI.
-Anonymous Sat 13 Feb 2010 06:34:27 No.4522296 Report
-Quoted By: >>4522343
->>4522276
-Give Lami a hug.
-GUNDAMU !0smG1gQz9c Sat 13 Feb 2010 06:45:27 No.4522328 Report
-The only correct answer is to make a frilly dress for Axel.
-View SameGoogleiqdbSauceNAO Shitty AxeLamia.png, 20KiB, 355x517
-Stealthyboy !fchRKomfls Sat 13 Feb 2010 06:53:27 No.4522343 Report
-Quoted By: >>4522375
->>4522296
-Definately this. Girl bonding/ comfort hugs a must!
-
-Also, Shitty fanart of Lamia is complete
-Anonymous Sat 13 Feb 2010 07:05:27 No.4522375 Report
-Quoted By: >>4522390
->>4522343
-Good. Now draw her without her shirt. And bra if she has any.
-Anonymous Sat 13 Feb 2010 07:07:27 No.4522382 Report
-Quoted By: >>4522417
-Focusing on such a shit character like Katina, you'd wonder how these threads keep going on.
-View SameGoogleiqdbSauceNAO ZOMG NEKKID LAMIA.png, 9KiB, 355x517
-SpoilerClick to view
-Stealthyboy !fchRKomfls Sat 13 Feb 2010 07:09:27 No.4522390 Report
-Quoted By: >>4522433
->>4522375
-Done. This is clearly the best art ever made.
-Anonymous Sat 13 Feb 2010 07:16:27 No.4522417 Report
->>4522382
-Its all thanks to the Grungust Neo.
-Anonymous Sat 13 Feb 2010 07:19:27 No.4522433 Report
->>4522390
-Very nice. Now draw her with a penis.
-Sciencegar Sciencebolt Sat 13 Feb 2010 07:32:27 No.4522488 Report
-Quoted By: >>4522496 >>4522508 >>4522511
 "Well, don't worry about it, Lamia. You're part of out team now, and we'll see this through till the end. Together."
 
 Ibis had expected a smile, or a friendly nod. She hadn't expected Lamia to glomp her.
 
-"Oh...thank you, Ibis. I..*sniff*...You don't know how much this means to me.."
+"Oh... thank you, Ibis. I..*sniff*... You don't know how much this means to me.."
 
 Ibis says nothing, because any attempt to speak would result in a mouthful of boob. Oh god...they're massive! How does she stand up straight with these things? Is her spine artificial too?
 
 The tender moment is rudely cut short by the combat alert going off.
 
 "All pilots to your stations! We have detected DC forces engaged in battle with an EFA fleet! Be prepared to engage. Repeat, all pilots to stations!"
-Anonymous Sat 13 Feb 2010 07:34:27 No.4522496 Report
->>4522488
->Ibis says nothing, because any attempt to speak would result in a mouthful of boob.
-I approve of this0.
-Sanger Zombolt! Sat 13 Feb 2010 07:38:27 No.4522508 Report
->>4522488
-YES! YES! THIS IS DELICIOUS!
-Anonymous Sat 13 Feb 2010 07:38:27 No.4522511 Report
-Quoted By: >>4522515
->>4522488
-SOUNDS LIKE IT'S SCRAMBLING TIME.
 
-And someone somewhere suggest that Echidna switch with Ibis. Our artillery specialist needs some fucking artillery.
-Stealthyboy !fchRKomfls Sat 13 Feb 2010 07:39:27 No.4522515 Report
-Quoted By: >>4522528 >>4522549
->>4522511
-She's in a Schutzwald... They don't get much more artillery than them...
-Anonymous Mk-II Sat 13 Feb 2010 07:43:27 No.4522528 Report
->>4522515
-not exactly artillery. more like beam weapon plataform.
-Anonymous Sat 13 Feb 2010 07:48:27 No.4522549 Report
->>4522515
-Yeah, remember when Ibis missed a mook with her beam cannons, but then nailed him with her much less powerful autocannon? Give her the fucking linear bazooka and watch things explode.
-Anonymous Sat 13 Feb 2010 08:00:27 No.4522598 Report
-Quoted By: >>4522688
->>4522267
-Yeah, it's in Alpha 2. Near the upgrade stage, if I remember.
+---
 
-I think Bullet might be American too, just going to school in Japan for no reason in Alpha.
-Zeta Zaku Sat 13 Feb 2010 08:31:27 No.4522688 Report
-Quoted By: >>4523067
->>4522598
-That's right, he is American. And extremely weeaboo as well, wanting to be a samurai.
+####BACK TO KATINA
 
-Which is ironic, since his teacher is German.
-Anonymous Sat 13 Feb 2010 10:32:27 No.4523067 Report
->>4522688
-
-But Bro, we got German Ninjas before!
-Anonymous Sat 13 Feb 2010 11:07:27 No.4523196 Report
-so what does this make Arado
-Sciencegar Sciencebolt Sat 13 Feb 2010 17:03:27 No.4523946 Report
-Quoted By: >>4524060
-BACK TO KATINA
-
-Katina, I'll pull alongside the Tausendfuessler and let you transfer to the Raioh, alright?
+*Katina, I'll pull alongside the Tausendfuessler and let you transfer to the Raioh, alright?*
 
 "Awesome! Dangerous middle-of-the-air acrobatics straight out of a movie!!"
 
-You could just climb down a ladder into the cockpit you know.
+*You could just climb down a ladder into the cockpit you know.*
 
 "..."
 
-I feel the need to point these things out.
+*I feel the need to point these things out.*
 
 The Granzon floats out the back of the Tausendfuessler and turns upright as the DGG-04, the Raioh perched atop of it, hovers alongside. With a Tarzan yell, you leap out of the Fuessler on a rope, and swing gracefully into the Raioh open cockpit. You fail to notice the microadjustments Dumi makes to ensure you don't bash yourself off the Raioh chest and fall into the sea.
 
