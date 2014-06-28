@@ -140,206 +140,46 @@ The Granzon floats out the back of the Tausendfuessler and turns upright as the 
 
 Turning on your targeting computer, you identify 3 Rhino-class land battleships, engaged in fierce conflict with 5 Kestrel-class EFA cruisers. The air is thick with energy beams, shells, and dueling mechs. It looks like quite the epic battle.
 
-WHAT SHALL KATINA DO FIRST?
-Anonymous Sat 13 Feb 2010 18:11:27 No.4524060 Report
-Quoted By: >>4524096
->>4523946
-
-So we have chance to enter brutal battle between grunts where we can be gigantic steel god of death ( while suffering severe damage from grunts and battleships) OR we can destroy the EFA Battleships, ensuring that we have more transports later on???
-
-As much I want Katina to be bloodstained psycho lady of war, I think saving the transports is more important...
-
-Kick the EFA battleships to crisp.
-Lord Guilford !UuMJgvNa0Y Sat 13 Feb 2010 18:33:27 No.4524096 Report
->>4524060
-This, but with better justification: Battleships make bigger booms.
-Sciencegar Sciencebolt Sat 13 Feb 2010 19:55:27 No.4524259 Report
-Quoted By: >>4524268 >>4526676
 "Going for the big ones! Clear me a path guys!!"
 
 Varying levels of confirmation come from the others. The long-range mechs start to fire on the EFA Gespensts, several spiralling down into the mangrove swamps below. In response, the nearest battleship and its escorts start to turn in the direction of the Shadow Mirror formation.
 
-Interesting...
+*Interesting...*
 
 "What is it Dumi?"
 
 A window pops up in front of Katina and zooms into the central Rhino. It's definitely not a normal version: It's painted in what looks like golden beam coating, the prow blade is charged with energy, and behind the main artillery guns is a new turret which fires some kind of energy beams, which are ripping into one of the certral Kestrels.
 
-This battleship doesn't look like it uses standard DC technology. It would seem the rumours of Vat Trans alien technology are true.
+*This battleship doesn't look like it uses standard DC technology. It would seem the rumours of Vat Trans alien technology are true.*
 
 As Dumi says this, he's partaking in emergency evasive manuvers to avoid fire from the battleship, which has quite rightly marked you out as the biggest thread. The Raioh is almost thrown off the DGG-04. 5 Gespensts move in to intercept the two of you.
 
-WHAT WILL KATINA DO?
-Stealthyboy !fchRKomfls Sat 13 Feb 2010 19:57:27 No.4524268 Report
-Quoted By: >>4524297 >>4524308 >>4524396
->>4524259
-Grab all of the Gespies and throw them at the nearest cruiser.
-Anonymous Sat 13 Feb 2010 20:07:27 No.4524297 Report
->>4524268
-This.
-BSRaven !!pZhu/eJf6iW Sat 13 Feb 2010 20:10:27 No.4524308 Report
->>4524268
-Thirded.
-
-Bonus points for a one-liner in doing so.
-Anonymous Sat 13 Feb 2010 20:36:27 No.4524396 Report
-Quoted By: >>4524401
->>4524268
-
-Fourthed
-Anonymous Sat 13 Feb 2010 20:37:27 No.4524401 Report
->>4524396
-Fifth'd
-Sciencegar Sciencebolt Sat 13 Feb 2010 20:49:27 No.4524449 Report
-Quoted By: >>4524455 >>4524459 >>4524461 >>4524529
 "You think you gnats can test me?! DOUBLE PLASMA LEADER!!!" Lightning leaps from the Raiohs hands and snags two of the oncoming mechs. You swing one in a big arc, while the other intercepts a brace of missiles and a battleship beam that were headed for you.
 
 "I'll call it... COUNTER TOSS!!" The other Gespenst flies through the air and impacts on the Kestrel's hull, and kindly explodes, knocking out one of the turrets.
 
-Katina, engage flight mode! Dumi transforms from under you and deploys his barrier, as a massive anti-ship missile explodes against it. You grab two more mechs and fling them, but the battleship hits them in its haste to shoot you down, and they are destroyed well short of thier target.
+*Katina, engage flight mode!* Dumi transforms from under you and deploys his barrier, as a massive anti-ship missile explodes against it. You grab two more mechs and fling them, but the battleship hits them in its haste to shoot you down, and they are destroyed well short of thier target.
 
 The final Gespenst is charging you, firing its M95 in one hand and charging the plasma stakes on the other.
 
-WHAT NEXT?
-View SameGoogleiqdbSauceNAO 1243561230356.gif, 56KiB, 240x422
-Archibald Grims !SonOfAYvRI Sat 13 Feb 2010 20:52:27 No.4524455 Report
-Quoted By: >>4524468
->>4524449
-
-RIDER KICK THAT MOTHER FUCKER
-Anonymous Sat 13 Feb 2010 20:53:27 No.4524459 Report
->>4524449
-Show it a REAL plasma-charged punch
-GUNDAMU !0smG1gQz9c Sat 13 Feb 2010 20:53:27 No.4524461 Report
-Quoted By: >>4524475 >>4524552
->>4524449
-There's only one real answer here.
-
-Engage your plasma leaders around Dumi with his shield up. And then use Dumi like a wrecking ball.
-
-Eat your heart out, Baran Doban.
-Anonymous Sat 13 Feb 2010 20:54:27 No.4524468 Report
->>4524455
-RAIOH KICK?
-Anonymous Sat 13 Feb 2010 20:57:27 No.4524475 Report
-Quoted By: >>4524480
->>4524461
-Make sure to have Dumi in wheels-as-plasma-chainsaws mode.
-GUNDAMU !0smG1gQz9c Sat 13 Feb 2010 20:58:27 No.4524480 Report
-Quoted By: >>4524514
->>4524475
-I like the way you think, sir.
-Anonymous Sat 13 Feb 2010 21:05:27 No.4524514 Report
->>4524480
-Thank you.
-
-And don't forget the obligatory drill-spinnan in conjuntion with the plasma chainsaws.
-Anonymous Sat 13 Feb 2010 21:09:27 No.4524529 Report
->>4524449
-
-Is there any chance to jump over the genspenst and rider kick the ship?
-Stealthyboy !fchRKomfls Sat 13 Feb 2010 21:18:27 No.4524552 Report
->>4524461
-Definately this.
-View SameGoogleiqdbSauceNAO 1214450180064.jpg, 54KiB, 211x162
-Archibald Grims !SonOfAYvRI Sat 13 Feb 2010 21:21:27 No.4524560 Report
-Rider kick the ship while wreckingball the Gespy.
-
-Problem solved.
-Sciencegar Sciencebolt Sat 13 Feb 2010 21:26:27 No.4524581 Report
-Quoted By: >>4524597 >>4524623 >>4524639
 The Gespensts shells burst against the Raiohs armor to little effect, and the plasma stakes fail to penetrate, merely buckling the plate. You're too invested in your next move to care much about his, but a hit from the Schutzwald knocks the Gespenst out of the fight.
 
 "Dumi, this time you're the projectile!"
 
-Very well.
+*Very well.*
 
 You grab Dumi as he converts to Motorad mode and swing him at the Kestrel, his barrier deflecting beams as he goes. The wheels of the Motorad sprout blades and charge with energy, as the mech slams into the hull of the cruiser, then screechs along it, chunks of hull flying everywhere as the wheels churn in the metal as if it were mud. Dumi screechs to a halt at the end of the ship, does a wheelie, and drives back down the opposite side of the hull, before leaping off and transforming to rejoin you.
 
 The Kestrel is listing from the loss of most of its topside systems, and is no longer firing beams. Instead it fires out a wall of flak as it turns, trying desperately to disengage.
 
-MOVE ONTO NEXT SHIP OR FINISH IT OFF?
-Anonymous Sat 13 Feb 2010 21:30:27 No.4524597 Report
-Quoted By: >>4524791
->>4524581
-RIDAH KYAKU!
-
-STRAIGHT THROUGH THE BROKEN BIRD AND INTO THE OTHER ONE!
-Stealthyboy !fchRKomfls Sat 13 Feb 2010 21:36:27 No.4524623 Report
->>4524581
-FINISH HIM.
-Anonymous Sat 13 Feb 2010 21:38:09 No.4524633 Report
->>4521050
-Why must you stupid guys constantly spam and attack www . anon
-talk . com for? Please stop. We don't want any chanturds there.
-Anonymous Sat 13 Feb 2010 21:39:27 No.4524639 Report
-Quoted By: >>4524650
->>4524581
-
-Move to the next ship, someone else can finish the job while our dear Katina shows, what terror and chaos really means to our dear enemies.
-Stealthyboy !fchRKomfls Sat 13 Feb 2010 21:41:27 No.4524650 Report
-Quoted By: >>4524670 >>4524693
->>4524639
-But if we do that, we'll never get our Ace bonus!
-Anonymous Sat 13 Feb 2010 21:45:27 No.4524670 Report
->>4524650
-
-Oh fuck! Forgot about that one...While we are at it, do we have the luck spirit?
-Anonymous Sat 13 Feb 2010 21:48:27 No.4524693 Report
-Quoted By: >>4524711
->>4524650
-It's still early in the game. And besides, I think our other members might need some XP.
-Anonymous Sat 13 Feb 2010 21:51:27 No.4524711 Report
->>4524693
-F**k them. We don't even know if we'll be sticking with them in the long run. And I'm sure they're having fun handling the Gespies anyway.
-View SameGoogleiqdbSauceNAO 1252569730786.jpg, 125KiB, 407x405
-Archibald Grims !SonOfAYvRI Sat 13 Feb 2010 21:51:27 No.4524712 Report
-Quoted By: >>4524828
-Anonymous Sat 13 Feb 2010 22:02:27 No.4524791 Report
->>4524597
-THIS.
-View SameGoogleiqdbSauceNAO Faiz-allatonce.jpg, 32KiB, 495x416
-Haken Browning !zHe7DH816A Sat 13 Feb 2010 22:09:27 No.4524828 Report
-Quoted By: >>4524841
->>4524712
-Sciencegar Sciencebolt Sat 13 Feb 2010 22:11:27 No.4524839 Report
-Quoted By: >>4524847 >>4524862 >>4524882 >>4524937 >>4525032
 Ignoring the flak, you boost into the air and lock the Raioh legs into position. "No-one fucks with me lives! LIGHTNING FALL!!!"
 
 The flaming comet of the Raioh ploughs straight through the stricken Kestrel, which survives 3 seconds with a red-hot hole drilled through it before exploding in a mighty blast, raining shrapnel across the battlefield. You land in the mangrove swamps, the remnants of the plasma burning away a sizable chunk of protected swampland.
 
-Irm, Russel and Echidna come up to you, still firing at airborne Gespensts. "Well....good work, Katina. I suppose you are useful after all."
+Irm, Russel and Echidna come up to you, still firing at airborne Gespensts. "Well... good work, Katina. I suppose you are useful after all."
 
 Beyond, the battle is going evenly, with Vat Tran's ship sinking another Kestrel, while the remaining EFA concentrate on another Rhino, which looks to be stricken.
 
-WHAT NEXT?
-Anonymous Sat 13 Feb 2010 22:12:27 No.4524841 Report
-Quoted By: >>4524861
->>4524828
-can we get a .gif version of this?
-Stealthyboy !fchRKomfls Sat 13 Feb 2010 22:13:27 No.4524847 Report
->>4524839
-Assist the stricken Rhino.
-View SameGoogleiqdbSauceNAO 1259986510971.gif, 2MiB, 272x152
-Metalman W.9 !!TRNu80aGqCO Sat 13 Feb 2010 22:15:27 No.4524861 Report
->>4524841
-Sanger Zombolt! Sat 13 Feb 2010 22:15:27 No.4524862 Report
->>4524839
-Save the Rhino!
-Anonymous Sat 13 Feb 2010 22:19:27 No.4524882 Report
->>4524839
-Go for the engines of one of the Kestrels. Damn things are probably lightly armored compared to the rest of the ship and GOOD LUCK FLYING UNDER GRAVITY, BITCHES.
-Anonymous Sat 13 Feb 2010 22:31:27 No.4524937 Report
->>4524839
-Go help the Rhino.
-Anonymous Sat 13 Feb 2010 22:46:27 No.4525032 Report
->>4524839
-
-Help the rhino
-View SameGoogleiqdbSauceNAO Rhino.gif..jpg, 5KiB, 160x158
-Anonymous Sat 13 Feb 2010 23:13:27 No.4525140 Report
-Sciencegar Sciencebolt Sat 13 Feb 2010 23:17:27 No.4525158 Report
-Quoted By: >>4525171 >>4525184 >>4525190 >>4525200
 "Dumi, save that Rhino!" You boost up into the sky, trying not to overheat your mech like you did in Mexico. Your Harken Impulse flies out, tagging one Gespenst and scattering several more. One is sniped down by Echidna.
 
 Dumi does as he does best, flying right in front of an enemy ship and blocking each of the beam shots. You find yourself impressed by Dumi once more, his defensive capabilities are incredible, as he's still unscratched. He peppers the battleship with Lanzekannone and Ridol Beam fire as he goes, focusing on sensors and turrets.
@@ -348,76 +188,6 @@ The Rhino manages to disengage and roll backwards, leaving the fight trailing sm
 
 The beam hits you in the back as you mash two Gespensts together into one. It burns through one of your shoulders, and something inside pops. The right arm displays are turning orange.
 
-WHAT WILL KATINA DO?
-Stealthyboy !fchRKomfls Sat 13 Feb 2010 23:20:27 No.4525171 Report
->>4525158
-The best defence is a good offence.
-
-CHARGE!
-Anonymous Sat 13 Feb 2010 23:22:27 No.4525184 Report
->>4525158
-Raioh has no need for arms, attack with kicks!
-
-(have Dumi come over and support us though)
-Anonymous Sat 13 Feb 2010 23:24:27 No.4525190 Report
-Quoted By: >>4525203
->>4525158
-Looks like they're focusing on us. Hm.
-
-Cut the engines, drop faster than they can adjust targeting, have everyone else blow the crap out of the Kestrel that shot us. Then we can ascend into the belly of the second one.
-Sanger Zombolt! Sat 13 Feb 2010 23:26:27 No.4525200 Report
-Quoted By: >>4525224 >>4525231
->>4525158
-Without our arms we won't be able to use our boosts without losing balance.
-
-So, change of plans:
-
-Use the Counter Break on our healthy arm to shoot electricity Great Mazinger-style. Concentrate lots of energy into a single shot that covers a wide area. Think a map attack. This should jam the opponent's computers, leaving them vulnerable to our friends' attacks.
-Anonymous Sat 13 Feb 2010 23:27:27 No.4525203 Report
->>4525190
-
-This
-Anonymous Sat 13 Feb 2010 23:33:27 No.4525224 Report
->>4525200
-This.
-
-Also, possible Great Boostah attack w/something?
-Stealthyboy !fchRKomfls Sat 13 Feb 2010 23:34:27 No.4525231 Report
-Quoted By: >>4525238 >>4525254
->>4525200
-I see one problem with this: Wouldn't this hit our allies as well?
-Anonymous Sat 13 Feb 2010 23:36:27 No.4525238 Report
->>4525231
-Not if we do it at POINT BLANK RANGE
-
-SHINING FINGAAAAAAAA
-Sanger Zombolt! Sat 13 Feb 2010 23:41:27 No.4525254 Report
-Quoted By: >>4525289
->>4525231
-We have enough control on the counterbreak to create lasos with it. We could probably aim at the enemies only.
-Sanger Zombolt! Sat 13 Feb 2010 23:55:27 No.4525289 Report
->>4525254
-Anyway, this thread made me realize just how flexible the Raioh really is. Seriously, you can do almost anything with the moves it has.
-GUNDAMU !0smG1gQz9c Sat 13 Feb 2010 23:59:27 No.4525300 Report
-Quoted By: >>4525307 >>4525323
-Guys, you're missing out on an opportunity here.
-
-One arm is disabled. The other works fine. I think it's time for IMPROVISED ROCKET PUNCH, FUCK YEAH.
-Anonymous Sun 14 Feb 2010 00:01:27 No.4525307 Report
->>4525300
-ZEUS STYLE: ROCKETTO PAAAAANCH
-
-And afterwards we replace the fists with ROCKET PUCHAN FISTS
-Sanger Zombolt! Sun 14 Feb 2010 00:04:27 No.4525323 Report
-Quoted By: >>4525339
->>4525300
-Holy shit. You gave me another idea.
-
-The Raioh has boosters on it's arms, right? And the Raioh will need to have it's arms repaired when we get ot the base?
-
-Why don't we take that opportunity to install a rocket-punch function to our arms? We have the boosters. We just need to have the separations and the safe-return program.
-Sciencegar Sciencebolt Sun 14 Feb 2010 00:05:27 No.4525329 Report
-Quoted By: >>4525348 >>4525352 >>4525368
 "I HAVE HAD ENOUGH OF YOU!!!" You boost hard, heading straight at the offending Kestrel. It responds with a brace of anti-ship missiles, but the plasma leaders scoop them up and throw them away. Then the tendrils grab onto the Kestrel itself.
 
 "YOU THINK YOU'RE SO TOUGH WITH YOUR OVERSIZED DINGHY. KISS MY FEET."
@@ -428,106 +198,11 @@ The ship is too massive to be moved by the Raioh, so the Leaders drag the Raioh 
 
 Then it dawns on you that you're sort of stuck. On a sinking battleship. That, with the myriad secondary explosions and power loss, is about to dive nose-first into the Sierra Leone coastline.
 
-WHAT SHALL OUR HEROINE DO?
-Sciencegar Sciencebolt Sun 14 Feb 2010 00:06:27 No.4525338 Report
-Quoted By: >>4525362
-The right arm isn't disabled, it's just badly damaged internally. Power to the Plasma Leaders and boosters on that side is maybe a third normal, meaning that after that little stunt, they need time to recharge: More time than you have.
-Sanger Zombolt! Sun 14 Feb 2010 00:06:27 No.4525339 Report
-Quoted By: >>4525344
->>4525323
-And instead of being your usual Rocket Punches, they would have a movement program similar to that of the Sword Breakers. That means they would pester and constantly return to our enemies while we prepare to attack our enemeis with a jumping kick. A weaker jumping kick, but a jumping kick nonetheless.
-Sciencegar Sciencebolt Sun 14 Feb 2010 00:09:27 No.4525344 Report
->>4525339
-
-This is the Raioh, not the SRX. It's not about subtlety, its about WAAARRGHH I KICK YOU WITH FIRE.
-Anonymous Sun 14 Feb 2010 00:11:27 No.4525348 Report
-Quoted By: >>4525379
->>4525329
-Fire all our boosters and Lighting Fall grind our way through and out the other side.
-Anonymous Sun 14 Feb 2010 00:12:05 No.4525352 Report
->>4525329
->Use the Counter Break to sorround yourself in an electromagnetic field. 
-
->Expand electromagnetic field to move molten metal.
-
->Jump the hell out of the field.
-Anonymous Sun 14 Feb 2010 00:13:27 No.4525354 Report
-Quoted By: >>4525377 >>4525387 >>4525389 >>4525391
->Use the Counter Break to sorround yourself in an electromagnetic field. 
-
->Expand electromagnetic field to move molten metal.
-
->Jump the hell out of the boat.
-GUNDAMU !0smG1gQz9c Sun 14 Feb 2010 00:15:27 No.4525362 Report
-Quoted By: >>4525373 >>4525379 >>4525382 >>4525384 >>4525391
->>4525338
-"Damaged internally" is just as good as anything else. Rip that fucker off, overload it's plasma core, and then launch it at something.
-
-Explosions and awesome occur, followed by grafting a suitable sized arm onto Raioh. With a Jet Magnum on it. A really big, supercharged Jet Magnum.
-
-Who says Raioh can't do awesome punches, too?
-Stealthyboy !fchRKomfls Sun 14 Feb 2010 00:16:27 No.4525368 Report
->>4525329
-If nothing else works, call Dumi for backup.
-Anonymous Sun 14 Feb 2010 00:18:27 No.4525373 Report
-Quoted By: >>4525380
->>4525362
-Are you willing to lose completely an arm of one of the most expensive and valuable mechs we have just because it was shot? And to send it crashing at a bunch of grunt mechs that are about to die?
-Sanger Zombolt! Sun 14 Feb 2010 00:19:27 No.4525377 Report
->>4525354
-Holy shit. Do this. The counterbreak can move mechs. Who says it can't molten metal too?
-Anonymous Sun 14 Feb 2010 00:19:27 No.4525379 Report
->>4525348
-Do this.
-
->>4525362
-Never do this.
-GUNDAMU !0smG1gQz9c Sun 14 Feb 2010 00:19:27 No.4525380 Report
->>4525373
-Of course I am.
-
-Who cares about functionality when you can be fucking awesome?
-Anonymous Sun 14 Feb 2010 00:20:27 No.4525382 Report
->>4525362
-Don't be stupid, do you have any idea how hard it would be to replace one of the Raioh's arms? We couldn't use a gespenst's arm or something as a temp fix either given the size difference. Keep that damn arm attached.
-Anonymous Sun 14 Feb 2010 00:21:27 No.4525384 Report
->>4525362
-RIDAH PAAAANCH
-Anonymous Sun 14 Feb 2010 00:21:27 No.4525387 Report
-Quoted By: >>4525390
->>4525354
-This.
-
-When we get back, we upgrade RaiOh's arms for ROCKETTO PUNCHAN
-Anonymous Sun 14 Feb 2010 00:22:27 No.4525389 Report
->>4525354
-
-THIS,THIIIIIIIIIIIS!!!!!!!!!
-Anonymous Sun 14 Feb 2010 00:22:27 No.4525390 Report
->>4525387
-Or at the very least, put it on The List for DIE-RaiOh...
-Anonymous Sun 14 Feb 2010 00:23:27 No.4525391 Report
->>4525354
-This sounds pretty functional. Do counter break the shit our of that boat.
-
->>4525362
-
-This is a bad idea. The Raioh is way too valuable to do this.
-
-I mean, if we end up losing this arm for good, say good bye to Lighting fall, flying and a good Counter Break move.
-
-It has a booster. Without it, the Raioh sucks balls.
-Anonymous Sun 14 Feb 2010 00:44:27 No.4525452 Report
-do not throw away the raioh's arm
-Jerid Messa !!AbDOcayw4O/ Sun 14 Feb 2010 00:52:27 No.4525488 Report
-Whatever we do, just don't get rid of the arm.
-Sciencegar Sciencebolt Sun 14 Feb 2010 00:58:27 No.4525520 Report
-Quoted By: >>4525534 >>4525564 >>4525585
 You set the remaining plasma leader to repel, and push outwards to tear yourself free. A large of the Kestrel's halfmelted bow spludges off, and you start to extract yourself from the mess that was a battleship.
 
 "Come on...Come on!!!"
 
-Allow me.
+*Allow me.*
 
 Whips of liquid metal wrap around your free arm and neck, and Dumi pulls with all his might as you boost free. The Raioh rips itself from the ship and flies back into the sky, as the Kestrel hits the ground below, disintengrates into a pile of scrap, then explodes, showering you with chunks of debris.
 
@@ -536,26 +211,12 @@ You hear Irm's yelp of joy. "That did it! The bastards are retreating!!"
 "All thanks to me, of course!!"
 
 "Well, I won't say that wasn't impressive, Katina, but you certainly earned your victory, given how the Raioh looks right now..."
-Anonymous Sun 14 Feb 2010 01:02:27 No.4525534 Report
->>4525520
-I think we're going to need some more mechanics, guys.
-Anonymous Sun 14 Feb 2010 01:04:20 No.4525540 Report
->>4521049
-Why must you stupid guys constantly spam and attack www . anon
-talk . com for? Please stop. We don't want any chanturds there.
-Anonymous Sun 14 Feb 2010 01:09:27 No.4525564 Report
->>4525520
-how bad does it look?
-Sanger Zombolt! Sun 14 Feb 2010 01:15:27 No.4525585 Report
->>4525520
-How the fuck does it looks like?
 
-Don't tell me it is scrap metal and we did not realize.....
-Sciencegar Sciencebolt Sun 14 Feb 2010 01:52:27 No.4525885 Report
-Quoted By: >>4525955 >>4526055
+---
+
 The Raioh's systems may be intact, but the armor isn't in good shape at all. The legs are still covered in the molten remains of the EFA ship, which has seeped into the joints in area, and the back and arms have been peppered with shrapnel. All in all, it looks like several days work to get it combat-worthy.
 
-"....It could be worse..."
+"...It could be worse..."
 
 Irm facepalms. "Well, I suppose it serves us right for taking on an entire EFA fleet."
 
@@ -570,13 +231,9 @@ Irm facepalms. "Well, I suppose it serves us right for taking on an entire EFA f
 "What's wrong with that?"
 
 "...I've been spending way too much time with Kai. My sense of trust is shot."
-BSRaven !!pZhu/eJf6iW Sun 14 Feb 2010 02:01:27 No.4525955 Report
-Quoted By: >>4525986
->>4525885
-Hypnosis OGArado into mechanichood.
 
-We DO need more mechanics, after all.
-Sciencegar Sciencebolt Sun 14 Feb 2010 02:05:27 No.4525970 Report
+---
+
 Colonel Van Vat Tran turns his grizzled visage to you as you cross onto his ship. He seems like he might be about to break into a smile, but can't force his mouth to go through with it.
 
 "Well well, I certainly didn't expect Mauser's peons to come to our aid. A nice job you did on the Feds there, it took them months to build up that force, and you sent them scurrying back to Dakar. I'd like to thank....Is that Bian's girl? Here?"
@@ -593,151 +250,49 @@ Vat Tran frowns. "I don't take kindly to tricks, and this is just the kind of pr
 
 "Please, Colonel, you have to listen to us! We're in desperate straights, listening to the Irregulars is all we can do."
 
-"....We'll return to base, and I'll have the Old Maid check out your story. Until then, you'll follow alongside, guns in their ports. Understood?"
+"...We'll return to base, and I'll have the Old Maid check out your story. Until then, you'll follow alongside, guns in their ports. Understood?"
 
 "Yes, Colonel."
 
 Irm glowers as Ryuune as he turns to leave. She glowers right back.
-Anonymous Sun 14 Feb 2010 02:05:27 No.4525972 Report
-Get the mechanics to stop upgrading Kai's Gespenst and focus all the attention on Raioh first.
-Sciencegar Sciencebolt Sun 14 Feb 2010 02:07:27 No.4525986 Report
->>4525955
 
-There are mechanics other than the named ones, you know. This is the best any group could expect to do with all the hard travelling you've been forced to do lately.
-Sanger Zombolt! Sun 14 Feb 2010 02:16:44 No.4526055 Report
-Quoted By: >>4526140
->>4525885
-Focus on repairing the Guarliona and on finishing the Gespent.
+---
 
-Keep repairing the Soulgain but at a slower rate. Even if we did repair it, noone but Axel would be able to pilot it, making it a huge load.
-Anonymous Sun 14 Feb 2010 02:25:27 No.4526140 Report
->>4526055
-Soulgain can regenerate on its own, so leave its repairs for when Axel wakes up. Until then we should focus only on repairing the other supers we have (Angelg/Vaisaga/Raioh/Dumi) and then trying to patch up the Guarlion.
-
-Leave Kai's upgrade for when we manage to settle down in a base for more than 2 days.
-Sciencegar Sciencebolt Sun 14 Feb 2010 02:31:27 No.4526190 Report
-Quoted By: >>4526251 >>4526265 >>4526270 >>4526287 >>4526372
-Current maintenance status
-
-Trilobite 1: Fine
-Raioh: Needs heavy maintenance to arms and a full armor job. Could fight, but not well.
-DGG-04: Unscratched.
-WildRaubtier: Fine
-Greenpenst: About 50% completed
-Redpenst: Fine
-Blupenst: Fine
-Rathgrith: Fine
-
-Trilobite 2: Operating about 80% of engine capacity and hull integrity
-Angelg: Still needs a tuneup but ready to fight.
-Vysaga: The minor damage it picks us is easy to fix.
-Soulgain: Smashed up.
-Schutzwald: Fine
-Soldifar: unscratched
-Guarlion: Needs another days work on the frame before its truly flyable safely.
-Cybuster: Fine
-Valsione: Fine
-Anonymous Sun 14 Feb 2010 02:37:27 No.4526251 Report
->>4526190
-
-I guess we pilot the wildraubter for now...Could be worse.
-Anonymous Sun 14 Feb 2010 02:39:27 No.4526265 Report
->>4526190
-Focus on the Raioh, the Angelg, and the Gespenst Kai. Once the Angelg is fixed, Lamia can take it over and one of the W-series can pilot the Wildrauptier.
-
-Primary repairs: Raioh, Angelg
-Secondary: Greenspenst
-Tertiary: Guarlion, Trilobite, others
-Anonymous Sun 14 Feb 2010 02:39:27 No.4526270 Report
-Quoted By: >>4526316
->>4526190
->DGG-04: Unscratched.
-
-This is starting to make me really suspicious. Sitting in front of a battleship's cannon and not taking a scratch? There's high defense but this is ridiculous.
-Sanger Zombolt! Sun 14 Feb 2010 02:42:27 No.4526287 Report
->>4526190
-Spend most efforts on repairing the Raioh. It has proven us that it is an invaluable ally in the battlefield.
-
-Secondly, let's continue the Greenspent's cuntomizing, but at a slower rate.
-
-Spend a small effort in tuning up the Vysaga and the Angelg so they are completely fine.
-
-Leave the Soulgain to repair itself for now and let's leave the Guarlion till we repair the Raioh.
-Sanger Zombolt! Sun 14 Feb 2010 02:45:27 No.4526316 Report
-Quoted By: >>4526356
->>4526270
-That's how the DGG-04 is supposed to be.
-
-It is the perfect shield for the Raioh's perfect sword. It is incredibly hard to hit and incredibly hard to damage.
-
-http://archive.easymodo.net/cgi-board.pl/m/thread/4420922
-
->Dumi is a defense and evasion-centric pilot with a decent melee stat. Think Volfogg from SRW W. Dumi is nite impossible to kill. He will dodge attacks like crazy and the few attacks that do manage to hit him will not deal that much damage. He is a stone wall.
-Anonymous Sun 14 Feb 2010 02:51:27 No.4526356 Report
->>4526316
-I know, I was there for that discussion. But taking this amount of punishment without even a scratch? Something is up with that unit (and that's not even taking into account the W Series Arado conversation and possiblity of being Duminuss)
-Anonymous Sun 14 Feb 2010 02:53:27 No.4526372 Report
->>4526190
-
-Hmm...
-
-I think it's best first to focus on Angelg and Vysega to make sure to have heavy firepower avaible for nasty surprises.
-After that focus most of repairing efforts on Raioh and then greenspenst.Our Guarlion has nasty habit to be damaged badly after every sortie it has made and Greenspenst is most likely to be sturdy enought to survive few battles without intensive repairs.
-
-Continue repairing Soulgain, but with minimal effort.
-Anonymous Sun 14 Feb 2010 02:54:27 No.4526377 Report
-I would say prioritization list:
-Angelg
-Vysaga
-RaiOh
-Guarlion
-Greenspenst
-And then I guess Soulgain if we get this far down the list, which I doubt.
-Sciencegar Sciencebolt Sun 14 Feb 2010 03:49:27 No.4526662 Report
-Quoted By: >>4526692 >>4526992
 Rio and Ryoto don't looks happy when Irm orders them off one project and onto another. But they comply, and start to repair the Raioh, removing the leg plating to reforge it and clean out the bits of battleship that got stuck there.
 
 You can't help but notice Irm's looking more irritable than usual. You switch to moeface mode.
 
 "Whats wrong, bossman?"
 
-"Urgh...it's just that I'm been reminded what a minefield the DCs politics is like. With Ryuune, Vat Tran, and Junkers all claiming to be the true successors to Bian Zoldarks ideals, working with two seperate factions for a goal we're not 100% committed to isn't the kind of situation I like being in."
+"Urgh... it's just that I'm been reminded what a minefield the DCs politics is like. With Ryuune, Vat Tran, and Junkers all claiming to be the true successors to Bian Zoldarks ideals, working with two seperate factions for a goal we're not 100% committed to isn't the kind of situation I like being in."
 
 "You'd prefer the simple approach, like me."
 
-"Yeah....well, maybe not exactly like you, but all this infighting is getting on my nerves. I really wish Axel would get better so he can handle all this shit."
+"Yeah... well, maybe not exactly like you, but all this infighting is getting on my nerves. I really wish Axel would get better so he can handle all this shit."
 
 "Well, don't worry boss, until he does, you have my complete support."
 
 "...That's supposed to make me not worry?"
-Lord Guilford !UuMJgvNa0Y Sun 14 Feb 2010 03:51:27 No.4526676 Report
-Quoted By: >>4526738
->>4524259
->Golden beam coating
 
-...wait, is Orb part of the Zovorg Alliance now?
-Anonymous Sun 14 Feb 2010 03:54:27 No.4526692 Report
->>4526662
-Oh come on, Irm. We might be psychotic, but we /can/ be reliable.
-Sciencegar Sciencebolt Sun 14 Feb 2010 04:03:27 No.4526734 Report
-Quoted By: >>4526775 >>4526787 >>4526806 >>4526818 >>4527139
-Any luck?
+---
+
+*Any luck?*
 
 "Their research was incomplete, and the data damaged by the destruction, but I was able to synthesise something using our tech."
 
-Will it work for cellular regeneration? I have someone in need of the technology.
+*Will it work for cellular regeneration? I have someone in need of the technology.*
 
-"I tested it on one of the dead. She's revived, but...its not perfect. She's marked, it'll be obvious she's not human."
+"I tested it on one of the dead. She's revived, but... its not perfect. She's marked, it'll be obvious she's not human."
 
-It will have to suffice. What about the Irregular you reported?
+*It will have to suffice. What about the Irregular you reported?*
 
 "Actually, he's from this world. A Shadow Mirror, one of their revived soldiers. He resisted, but when he learnt about the test subject, he agreed to work with us. He also brought a mech, which I'm working on."
 
-Excellent. I'll send you more instructions once I have a better idea of the situation.
+*Excellent. I'll send you more instructions once I have a better idea of the situation.*
 
 "Remember, I asked for a special treat for all this."
 
-I remember. You'll get your new body, once we've recovered what we've lost. Then, we can return to the mission...
+*I remember. You'll get your new body, once we've recovered what we've lost. Then, we can return to the mission...*
 Sciencegar Sciencebolt Sun 14 Feb 2010 04:04:27 No.4526738 Report
 Quoted By: >>4527139
 >>4526676
