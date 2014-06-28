@@ -84,26 +84,9 @@ Vat Tran stands up at this. "I assure you, Ms Zoldark, if the alien does any 'tu
 Aquija mutters something that her translator fails to translate. Vat Tran ignores her.
 
 Ryuune looks thoughtful for a moment. "I... I'll have to talk it over with the others."
-Couch Sun 14 Feb 2010 21:12:38 No.4530085 Report
-Quoted By: >>4530130
->>4529895
-MASS-PRODUCE BELGERMIRS
-*AdviceDesu.jpg*
-LAY WASTE TO THE EARTH
 
-*ahem* Anyway, I agree with the idea of offering a non-Number W-Series. Tell the others that it's nothing unique, and that if we can get Aguija on our side by giving her tech, it might as well still be ours. Plus, as was mentioned, the Irregulars -are- going to have to start giving some things if they're going to expect to deal with anyone fairly.
-Stealthyboy !fchRKomfls Sun 14 Feb 2010 21:14:38 No.4530100 Report
->>4530060
-I still say we see if we could make an... alternate arrangement with Aguija.
+---
 
-wilyeyebrow.gif
-Anonymous Sun 14 Feb 2010 21:19:38 No.4530130 Report
->>4530085
-They are, but we have to be prepared for "we don't like your deals, OG NUMBERS SMASH".
-
-I'm still in favour of maybe trying to get Aguija to pull a Mekibos. Let's try to convince the rest of the team to give up a non-Number (er, actually, do we have any of those?), then get Vat Tran to let her hang with us for a bit. Then we can start protecting her and convincing Aguija that not all humans are barbarians blah blah blah. There's a lot of weak spots in this plan, but it's the best I can think of.
-Sciencegar Sciencebolt Sun 14 Feb 2010 23:59:38 No.4530779 Report
-Quoted By: >>4530796 >>4530824 >>4530836 >>4530859
 You reconvene back on the Trilobite. Echidna is finally showing something like an emotion, displeasure at you. "Lt Irm, why won't you keep your subordinates on a tighter leash? Even revealing the existence of the W-series to the Neo DC is contrary to my orders from Ms. Browning."
 
 "I-I realise that, Echidna! It's just... well, I like having the whole teams input, when I can."
@@ -114,78 +97,12 @@ You reconvene back on the Trilobite. Echidna is finally showing something like a
 
 Echidna nods, but her mask is cracked, showing the annoyance underneath.
 
-"Anyway...I'll talk to Vat Tran on whether there's anything he might want from us. Maybe if we get into his good books, he'll have that woman do it on his orders. Maybe we can damage the EFA in the area, or something. I'll leave my commlink open, if any of you need to contact me.
+"Anyway... I'll talk to Vat Tran on whether there's anything he might want from us. Maybe if we get into his good books, he'll have that woman do it on his orders. Maybe we can damage the EFA in the area, or something. I'll leave my commlink open, if any of you need to contact me.
 
 Irm leaves, leaving you with Kai and Echidna. You realise that the woman is making you quite uncomfortable with her silent treatment and stares.
 
-PLOT IS COMING UP, BUT FIRST, SHALL WE HAVE KATINA DO SOMETHING? I'm open to any number of options
-Haken Browning !zHe7DH816A Mon 15 Feb 2010 00:02:38 No.4530796 Report
-Quoted By: >>4530871
->>4530779
-The serious side of me wants to check on the RaiOh repairs.
+---
 
-The not-so-serious side wants to string Latooni along for a bit.
-
-See if we can do a little of both.
-Anonymous Mon 15 Feb 2010 00:06:38 No.4530824 Report
->>4530779
-One part of me wants to go talk to Dumi about where he wanted to take us a while back.
-
-The other part wants to go work on warming up Latooni's icyness.
-GUNDAMU !0smG1gQz9c Mon 15 Feb 2010 00:08:38 No.4530836 Report
-Quoted By: >>4530869
->>4530779
-...Well, meeting's over.
-
-Let's go find Lamia and seduce her with my patented "I'll teach you all about human feelings" line.
-
-If we go the justice route later, we can give an impassioned speech about how even if you're body is fake, your soul is always your own. And if we go thr route of being the psychotic villain overlord, we can shatter her newly formed sense of love and attachment, and turn her into a hollow shell of her former self, making the battle against our former allies that much easier.
-
-It's like a long term investment, with the short term benefit of being able to grab Lamia's bountiful chest. Brilliant!
-Anonymous Mon 15 Feb 2010 00:12:38 No.4530859 Report
-Quoted By: >>4530871
->>4530779
-Ask Echidna if she really has something better than what we proposed in order to make Van Tran listen to her or is she gonna try seducing him with her body.
-Stealthyboy !fchRKomfls Mon 15 Feb 2010 00:14:38 No.4530869 Report
->>4530836
-I dislike your black and white approach to morality.
-
-If we do end up taking the evil overlord approach, I hope we don't break Lamia's mind, personally.
-Anonymous Mon 15 Feb 2010 00:15:38 No.4530871 Report
->>4530859
->>4530796
-
-Those two. First chat with Echidna then go get Lat and together go check how the repairs are going.
-Anonymous Mon 15 Feb 2010 00:15:38 No.4530872 Report
-Quoted By: >>4530881 >>4530887 >>4531021
-You know, seducing Lamia or Latooni might be all well and good, but am I the only one slightly concerned about our little flashback to The School happening right in the middle of the meeting?
-
-That's probably not something Katina wants to remember, and I'd imagine it would bother her. Maybe we should seek some advice about it.
-BSRaven !!pZhu/eJf6iW Mon 15 Feb 2010 00:17:38 No.4530881 Report
-Quoted By: >>4530918
->>4530872
-Take frustrations out on Latooni or Lamia. Then go seek advice from our good buddy Irm (complete with total moe-dere mode, Mr. Flopsy and all.)
-Stealthyboy !fchRKomfls Mon 15 Feb 2010 00:18:38 No.4530887 Report
->>4530872
-I don't think that's something we should be telling anyone. They already think we're insane enough without telling them things like that.
-Anonymous Mon 15 Feb 2010 00:24:38 No.4530918 Report
->>4530881
-Sounds like a plan. Latooni is the only logical choice, seeing as she would be the only person around who might vaguely understand where we're coming from.
-Couch Mon 15 Feb 2010 00:40:38 No.4531021 Report
-Quoted By: >>4531049
->>4530872
-Excellent. Go to Latooni, earn relationship points and character development. For best results, be a -little- dere. Not a lot, or we'll come off as crazy, but get just emotional enough to get the ice queen a little melty.
-Couch Mon 15 Feb 2010 00:46:38 No.4531049 Report
->>4531021
-To elaborate a little more - the emotion we want to present is fear. We had a really scary thing happen back there, and Latooni's the only one we know who understands what it was like. Ask her for help.
-Anonymous Mon 15 Feb 2010 01:03:38 No.4531148 Report
-Maybe it's time to have first discussion with Latooni that doesn't involve sexual intention and by that I mean, we should discuss school experience.
-
-After that is done, Check how the Raioh repairs are going and have chat with Dumi.
-Stealthyboy !fchRKomfls Mon 15 Feb 2010 01:05:38 No.4531164 Report
-As long as we don't sound crazy enough for Lat to lock us in the toilet again, I'm OK with discussing the School with her.
-Sciencegar Sciencebolt Mon 15 Feb 2010 01:14:38 No.4531202 Report
-Quoted By: >>4531222 >>4531225
 You find Latooni on the top of Trilobite 1, looking out over the DC base with a pair of binoculars.
 
 "Hey, Subota. Looking for anything in particular?"
@@ -202,7 +119,7 @@ You find Latooni on the top of Trilobite 1, looking out over the DC base with a 
 
 You ignore the blatant insult for now, and put a glum expression on your face. Not that Latooni is looking at you.
 
-"Um, Subota...do you ever get...flashbacks, of what happened at the School?"
+"Um, Subota...do you ever get... lashbacks, of what happened at the School?"
 
 "It would be quite odd for a person to never remember what happened during the formative years of their lives."
 
@@ -212,48 +129,17 @@ You ignore the blatant insult for now, and put a glum expression on your face. N
 
 She's not de-icing like this, you think to yourself.
 
-WILL WE TRY ANOTHER APPROACH, OR DO SOMETHING ELSE?
-Stealthyboy !fchRKomfls Mon 15 Feb 2010 01:18:38 No.4531222 Report
->>4531202
-Tear up. Lat's not being very nice, and we're kind of emotionally distraught right now.
-Anonymous Mon 15 Feb 2010 01:19:38 No.4531225 Report
->>4531202
-Try something like "Why won't you be my friend?" maybe?
-Anonymous Mon 15 Feb 2010 01:28:38 No.4531269 Report
-Quoted By: >>4531284 >>4531321
-Once we're done with Latooni, I'd like to put a couple of things we really need to do on the table:
-
-1. Corner Kai, get out the whole story on why he left the EFA and what he saw in there. He knows something, and while he's not trustworthy, I want to know what happened to him.
-
-2. Corner Shu, find out what he's trying to protect earth from and what his plan is. Dumi raised some suspicions about him, but we don't entirely trust Dumi, so let's get the other side of the story.
-
-...as for currently, maybe ask Latooni if she thinks the School did anything to her.
-Anonymous Mon 15 Feb 2010 01:31:38 No.4531284 Report
->>4531269
-
-Seconded, this proposition.
-Anonymous Mon 15 Feb 2010 01:37:38 No.4531313 Report
-Quoted By: >>4531321
-Be dere and request from her, if she wants, to tell us what she knows or remember for us back in the school.
-
-Tell her while having a moe-face and being misty eyed things like "I thing that I am half the human that I could be","You are the only one that can help me understand what I am","I need you to listen to me so that I can have some peace-of -mind, because I don't wanna everyone to be afraid of me getting crazy again", etc,etc.
-Anonymous Mon 15 Feb 2010 01:40:38 No.4531321 Report
->>4531313
->>4531269
-Those two, be moe while talking about the school with Lat and then go to Shu and have a little chat about him.
-Sciencegar Sciencebolt Mon 15 Feb 2010 02:18:38 No.4531461 Report
-Quoted By: >>4531494 >>4531497 >>4531499 >>4531501 >>4531510 >>4531557
 "C-come on, Subota! You can't keep treating me like a dog turd. We were in the School, one of the most horrible experiences on the planet! We have a shared history! And yet you treat me like a baby."
 
 "Do you really think everyone in the School goes through the same thing, Tarask? How naive. The name is the biggest lie in the whole place. It's a laboratory, not a training centre. They experimented on us, threw hundreds of different experiences at us, and tried to find who excelled, who became flawed but usable, and who was only fit to be thrown away. You and your boy-toy Arado were bottom-tier, used for the wierder stuff, considered totally expendable. I was top of the class, and I was used to see how far the human mind and body could go. They constantly tested me, making me excel, but with so much caution, so little true risk. You're being treated like a baby? I was treated like the second coming, still in the womb!"
 
 "S-subota!"
 
-True emotion plays across Latoonis face for the first time you can remember. "I was so sick of it...Able to kill ten men with a pencil, fly a mech with 3 gunshot wounds to the chest, and they treated me like I was made of glass! I never even saw a real mech until I joined Shadow Mirror, it was all simulators before that. No risk...none! What the hell is the point of that kind of life, I ask you?"
+True emotion plays across Latoonis face for the first time you can remember. "I was so sick of it... Able to kill ten men with a pencil, fly a mech with 3 gunshot wounds to the chest, and they treated me like I was made of glass! I never even saw a real mech until I joined Shadow Mirror, it was all simulators before that. No risk... none! What the hell is the point of that kind of life, I ask you?"
 
-"Subo...Lat, I never knew..."
+"Subo... Lat, I never knew..."
 
-"Didn't I just say that? How could you, the dregs, the envelope they scribbled their random thoughts onto...how could you understand a fake life when you had no life at all?"
+"Didn't I just say that? How could you, the dregs, the envelope they scribbled their random thoughts onto... how could you understand a fake life when you had no life at all?"
 Anonymous Mon 15 Feb 2010 02:25:38 No.4531494 Report
 >>4531461
 Wierd awkward sympathy hug time?
