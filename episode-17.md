@@ -140,64 +140,12 @@ True emotion plays across Latoonis face for the first time you can remember. "I 
 "Subo... Lat, I never knew..."
 
 "Didn't I just say that? How could you, the dregs, the envelope they scribbled their random thoughts onto... how could you understand a fake life when you had no life at all?"
-Anonymous Mon 15 Feb 2010 02:25:38 No.4531494 Report
->>4531461
-Wierd awkward sympathy hug time?
-GUNDAMU !0smG1gQz9c Mon 15 Feb 2010 02:26:38 No.4531497 Report
-Quoted By: >>4531663
->>4531461
-The best response to that I can think of would be as follows.
 
-"...Wanna go blow it up?"
-
-And then Latooni and Katina go batshit on The School and destroy the entire complex, leaving nothing but ashes and rubble in their wake.
-
-Relationship with Latooni goes up, and we capture some School mechs in the process if we leave a hangar or two standing. Everybody's happy.
-Couch Mon 15 Feb 2010 02:26:38 No.4531499 Report
->>4531461
-Excellent! We've broken Sniper Loli's cool! Now stop her from talking further by hugging her. Not in a psycho way, an apologetic way. Mix in dere babblings to the tune of "I'm sorry...I'm so sorry, I didn't know...forgive me."
-Haken Browning !zHe7DH816A Mon 15 Feb 2010 02:27:38 No.4531501 Report
->>4531461
-She wants RISK, you say?
-
-Maybe I'll have to juggle my project timetable after all...
-
-In the meantime, commence comforting actions. Do what must be done to make us D'awwwwwww.
-Anonymous Mon 15 Feb 2010 02:29:38 No.4531510 Report
->>4531461
-Hug Latooni (yay for awkwardness).
-
-Then volunteer to go off with her and blow up everything to do with the School.
-Anonymous Mon 15 Feb 2010 02:40:38 No.4531557 Report
-Quoted By: >>4531578 >>4531667 >>4531751
->>4531461
-Well, at least that's a change.
-
-Meekly say "You are right, I didn't have a life back then. But now after joining the Shadow Mirrors I try to live impulsively and live my new life at its fullest. And I know that my impulsiveness makes me say and do stupid things, and I might say something stupid later on, but I want you to know that I really think of you as a friend. And I really want you to think of me as someone that you can depend on Lat."
-
-There, if even this doesn't make her feel something, then lets just get out of there and go see Shu.
-Anonymous Mon 15 Feb 2010 02:43:38 No.4531578 Report
->>4531557
-Say this and then procced with hugs.
-Anonymous Mon 15 Feb 2010 03:00:38 No.4531663 Report
->>4531497
-THIS.
-Jerid Messa !!AbDOcayw4O/ Mon 15 Feb 2010 03:01:38 No.4531667 Report
->>4531557
-
-Something along those lines.
-Anonymous Mon 15 Feb 2010 03:17:38 No.4531751 Report
->>4531557
-OK chumps, let's do this.
-
-LEEEEEROOOOOOY....JENKINS!
-Sciencegar Sciencebolt Mon 15 Feb 2010 03:32:38 No.4531820 Report
-Quoted By: >>4531880 >>4531920 >>4531929
 The hug takes the bitter girl totally by surprise, and she stands stock-still, unsure whether to squirm away, or return it.
 
-"Y-you're right, Subota, I didn't have a life back then. But now, now that I'm away from that place, I've been trying to live my new life at its fullest, without anyone telling me what to do. And I know I end up saying and doing stupid things, but I don't want any of you to think...that that makes me less willing to be your friend. When worst comes to worst, you can depend on me, Latooni."
+"Y-you're right, Subota, I didn't have a life back then. But now, now that I'm away from that place, I've been trying to live my new life at its fullest, without anyone telling me what to do. And I know I end up saying and doing stupid things, but I don't want any of you to think... that that makes me less willing to be your friend. When worst comes to worst, you can depend on me, Latooni."
 
-"...When did this become about you? You...you random...spaz..."
+"...When did this become about you? You... you random... spaz..."
 
 "Latooni, what do I have to do...??"
 
@@ -206,54 +154,14 @@ Latooni pulls away from you, her expression softened but still angry. "Stop bein
 Silence. A sniff as you blink away a tear.
 
 "All Shadow Mirrors, come in! This is Lt. Irm, set your nearest comm-station to frequency 1992.5 immediately!!!"
-Haken Browning !zHe7DH816A Mon 15 Feb 2010 03:41:38 No.4531880 Report
->>4531820
-CODEC CALL - AUTOMATIC ACCEPT
-*presses Select anyway*
-Anonymous Mon 15 Feb 2010 03:46:38 No.4531920 Report
-Quoted By: >>4531943 >>4531969 >>4532018
->>4531820
-"Start being a risk" huh? Any of you know exactly what that means?
-Anonymous Mon 15 Feb 2010 03:47:38 No.4531929 Report
-Quoted By: >>4531943 >>4531969 >>4532018
->>4531820
->"Stop being a random element, Tarask. Start being a risk."
 
-huh?
-Haken Browning !zHe7DH816A Mon 15 Feb 2010 03:49:38 No.4531943 Report
->>4531920
->>4531929
-[shoujo sparkles]
-Subota...If you want me to be a risk so bad...then take me tonight...
-[/shoujo sparkles]
-Anonymous Mon 15 Feb 2010 03:52:38 No.4531969 Report
->>4531929
->>4531920
-Start being a risk taker maybe?
-Anonymous Mon 15 Feb 2010 03:55:25 No.4531986 Report
->>4529351
-Good Lord. Thank God you're not at AɳoɳTalk.com.
-GUNDAMU !0smG1gQz9c Mon 15 Feb 2010 04:01:38 No.4532018 Report
-Quoted By: >>4532069
->>4531929
->>4531920
+---
 
-I bet she's referring to how so far we just seem to lash out randomly at everything around us. I think what we're supposed to take from this is that we need a goal, and we need to channel all of that psychotic fury into achieving that goal instead of dicking around for no real reason.
-
-Think about it for a second. We're only here because there's nowhere else for us to go. It's not like we have a reason to fight this war, or a reason to protect the people we're allied with. We need to figure out just what the hell we want to do here, and then throw 110% of our spastic energy behind that goal until everything that stands in our path is a smoldering pile of ash and rubble.
-
-It might very well be time to start considering if there's any benefit to staying with the shadow mirrors, or if we should strike out on our own for a bit and see what we really want to do in the world. For now, though, let's listen to what's going on. I have a feeling shit's about to hit the fan.
-Anonymous Mon 15 Feb 2010 04:12:38 No.4532069 Report
-Quoted By: >>4532090 >>4532106 >>4532163
->>4532018
-Isn't that basically what Dumi was going on about earlier? And we decided that our only real option was the Shadow Mirrors because who else would take us? Now that /m/ was swung back to liking justice as a goal instead of overlord route, we need to change the answer of "we fight for eternal war because we don't know what else to do" to something like "we fight for justice and protecting people because ___________".
-Sciencegar Sciencebolt Mon 15 Feb 2010 04:16:38 No.4532084 Report
-Quoted By: >>4532128 >>4532155
 "Do we really have to do this, Gilliam? We fought the Inspectors, we know what might happen if we give them any new technology."
 
 "I know very well what it might entail, Ryuune, better than you may think. And I certainly don't want to be the one that dooms this world to alien invasion if I can avoid it. But our other leads aren't helping us very much. The Kurogane is being harried in the Pacific, the Hiryu lost the trail of the target in Canada, and what few people I've been able to get in contact with have been little help."
 
-"But....if we did give her some technology, how could we ensure she didn't use it against the earth?"
+"But... if we did give her some technology, how could we ensure she didn't use it against the earth?"
 
 "I may have to find that out personally. I'll have to make some arrang-"
 
@@ -262,77 +170,9 @@ Quoted By: >>4532128 >>4532155
 "Wha-" Ryuune adjusts her coom station so both she and Gilliam can listen in to the incoming broadcast.
 
 "-epeat, this is Sophia Nate, calling from the Earth Cradle. I require immediate assistance, please, anyone, come to my aid. Otherwise, we'll be lost..."
-Haken Browning !zHe7DH816A Mon 15 Feb 2010 04:17:38 No.4532090 Report
-Quoted By: >>4532109 >>4532130
->>4532069
-The trouble, of course, is that the blank is currently filled with "the Irregulars say that if we don't, their world gets torn to shit."
 
-So what's in it for Shadow Mirror no sekai - more immediately, what's in it for us besides options on an ever-growing harem?
-GUNDAMU !0smG1gQz9c Mon 15 Feb 2010 04:20:38 No.4532106 Report
->>4532069
-The only correct answer is to have an epic battle with the darker half of our mind when Raioh's LIOH system finally takes it's eventual toll and drives us into BERSERKER MODE.
+---
 
-Wherein we kick ourselves in the brain and either become A HERO OF JUSTICE alongside Shu, or become THE DARK EQUALIZER and resolve ourselves to burn down the corrupt world around us.
-Anonymous Mon 15 Feb 2010 04:20:38 No.4532109 Report
-Quoted By: >>4532134
->>4532090
->The trouble, of course, is that the blank is currently filled with "the Irregulars say that if we don't, their world gets torn to shit."
-
-I'm still of the opinion that we should tear their world to shit ourselves if we can manage it. They're doing the standard thing in tv shows and games that deal with alternate realities in that they're assuming that the "main" reality is inherently superior to the others.
-GUNDAMU !0smG1gQz9c Mon 15 Feb 2010 04:23:38 No.4532128 Report
->>4532084
-Well, fuck.
-
-Let's put all this moral bullshit on hold and do a combo attack with Zengar over at Earth Cradle.
-View SameGoogleiqdbSauceNAO EarthLiberationWarriorGranz.jpg, 66KiB, 561x455
-Anonymous Mon 15 Feb 2010 04:23:38 No.4532130 Report
-Quoted By: >>4532147 >>4532160
->>4532090
-Best motivation I can figure for our psychodere Katina as she is now, is "We fight for justice and protecting people because that way we can wreck shit and kill people, and the people we protect will actually like us for it."
-Also I was bored, and the OP pic gave me an outlet, so here's my coloration for our Invincible Earth Liberation Warrior.
-Anonymous Mon 15 Feb 2010 04:25:38 No.4532134 Report
->>4532109
-Gilliam just said he wanted to avoid an alien invasion in this world, and this is our usual group of heroes, so they're probably not that bad. Honestly, if there's anyone in this world we can sway to be helpful it's them.
-Anonymous Mon 15 Feb 2010 04:27:38 No.4532147 Report
->>4532130
-Holy balls that's brilliant.
-Anonymous Mon 15 Feb 2010 04:29:38 No.4532155 Report
->>4532084
-I guess we head over to the Earth Cradle.
-Sciencegar Sciencebolt Mon 15 Feb 2010 04:30:38 No.4532160 Report
->>4532130
-
-That is awesome, thanks immensely.
-Anonymous Mon 15 Feb 2010 04:30:38 No.4532163 Report
-Quoted By: >>4532257 >>4532259
->>4532069
-We fight for justice and protecting people because of the painful and pointless deaths of Kai and Latooni.
-
-You know it is bound to happen.
-Anonymous Mon 15 Feb 2010 04:47:38 No.4532257 Report
->>4532163
-Fuck you, we've just started to crack that shell, we're not losing Latooni now!
-Anonymous Mon 15 Feb 2010 04:47:38 No.4532259 Report
-Quoted By: >>4532301 >>4532345 >>4532437 >>4532502 >>4532516
->>4532163
-Kai's defection was a ruse set up by the rebels. It was all a big drama staged by the Divine Crusaders so they could free themselves from the grasp of the EFA, and Kai was the star of the show. They planned it so they could get the freedom the EFA stole from them and destroy the Queen Einst at the same time.Only a legendary hero like Kai Kitamura could have earned Beowulf's trust. Finding out a way to liberate all the victims of the Einst invasion was to be his greatest mission. Everything was going according to plan.
-Anonymous Mon 15 Feb 2010 04:56:38 No.4532301 Report
-Quoted By: >>4532345 >>4532437 >>4532502 >>4532516
->>4532259
-Then something happened that noone could have predicted. Beowulf deployed the Valsion into the South American rebel base. The rest of the rebel groups demanded to show proof that the Divine Crusaders weren't involved. They couldn't just afford the operation to steal their freedom, so the operation itself was greatly expanded and revised. The leaders of the DC knew that in order to proof their innocence they had to get rid of Kai, and that one of their own would have to do the job. The public couldn't be allowed to find out about it. Not ever. This, they concluded, would be the best way to keep the whole thing under wraps.
-Anonymous Mon 15 Feb 2010 05:03:38 No.4532329 Report
-Quoted By: >>4532345 >>4532437 >>4532502 >>4532516
-Kai Kitamura wouldn't be allowed to come back home alive, and he wouldn't be allowed to kill himself. His life would be ended by his most beloved disciple. That was the way the DC wanted it. That was the mission he was given, and he had no choice but to carry it out. His death in your hands was the duty he had to fulfill. Out of duty he turned his back on his own comrades. A lesser man would have been crushed by such a burden.
-View SameGoogleiqdbSauceNAO one million hours in photoshop.jpg, 53KiB, 603x380
-SpoilerClick to view
-Anonymous Mon 15 Feb 2010 05:08:38 No.4532345 Report
->>4532259
->>4532301
->>4532329
-Anonymous Mon 15 Feb 2010 05:11:38 No.4532358 Report
-Quoted By: >>4532437 >>4532502 >>4532516
-The tainted disgrace will follow him to his grave. Future generations will revile him. In the DC as a despicable traitor with no sense of honor. And in the rest of the world as a monster who unleashed a gravitational catastrophe. He will go down in official history as a war criminal, and noone will ever understand him. That was his final mission, and like a true soldier he saw it thru to the end. But I think he wanted you, of all people, to know the truth. He wanted to live on in your memory. Not as a soldier, but as a man. But he was forbidden to tell you himself and that's why he told me.
-Sciencegar Sciencebolt Mon 15 Feb 2010 05:14:38 No.4532364 Report
 "Ok people, here's the deal." Irm looks unusually determined. "We recieved the distress signal 3 hours ago, which lasted for 35 minutes before the EFA started jamming it, just like they did TLI. We have to assume that means they're taking it as a threat."
 
 Russel looks confused. "Why? It's just a hole in the ground, isn't it?"
@@ -346,173 +186,3 @@ Russel looks confused. "Why? It's just a hole in the ground, isn't it?"
 Ryuune nods. "Too good an offer to pass up."
 
 "Exactly."
-Anonymous Mon 15 Feb 2010 05:17:38 No.4532381 Report
-Quoted By: >>4532437 >>4532502 >>4532516
-Katina.
-
-History will never know what he did.
-
-Noone will ever learn the truth.
-
-His story, his loyalty will only endure in your heart.
-
-Everything he did, he did it for his comrades. He sacrificed his life and hid honour for his country.
-
-He was a real hero. He was a true patriot.
-View SameGoogleiqdbSauceNAO MANLY TEARS.jpg, 33KiB, 720x540
-Sanger Zombolt! Mon 15 Feb 2010 05:26:38 No.4532437 Report
->>4532381
->>4532358
->>4532329
->>4532301
->>4532259
-Sciencegar Sciencebolt Mon 15 Feb 2010 05:36:38 No.4532490 Report
-Quoted By: >>4532523 >>4532533 >>4532535 >>4532561
-CHOOSE DETACHMENT FOR THE EARTH CRADLE RESCUE
-
-Available pilots:
-Katina (free)
-Irm (free)
-Kai (free)
-Ryuune (Valsione)
-Echidna (Needs a reason to leave Rathgrith)
-Latooni (Free)
-Arado (Free)
-Masaki (Cybuster)
-Shuu (Granzon)
-Ring (Free)
-Lenonjayce (Free)
-Ibis (Free)
-Lamia (Free)
-Brooklyn (Vaisaga)
-Russel (Free)
-Dumi (DGG-04)
-
-Available mechs (Choose 12)
-DGG-04 (Counts as 3, Dumi only)
-WildRaubtier
-Redpenst
-Blupenst
-Rathgrith
-Angelg (Counts as 3)
-Vysaga (Counts as 3)
-Schutzwald
-Soldifar
-Granzon (Shuu Only)
-
-LEAVING KATINA BEHIND WILL MERELY RESULT IN ANOTHER CHARACTER TEMPORARILY BEING THE FOCUS
-Sciencegar Sciencebolt Mon 15 Feb 2010 05:38:38 No.4532502 Report
-Quoted By: >>4532523
->>4532381
->>4532358
->>4532329
->>4532301
->>4532259
-
-Just because I gave Kai an eyepatch does not mean I stole his whole plot from MGS 3!
-View SameGoogleiqdbSauceNAO 1261694001954mt.jpg, 116KiB, 400x536
-Anonymous Mon 15 Feb 2010 05:41:38 No.4532516 Report
->>4532381
->>4532358
->>4532329
->>4532301
->>4532259
-
-GLORIOUS!
-Haken Browning !zHe7DH816A Mon 15 Feb 2010 05:43:38 No.4532523 Report
->>4532502
-Indeed. You're using Metal Gear Acid instead. Kai's gonna be strung along by some psychic trying to make him think he's Russel.
-
->>4532490
-***FOCUS: Lamia/Angelg
-*Ring/Wildrauptier
-*Latooni/Rathgrith
-*Ibis/Redpenst
-***Brooklyn/Vaisaga
-*Lemonjayce/Schutzwald
-*Katina/Bluepenst
-*Shuu/Granzon
-Anonymous Mon 15 Feb 2010 05:45:38 No.4532533 Report
->>4532490
-Valsione and Cybuster can go, since MAP attacks are always good. Bullet can go to to keep an eye on them. Latooni in Soldier, she wanted some risks so here we go. Let's try Ibis in the Rathgith.
-
-...is the Angelg free? I vote we toss Irm in there.
-Sanger Zombolt! Mon 15 Feb 2010 05:45:38 No.4532535 Report
-Quoted By: >>4532554
->>4532490
-Vysaga with Bullet.
-DGG-04
-Granzon.
-Rathgrith with Echidna.
-Masaki and Cybuster.
-Ibis and Schitwald.
-Katina and Wildraubtier.
-Lat and Soldifar.
-Anonymous Mon 15 Feb 2010 05:48:38 No.4532548 Report
-RaiOh's not going to be available, then? Shame.
-My picks:
-Katina(Wildraubtier)
-Granzon(Shuu)
-Brooklyn(Vysaga)
-DGG-04
-Latooni(Soldifar)
-Ibis(Schutzwald)
-Irm(Redpenst)
-Masaki(Cybuster)
-Anonymous Mon 15 Feb 2010 05:49:38 No.4532554 Report
-Quoted By: >>4532575
->>4532535
-This is good, but replace Echidna with the Valsione and Dumi with the Angelg and Lamia.
-Anonymous Mon 15 Feb 2010 05:50:38 No.4532561 Report
-Quoted By: >>4532568
->>4532490
-Well all those EFA folks ganging up on a woman sounds like some INJUSTICE to me, so of course Shu is coming, and assuming he can't warp our team there, we need to move fast, so Masaki and Lune are in, and somebody in the Wildraubtier.
-Dumi comes, seeing as this is a rescue mission, we might need the defense. Vysaga should be good for general disruption of the enemy, then bring the Soldifar and a Gespenst.
-Anonymous Mon 15 Feb 2010 05:52:38 No.4532568 Report
->>4532561
-I don't think we will even have to deploy Dumi. If shit comes to worse, he will come by himself as long as Katina is with the group.
-Anonymous Mon 15 Feb 2010 05:55:38 No.4532575 Report
->>4532554
-This. Also have Ibis pilot the Rathgrith instead of the Schutzwald. Bring up efficiency in order to get Echidna out of the cockpit. Ibis' file likely mentions her extreme skill in solid projectile weaponry.
-
-If that fails have Katina moe-face Irm to order her to let Ibis have the Rathgrith.
-Sciencegar Sciencebolt Mon 15 Feb 2010 05:57:38 No.4532582 Report
-Quoted By: >>4532596
->...is the Angelg free? I vote we toss Irm in there.
-
-It's technically free, its not locked to Lamia specifically, other Shadow Mirrors can use it.
-Anonymous Mon 15 Feb 2010 06:02:38 No.4532596 Report
->>4532582
-Get Irm in there. I don't think we have any defensive men around that are pros with ranged weaponry, so we'll compromise on our resident super robot pilot swinging the sword around a lot.
-Sciencegar Sciencebolt Mon 15 Feb 2010 06:44:38 No.4532816 Report
-Quoted By: >>4532845
-Confirmed:
-
-Brooklyn in the Vaisaga
-Masaki in Cybuster
-Shuu in the Granzon
-Lat in the Soldifar
-Katina in WildRaubtier
-Ryuune in Valsione
-Dumi in DGG04
-Ibis in Schutzwald
-
-STARTING MISSION TOMORROW
-Anonymous Mon 15 Feb 2010 06:50:38 No.4532845 Report
-Quoted By: >>4532972
->>4532816
-No go on getting Ibis into the Rathgrith instead?
-Sciencegar Sciencebolt Mon 15 Feb 2010 07:15:38 No.4532972 Report
-Quoted By: >>4532977
->>4532845
-
-2 votes to 3 for the reliable old Schutzy, sorry.
-Anonymous Mon 15 Feb 2010 07:17:38 No.4532977 Report
-Quoted By: >>4533021
->>4532972
-But but ARTILLERY specialist! Not BEAM specialist!
-
-Bah.
-Anonymous Mon 15 Feb 2010 07:26:38 No.4533021 Report
->>4532977
-The question we should be asking here is if Vat Tran has any equippable weapons we can borrow. A Rectangular Launcher or G-Railgun should work just fine.
