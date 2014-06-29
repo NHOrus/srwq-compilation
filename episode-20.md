@@ -3,342 +3,16 @@
 ## SHADOW MIRROR QUEST (AKA SRW Q)
 
 ###SRWQ Mission 20: Lets hope that was a temporary hiccup.
-Sciencegar Sciencebolt Wed 17 Feb 2010 23:02:47 No.4546141 ViewReplyOriginalReport
-Quoted By: >>4548860
-For previous threads, google Team Phantom Tiger (thanks again Haken Browning).
 
-In our last thread, unfortunately cut short, the Shadow Mirrors were locked in epic combat with the Cry Wolves, when the very people they were sent to save came to their rescue. Sophia Nate, Wodan Ymir, and someone called Cynthia joined the team, and revealed how they had survived the destruction of the Earth Cradle: The mysterious power of the Machine Cells.
+In our last episode, unfortunately cut short, the Shadow Mirrors were locked in epic combat with the Cry Wolves, when the very people they were sent to save came to their rescue. Sophia Nate, Wodan Ymir, and someone called Cynthia joined the team, and revealed how they had survived the destruction of the Earth Cradle: The mysterious power of the Machine Cells.
 
 Now armed with a frightening new technology, the team returns to base, still unsure exactly what this could mean for them...
-Anonymous Wed 17 Feb 2010 23:25:47 No.4546211 Report
-Pray that the base isn't under attack when you return.
-Flag Ridah !!ohjr2CPy/wa Wed 17 Feb 2010 23:55:47 No.4546356 Report
-Quoted By: >>4546439
-So at this point what's going on?
-Stealthyboy !fchRKomfls Wed 17 Feb 2010 23:56:47 No.4546362 Report
-Fuck yeah, you're back!
-Also big thanks to Haken.
-Haken Browning !zHe7DH816A Thu 18 Feb 2010 00:09:47 No.4546439 Report
-Quoted By: >>4546455
->>4546356
-We see if New Hotness Not-Evil-and-Hax Shadow Mirror Machine Cells can out-regen the EFA's harrowing contingent of tentacle-equipped robots.
 
-Also, appending current thread to the TPT list shortly.
-BSRaven !!pZhu/eJf6iW Thu 18 Feb 2010 00:12:47 No.4546455 Report
->>4546439
-Alternatively: NEO GRUNGUST CHAINSWORDS FOR EVERYONE.
+---
 
-Or maybe just Katina.
-Gamlin !Xb1uRYUg66 Thu 18 Feb 2010 00:15:47 No.4546469 Report
-Quoted By: >>4546483 >>4546494
-so the big question is,
-
-Did the rauptier get a dosage of badassery incarnate cells? Did Katina?
-Anonymous Thu 18 Feb 2010 00:17:47 No.4546483 Report
->>4546469
-This question needs to be answered.
-Stealthyboy !fchRKomfls Thu 18 Feb 2010 00:19:47 No.4546494 Report
-Quoted By: >>4546552
->>4546469
-This question's been answered. The Rauptier did get some Machine Cells on it.
-View SameGoogleiqdbSauceNAO 17.png, 11KiB, 480x320
-Archibald Grims !SonOfAYvRI Thu 18 Feb 2010 00:20:47 No.4546498 Report
-Have Irm kill something.
-Stealthyboy !fchRKomfls Thu 18 Feb 2010 00:28:47 No.4546549 Report
-Quoted By: >>4546567
-Am I the only one getting disturbed by the lack of Sciencegar here?
-View SameGoogleiqdbSauceNAO vai.jpg, 88KiB, 600x700
-Gamlin !Xb1uRYUg66 Thu 18 Feb 2010 00:29:47 No.4546552 Report
->>4546494
-
-Oh, I didn't notice the answers on mission 18 till I checked the archive.
-
-For my ignorance I post a pic.
-Haken Browning !zHe7DH816A Thu 18 Feb 2010 00:31:47 No.4546567 Report
-Quoted By: >>4546581
->>4546549
-Likely story is, the ban on his home IP needs another couple hours to wear off.
-Stealthyboy !fchRKomfls Thu 18 Feb 2010 00:32:47 No.4546581 Report
->>4546567
-Oh, did he make this thread at work? That'd explain it.
-Anonymous Thu 18 Feb 2010 02:46:47 No.4547365 Report
-Quoted By: >>4547469
-so what happens if an einst gets macine celled?
-Anonymous Thu 18 Feb 2010 03:08:47 No.4547469 Report
->>4547365
-That happened in OG Gaiden. A new type of einst was created that destroyed the OG Cry Wolves.
-Stealthyboy !fchRKomfls Thu 18 Feb 2010 03:40:47 No.4547590 Report
-Quoted By: >>4547616 >>4547635 >>4550929
-I've just thought, there's definately something going on with the Earth Cradle people. The Bergelmir is a sign of this, as it's a Machine Celled Huckebein Mk II. This shows two points of contention:
-
-Point 1. The Huckebein line was not expanded upon in the SMverse after the Vanishing Trooper incident. Therefore the Huckebein Mk II was never mass produced (or even developed for that matter). This is not as much of an issue as point 2 however, as the OGsiders brought plenty of Huckey Mk II M's wth them.
-
-Point 2. Machine Cells were developed by reverse engineering Balmarian Zfylud crystals, and the SMverse Earth was never attacked by the Ze Balmary Empire.
-GUNDAMU !0smG1gQz9c Thu 18 Feb 2010 03:46:47 No.4547612 Report
-Quoted By: >>4547706
-More importantly, the Raioh is still damaged.
-
-Throw some machine cells on that bitch.
-
-Then blow shit up with ULTRA LIGHTNING FALL and SUPER RISING METEOR.
-Anonymous Thu 18 Feb 2010 03:47:47 No.4547616 Report
->>4547590
-While agree with you on the Bergelmir, I believe that the Machine Cell can be easily explained.
-
-Research into Nanotechnology, ie the Machine Cell likely started long before the before the Balmar attack. The Zflud crystal just gave them a working sample and thus accelerated progress.
-
-It was noted that they had a difficult time just making the machine cell, thus the few survivors.
-
-Probably just a plot by Dark Brain or whatever faction is going to pop up though.
-Anonymous Thu 18 Feb 2010 03:54:47 No.4547635 Report
-Quoted By: >>4547651
->>4547590
-On the machine cells, remember that that SM verse SRX is powered by Tronium, despite no Meteor 3.
-And within this story, remember that Kurogane found an old Aerogater unit stashed underneath TLI, suggesting some sort of Balmarian contact has happened.
-Stealthyboy !fchRKomfls Thu 18 Feb 2010 03:58:47 No.4547651 Report
->>4547635
-Like I said, there's definately something up. I was implying that there's some sort of conspiracy obviously going on in the SM verse. Not that this should be overly surprising considering the fact that all the EFA's elites seem to be corrupted by the Einst...
-Flag Ridah !!ohjr2CPy/wa Thu 18 Feb 2010 04:08:47 No.4547706 Report
-Quoted By: >>4547741
->>4547612
-Let's have it come into play later. Raioh was damaged and Katina is using the new mech because of the Machine cells. Eventually like always the main character is going to get merced by some end game character. At that time a repaired New Machine cell Raioh appears.
-
-Que rape sequence.
-Anonymous Thu 18 Feb 2010 04:14:47 No.4547741 Report
-Quoted By: >>4547769
->>4547706
-But it would no longer be a Raioh.
-
-The Machine Cells can cause some very drastic and disturbing changes on the host machine, and create weapons and abilities that weren't there before.
-
-Just look at the Thrud and the Bergs.
-
-Sure, it would be obviously better than the normal Raioh, but then the cells could screw up machinery and programs that gives us our ability to use a combination attack with the DGG-04, and maybe even make it unable to release our full power and transform into the DaiRaioh.
-
-It is a risky move.
-Flag Ridah !!ohjr2CPy/wa Thu 18 Feb 2010 04:20:47 No.4547769 Report
-Quoted By: >>4547782 >>4548295
->>4547741
-Eh... Good point. I got a little overzealous with the Machine cell happiness.
-
-Although I don't know why story wise you can't still have Combination attacks. Most combination attacks are mostly just pilot acrobatics anyways.
-
-Like Twin Bird Strike. I never understood why you needed that "programmed" into your mech...
-Stealthyboy !fchRKomfls Thu 18 Feb 2010 04:21:47 No.4547782 Report
-Quoted By: >>4547804
->>4547769
-Maybe it's because both mechs are moving incredibly fast far too close to each other?
-Flag Ridah !!ohjr2CPy/wa Thu 18 Feb 2010 04:25:47 No.4547804 Report
->>4547782
-Well you do have a point about that. At least for the end portion of the combo.
-
-It's not that complicated though, blue angels seem to be able to pull it off without it (to a lesser extent)
-Anonymous Thu 18 Feb 2010 04:49:47 No.4547980 Report
-Quoted By: >>4548142
-So....how different is our power level compared to OG Katina?
-Sanger Zombolt! Thu 18 Feb 2010 05:02:47 No.4548060 Report
-Bumping to make sure this thread does not die.
-Anonymous Thu 18 Feb 2010 05:15:47 No.4548142 Report
-Quoted By: >>4548283
->>4547980
-Pilot-wise or machine-wise?
-
-Machine-wise we are godds compared to her.
-
-I don't know how much better we are compared to her in piloting.
-Anonymous Thu 18 Feb 2010 05:33:47 No.4548283 Report
->>4548142
-Katina is obviously better.
-Anonymous Thu 18 Feb 2010 05:34:47 No.4548295 Report
->>4547769
-Same reason every motion is programmed into the mech: mechs are stupid hard to pilot without them. It's a rare skill that you either have (Bransteins, Aggressors) or you don't (just about everyone else). So you get the Aggressors to program in data for everyone else to use. For TBS it's probably convenience more than anything else. It means Arado and Seolla can concentrate on aiming or whatever instead of not running into each other.
-
-Also, before everyone forgets with Machine Cell happiness: We really need to track down Kai and force him to explain why he left the Cry Wolves. Also maybe talk to Sophia if she knows anything about these regenny things, since Machine Cells seem to have the same principle. (sure, we know that Machine Cells are different, but Katina doesn't and it would be nice to know if Sophia knows anything)
-View SameGoogleiqdbSauceNAO nappa9000bg8.jpg, 7KiB, 180x201
-Stealthyboy !fchRKomfls Thu 18 Feb 2010 05:35:47 No.4548301 Report
-Quoted By: >>4548333 >>4548379
-But what does the scouter say?!
-View SameGoogleiqdbSauceNAO DBZ Vegeta Finger_ad.jpg, 110KiB, 498x373
-Anonymous Thu 18 Feb 2010 05:39:47 No.4548333 Report
-Quoted By: >>4548504
->>4548301
-IT'S!......1006.
-
-Kick her ass Nappa.
-View SameGoogleiqdbSauceNAO 1248672615216.jpg, 17KiB, 319x291
-Archibald Grims !SonOfAYvRI Thu 18 Feb 2010 05:46:47 No.4548379 Report
->>4548301
-Anonymous Thu 18 Feb 2010 05:59:47 No.4548504 Report
-Quoted By: >>4548608
->>4548333
->I see what you did there.
-Sanger Zombolt! Thu 18 Feb 2010 06:11:47 No.4548608 Report
-Quoted By: >>4548620
->>4548504
-I don't get it.
-Anonymous Thu 18 Feb 2010 06:13:47 No.4548620 Report
->>4548608
-Turn your monitor upside down.
-Anonymous Thu 18 Feb 2010 06:17:47 No.4548647 Report
-Quoted By: >>4548667 >>4548686 >>4552192
-Threads like this really makes me wonder why the fuck do mods even allow Role playing in a fucking image board.
-Anonymous Thu 18 Feb 2010 06:20:47 No.4548667 Report
->>4548647
-Mods don't care, Mods want to see /m/ burn in fire, only janitors care about deleting porn.
-Anonymous Thu 18 Feb 2010 06:23:47 No.4548686 Report
-Quoted By: >>4548709
->>4548647 WHY DO PEOPLE HAVE FUN ON AN IMAGE BOARD GRRRRRR!
-Anonymous Thu 18 Feb 2010 06:27:47 No.4548709 Report
-Quoted By: >>4548723 >>4548833
->>4548686
-
-
-You can go have fun in Gaia, This shit should not be allowed. Its not fun, it does not involve the entire board only a selective individuals who consider this amusing.
-Anonymous Thu 18 Feb 2010 06:29:47 No.4548723 Report
-Quoted By: >>4548758
->>4548709 IT DOESN'T INVOLVE MEEEEEEEEEEE GRRRRRRRRRRRRRRR!
-
-Why not hide the thread?
-Anonymous Thu 18 Feb 2010 06:33:47 No.4548758 Report
-Quoted By: >>4548787
->>4548723
-I will.
-
-Fuck you.
-Anonymous Thu 18 Feb 2010 06:37:47 No.4548787 Report
->>4548758 I WILL HIDE THE THREAD GRRRRRRRR
-
-Finally someone intelligent.
-Anonymous Thu 18 Feb 2010 06:40:47 No.4548810 Report
-Quoted By: >>4548825
-I'll report the thread again and see if you get banned AGAIN
-Gamlin !Xb1uRYUg66 Thu 18 Feb 2010 06:41:47 No.4548819 Report
-Quoted By: >>4548832
-Wow, the faggot is back again.
-Anonymous Thu 18 Feb 2010 06:42:47 No.4548825 Report
-Quoted By: >>4550876
->>4548810
-Report what? Nothing in the rules about RP threads.
-Anonymous Thu 18 Feb 2010 06:43:47 No.4548832 Report
->>4548819
-Think we can get him banned for false reports?
-Lord Guilford !UuMJgvNa0Y Thu 18 Feb 2010 06:43:47 No.4548833 Report
->>4548709
-LoGH threads should not be allowed they only involve people with an interest in LoGH.
-Stealthyboy !fchRKomfls Thu 18 Feb 2010 06:44:47 No.4548838 Report
-Replying to the troll causes thread 12.
-Don't make thread 20 into thread 12.
-Anonymous Thu 18 Feb 2010 06:48:47 No.4548860 Report
-Quoted By: >>4548967
->>4546141
-hey Sciencegar Sciencebolt
-which SRW is your pict refering too?
-Raioh with boobs.. looks interesting
-View SameGoogleiqdbSauceNAO 3-4.jpg, 33KiB, 422x259
-Anonymous Thu 18 Feb 2010 06:49:47 No.4548865 Report
-By the way, now that we have Wodan I am going to have to vote for anything that might unlock the hidden scenario of Two Samurai, One Horse. mechs optional
-Gamlin !Xb1uRYUg66 Thu 18 Feb 2010 06:49:47 No.4548867 Report
-Quoted By: >>4548879
-For the purposes of this quest do you guys think any Huckebein would machine cell into a Bergelmir? Cause it wouldn't be too odd for the Earth cradle to carry one of them.
-Stealthyboy !fchRKomfls Thu 18 Feb 2010 06:51:47 No.4548879 Report
->>4548867
-I think the more likely option is that the Moon Cradle guys just somehow got their hands on one of the OGsiders Huckey MkII M's.
-Anonymous Thu 18 Feb 2010 07:08:47 No.4548967 Report
->>4548860
-It's referring to this quest.
-Anonymous Thu 18 Feb 2010 07:51:47 No.4549197 Report
-JESUS CHRIST. WODAN YMIR KICKED MY ASS.
-Anonymous Thu 18 Feb 2010 07:54:47 No.4549215 Report
-Quoted By: >>4549236 >>4549246
-Sooo... Did Sciencegar get temp-banned again or what?
-Anonymous Thu 18 Feb 2010 07:57:47 No.4549236 Report
->>4549215
-Didn't you know?
-
-His mom caught him masturbatin to Katina porn. He can't get into the PC for a month.
-Anonymous Thu 18 Feb 2010 07:58:47 No.4549246 Report
-Quoted By: >>4549257
->>4549215
-I think the temp ban is still in effect
-Stealthyboy !fchRKomfls Thu 18 Feb 2010 08:01:47 No.4549257 Report
->>4549246
-Even if it wasn't, Sciencegar usually doesn't post at this time of the day. I think it's night in his timezone.
-Anonymous Thu 18 Feb 2010 08:35:47 No.4549466 Report
-Bumpity bump bump.
-Anonymous Thu 18 Feb 2010 09:11:47 No.4549742 Report
-Quoted By: >>4549755
-Who wins in a fight between Sanger in the Dygenguar and Wodan in the Thrudgelmir?
-Gamlin !Xb1uRYUg66 Thu 18 Feb 2010 09:13:47 No.4549755 Report
-Quoted By: >>4549763 >>4549775
->>4549742
-
-If the Thrud loses HP regen, then Sanger wins.
-
-Ever play OG2?
-Sanger Zombolt! Thu 18 Feb 2010 09:14:47 No.4549763 Report
->>4549755
-But then again, Sanger MADE Wodan lose his HP regen. Sanger wins anyway.
-Anonymous Thu 18 Feb 2010 09:15:47 No.4549775 Report
-Quoted By: >>4549804
->>4549755
-No. I have never played that game. I only heard of Wodan being a clone of Sanger, but nothing else.
-
-What happens in that fight?
-View SameGoogleiqdbSauceNAO 9-8.jpg, 101KiB, 400x400
-Anonymous Thu 18 Feb 2010 09:20:47 No.4549804 Report
->>4549775
-It's been awhile since I took the Earth Cradle route, but basically Sanger smacked the control mechanism for the Machine Cells hard enough to temporarily make them quit and then kicked the crap out of Wodan. It was a close fight and Sanger didn't exactly make it out unharmed.
-
-Of course, if Sanger has all his buddies with him and they gang up on Wodan he doesn't stand a chance. HP Regen doesn't do much for you when you just got shot into the sun. Sanger's too honourable to let that happen when he can have MANLY DUEL, but still.
-Anonymous Thu 18 Feb 2010 09:27:47 No.4549853 Report
-Quoted By: >>4549867 >>4550076
-A better question is who would win in a fight between Wodan in the Thrud and Sanger in the Thrud.
-Stealthyboy !fchRKomfls Thu 18 Feb 2010 09:30:47 No.4549867 Report
-Quoted By: >>4550501
->>4549853
-They would fight for all eternity.
-Anonymous Thu 18 Feb 2010 09:43:47 No.4549952 Report
-*yawn*
-Anonymous Thu 18 Feb 2010 10:07:47 No.4550076 Report
-Quoted By: >>4550501
->>4549853
-It's obvious Sanger would win. He was much more difficult to beat in Alpha Gaiden than Wodan.
-Anonymous Thu 18 Feb 2010 11:09:47 No.4550349 Report
-SANCHKI TAOSUMINA KIATNATARIN
-Stealthyboy !fchRKomfls Thu 18 Feb 2010 11:09:47 No.4550351 Report
-Bump cause this thread better still be here when I get back from Uni.
-Anonymous Thu 18 Feb 2010 11:40:47 No.4550488 Report
-bump
-Ratsel Feinschmecker !VFYL66iWMA Thu 18 Feb 2010 11:44:47 No.4550501 Report
->>4549867
-Eventually, Ausenseiter will show up to assist, and the simple sound of Trombe! will enable Sanger to win.
-
->>4550076
-I second that notion.
-Rick Dominated Thu 18 Feb 2010 11:46:47 No.4550508 Report
-Hmmmmmm, don't like this.
-Both him and Russian Decepticon make quest updates then fall off the map.
-Maybe a mod has taken offense?
-Might be time to pack up and head to /tg/ if that's the case then.
-Anonymous Thu 18 Feb 2010 14:17:47 No.4550876 Report
-Quoted By: >>4550881
->>4548825
-RPs are against the rules, You can ask your buddy Siencegar who recently got banned but its obviously BANEVASION
-Anonymous Thu 18 Feb 2010 14:20:47 No.4550881 Report
->>4550876
-whine harder, maybe someone will give a fuck
-Anonymous Thu 18 Feb 2010 14:33:47 No.4550897 Report
-Bump
-Sciencegar Sciencebolt Thu 18 Feb 2010 14:36:47 No.4550905 Report
-This is a test.
-Sciencegar Sciencebolt Thu 18 Feb 2010 14:37:47 No.4550907 Report
-SRWQ
-Ok, lets do this thing
-Sciencegar Sciencebolt Thu 18 Feb 2010 14:38:47 No.4550911 Report
-Quoted By: >>4550913
 "-The fuck??" A random mechanic exclaims, looking on in shock as the Raubtiers melted engine housing reinflates, the parts inside reconfiguring into a working engine once more. Simultaneously, the new white paintjob is covered over by a matte black finish.
 
-"Wo-ho!! Awesome!" you shout. "Dr., are your Cell things doing that?"
+"Wo-ho!! Awesome!" you shout. "Dr. Nate, are your Cell things doing that?"
 
 Dr. Nate nods. "It appears your mech was exposed during the Thrudgelmirs deployment. Unlike Wodan's unit, they must have had data on it's type, and are able to restore it to its original form."
 
@@ -346,17 +20,12 @@ Dr. Nate nods. "It appears your mech was exposed during the Thrudgelmirs deploym
 
 Dr. Nate turns and looks at you, rather intently, and for a moment you think can see wierd lights in her eyes. Then she blinks, and shakes her head. "The cells didn't affect you. Their safeties were still intact. We made sure to program them to only operate on organic life when specifically ordered to."
 
-"Aw...I kinda wanted to see if I'd grow claws or laser eyes or something."
+"Aw... I kinda wanted to see if I'd grow claws or laser eyes or something."
 
 "...We're at the dawn of a new science and we don't fully comprehend the implications yes. I intend to avoid using the Machine Cells until I have a better idea of what they can do."
 
-WILDRAUBTIER WAS RESTORED TO STEALTHRAUBTIER.
-BSRaven !!pZhu/eJf6iW Thu 18 Feb 2010 14:40:47 No.4550913 Report
->>4550911
-Demand that RaiOh get tested on.
+---
 
-Because, after all, it's the machine we are most awesome in.
-Sciencegar Sciencebolt Thu 18 Feb 2010 14:47:47 No.4550926 Report
 "Wolf 1, what is your status?
 
 "I feel great, only got vaporised once. Shit's gotten bad though."
@@ -372,24 +41,21 @@ Sciencegar Sciencebolt Thu 18 Feb 2010 14:47:47 No.4550926 Report
 The High Speaker grunted over the comm. "We can't afford to do that. We're sending the Hagane, and the Tsentr Project flotilla."
 
 Albero Est grinned. "Oh goody. A family reunion."
-Sciencegar Sciencebolt Thu 18 Feb 2010 14:49:47 No.4550929 Report
->>4547590
 
-There are justifications for both these things. Check back a few threads, there are hints.
-Sciencegar Sciencebolt Thu 18 Feb 2010 14:59:47 No.4550953 Report
+---
+
 "I'm not happy with all of this..." Ryuune says as she pulls you into a corner with the rest of the pilots.
 
 "What? Aren't the regenerating death-robots up to your discerning standards?"
 
-"Look...in our timeline, that guy in the Thrudgelmir was one of our most dangerous enemies, and nearly killed us all on more than one occasion. She was used by...well, the Shadow Mirrors, as a brutally effective weapon, and....well, Masaki and me weren't actually there at the final fight with him, but he, and his buddies were a big deal."
+"Look... in our timeline, that guy in the Thrudgelmir was one of our most dangerous enemies, and nearly killed us all on more than one occasion. She was used by...  well, the Shadow Mirrors, as a brutally effective weapon, and... well, Masaki and me weren't actually there at the final fight with him, but he, and his buddies were a big deal."
 
 "So? We're the Shadow Mirrors this time, and that means he works for us."
 
-Lamia cuts in. "That's W-14, one of the more loyal W-Series. His circuits require he be...dedicated to one individual, which seems to be this Dr. Nate so far, but as long as we're on her side it should be fine."
+Lamia cuts in. "That's W-14, one of the more loyal W-Series. His circuits require he be... dedicated to one individual, which seems to be this Dr. Nate so far, but as long as we're on her side it should be fine."
 
-Ryuune folds her arms. "I....I just have a bad feeling, is all. About them, and her."
-Sciencegar Sciencebolt Thu 18 Feb 2010 15:06:47 No.4550965 Report
-Quoted By: >>4551112
+Ryuune folds her arms. "I... I just have a bad feeling, is all. About them, and her."
+
 Masaki rubs his chin. "I suppose in this world we have no way of knowing whether the Earth Cradle guys are friend or foe..."
 
 "See Ryuune, your man isn't all suspiciou-"
@@ -400,56 +66,14 @@ Masaki rubs his chin. "I suppose in this world we have no way of knowing whether
 
 Ryuune frowns. "Wait, what did you call him?"
 
-Masaki continues, oblivious. "And that Cynthia girl...I can't be sure but I think I've seen here before."
+Masaki continues, oblivious. "And that Cynthia girl... I can't be sure but I think I've seen here before."
 
 "You've seen lots of people before. You said there were counterparts for most of our friends on our team."
 
 "...I dunno, maybe I am reading too much into it."
 
-WHO WILL KATINA DISCUSS THINGS WITH?
+---
 
-Two conversations to base.
-Anonymous Thu 18 Feb 2010 15:08:47 No.4550971 Report
-Talk with the OGversers. Ask questions about Arado-kun and about if you have your own clone, so neither of you can be virgins.
-
-Then get a little more serious and go fangirl on the earth cradle people, insisting to get some machine cells in your raioh.
-Anonymous Thu 18 Feb 2010 15:12:47 No.4550978 Report
-Quoted By: >>4551000
->That's W-14, one of the more loyal W-Series.
-
-Wodan is W-15.
-Sciencegar Sciencebolt Thu 18 Feb 2010 15:28:47 No.4551000 Report
-Quoted By: >>4551008
->>4550978
-
-Brain-fart, sorry. Got him confused with Echidna.
-Anonymous Thu 18 Feb 2010 15:35:47 No.4551008 Report
-Quoted By: >>4551009
->>4551000
-Echidna is W-16
-Sciencegar Sciencebolt Thu 18 Feb 2010 15:35:47 No.4551009 Report
->>4551008
-
-GODDAMIT I'M ONLY HUMAN
-Anonymous Thu 18 Feb 2010 16:40:47 No.4551112 Report
-Quoted By: >>4551169 >>4551200 >>4551253
->>4550965
->WHO WILL KATINA DISCUSS THINGS WITH?
-
-Need to talk to Kai about tentacle cry wolf gespenst.
-Lord Guilford !UuMJgvNa0Y Thu 18 Feb 2010 17:06:47 No.4551169 Report
->>4551112
-That's when we get home.
-
-On the way, let's bug the OG guys a little and if they seem reticent, go ask for Machine Cell Raioh.
-Anonymous Thu 18 Feb 2010 17:14:47 No.4551200 Report
->>4551112
-This, it's about time we talked to him.
-Anonymous Thu 18 Feb 2010 17:30:47 No.4551253 Report
->>4551112
-Thirded
-Sciencegar Sciencebolt Thu 18 Feb 2010 18:25:47 No.4551403 Report
-Quoted By: >>4551407
 "Man, can't this thing go any faster? I wanna talk to Kai about stuff!!"
 
 Lamia shrugs. "We can't, we'll just leave Wodan behind. The EFA might be shadowing us, we can't leave him vunerable."
@@ -462,22 +86,6 @@ She shrugs again, in a forced way, as if she's not used to making the motion. "I
 
 Another forced shrug.
 
-WHO SHALL WE TRY NEXT?
-BSRaven !!pZhu/eJf6iW Thu 18 Feb 2010 18:26:47 No.4551407 Report
-Quoted By: >>4551408
->>4551403
-Do we still have OG Arado with us?
-
-If yes, torment through comms.
-BSRaven !!pZhu/eJf6iW Thu 18 Feb 2010 18:27:47 No.4551408 Report
->>4551407
-Oh wait, we're back on the ship.
-
-If he's on the ship, torment in person. If not, torment through long-distance comms, EFA be damned.
-Anonymous Thu 18 Feb 2010 18:50:47 No.4551470 Report
-Speak to Lamia for the first conversation, then go chat up Latooni a bit.
-Sciencegar Sciencebolt Thu 18 Feb 2010 19:59:47 No.4551714 Report
-Quoted By: >>4551721 >>4551726 >>4551769
 "Just how bad is this jamming, anyway? Can we contact the base if we gain some hieght?"
 
 Lamia shakes her head, again stiffly. "The jamming is so bad that our internal comms won't even work. Radio waves across the whole north of Africa are being thrown out of whack. Only laser comms are working and they're LOS only. To get a view of the base, we'd have to practically break atmo."
@@ -492,96 +100,21 @@ Lamia cocks an eyebrow. "How, exactly?"
 
 "Never underestimate my ingenuity?"
 
-CONTINUE TALKING TO LAMIA OR FIND SOMEONE ELSE?
-Anonymous Thu 18 Feb 2010 20:01:47 No.4551719 Report
-Talk to Sophia about her Machine Cell stuff and how she made it. Ask what her plans are now. Maybe we can convince Lune she's not suspicious, since I'd really not like to lose Lune and Masaki.
-Stealthyboy !fchRKomfls Thu 18 Feb 2010 20:02:47 No.4551721 Report
->>4551714
->"Oh well, I guess I'll have to amuse my self for an hour or two..."
+---
 
-Sciencegar! Stop putting these sexy images into my head!
-
-And go talk to Lat now.
-BSRaven !!pZhu/eJf6iW Thu 18 Feb 2010 20:03:47 No.4551726 Report
-Quoted By: >>4551743 >>4551747
->>4551714
-Did we ever get to... help Lamia 'understand' her body a bit, earlier on? (Waaaaaaay too much tl;dr going on for me to read whatever I missed).
-
-If yes, disregard. If no, get on with it.
-Anonymous Thu 18 Feb 2010 20:06:47 No.4551738 Report
-Let's go chat to Latooni.
-View SameGoogleiqdbSauceNAO RmF_WilyEyebrow.gif, 1KiB, 50x50
-Stealthyboy !fchRKomfls Thu 18 Feb 2010 20:07:47 No.4551743 Report
->>4551726
-No, we never did that.
-Nice idea though...
-Sciencegar Sciencebolt Thu 18 Feb 2010 20:08:47 No.4551747 Report
->>4551726
-
-Not yet...
-Anonymous Thu 18 Feb 2010 20:12:47 No.4551759 Report
-Quoted By: >>4551766
-Why are we talking to Lat? She doesn't really know much more than we do.
-Stealthyboy !fchRKomfls Thu 18 Feb 2010 20:14:47 No.4551766 Report
->>4551759
-I think it's less plot development reasons, more that we've finally seen a little crack in her facade.
-Sanger Zombolt! Thu 18 Feb 2010 20:14:47 No.4551769 Report
-Quoted By: >>4551797
->>4551714
->New quest objective: destroy those satellites.
-
-Anyway, talk with Sophia. Use your school training in conversation to see if there is something wrong with her. But make it incredibly subtle. We don't want to make her feel persecuted if she tunrs out not to be evil.
-Sciencegar Sciencebolt Thu 18 Feb 2010 20:21:47 No.4551797 Report
-Quoted By: >>4551806 >>4551808
->>4551769
-
-What's the quest objective list looking like by now? I've been too busy keeping track of your dramatis personae and mech complement.
-Sanger Zombolt! Thu 18 Feb 2010 20:23:47 No.4551806 Report
-Quoted By: >>4551820
->>4551797
->Neo Grungust.
-
->Satelites.
-
->Find a way to unlock Raioh's true potential.
-
->Learn who Dumi is and know what he wanted us to see.
-Stealthyboy !fchRKomfls Thu 18 Feb 2010 20:23:47 No.4551808 Report
->>4551797
-Forcing Arado into crossdressing's up there, that's all I can remember.
-Anonymous Thu 18 Feb 2010 20:28:47 No.4551820 Report
-Quoted By: >>4551825
->>4551806
->Talk to Shu, find out what he wants and his plans
-
->Talk to everyone suspicious, find out what they want and try to figure out if we can trust them
-
-If we want more trust in the group we need to stop thinking with our dicks for the ten posts it would take to work out some of this suspicion going around.
-Stealthyboy !fchRKomfls Thu 18 Feb 2010 20:30:47 No.4551825 Report
-Quoted By: >>4551839
->>4551820
-I'm still counting Kusuha as suspicious by the way.
-Just because she's the oppai lady doesn't mean I trust her.
-Anonymous Thu 18 Feb 2010 20:34:47 No.4551839 Report
->>4551825
-That reminds me we need to get her drunk again, when she's drunk she's easy.
-Stealthyboy !fchRKomfls Thu 18 Feb 2010 20:35:47 No.4551842 Report
-Also I say we need to check on Shine again sometime. I don't want to take the risk that the little bitch has escaped, especially with that guard being as naive as he was.
-Sciencegar Sciencebolt Thu 18 Feb 2010 21:04:47 No.4551927 Report
-Quoted By: >>4551935 >>4551994 >>4552116
 You find Latooni in the hangar, peering up at the gangly-looking Bergelmir intently.
 
 "So, what was it like down in that scary ol' cave?"
 
 "The interior of the Earth Cradle was exactly as I expected it, a burned-out ruin of melted metal. The only unusual element was the Magus System that Dr. Nate was sheltering in."
 
-"'Kay...Wait, why was she hiding in a computer?"
+"'Kay... Wait, why was she hiding in a computer?"
 
 "She didn't say, but its a safe extrapolation of the Machine Cells observed abilities that she's connected to it somehow. Hence why Wodan Ymir refers to them synonymously."
 
 "...Right. So, what do you think of this whole Machine Cell business?"
 
-"....It's dangerous."
+"...It's dangerous."
 
 "Oh-ho, really?"
 
