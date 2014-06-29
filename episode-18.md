@@ -1,5 +1,8 @@
+# Episode 18
 
-SRWQ Mission 18: It's Legal now.
+## SHADOW MIRROR QUEST (AKA SRW Q)
+
+###SRWQ Mission 18: It's Legal now.
 Sciencegar Sciencebolt Mon 15 Feb 2010 20:53:07 No.4535326 ViewReplyOriginalReport
 Quoted By: >>4536694
 Last thread seems to have dropped off page 10 overnight, but no big loss.

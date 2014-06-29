@@ -1,5 +1,8 @@
+# Episode 20
 
-SRWQ Mission 20: Lets hope that was a temporary hiccup.
+## SHADOW MIRROR QUEST (AKA SRW Q)
+
+###SRWQ Mission 20: Lets hope that was a temporary hiccup.
 Sciencegar Sciencebolt Wed 17 Feb 2010 23:02:47 No.4546141 ViewReplyOriginalReport
 Quoted By: >>4548860
 For previous threads, google Team Phantom Tiger (thanks again Haken Browning).
