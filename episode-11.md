@@ -4,7 +4,7 @@
 
 ###SRWQ Mission 11: Now we're officially weeaboo
 
-After a short break to cover the misadventures around TLI, we return to the Shadow Mirror version of Katina Tarask, as she heads with her new-found friends to Brazil, on the trail of Vindel Mauser and his Zweizergain, which is reallt in demand right now.
+After a short break to cover the misadventures around TLI, we return to the Shadow Mirror version of Katina Tarask, as she heads with her new-found friends to Brazil, on the trail of Vindel Mauser and his Zweizergain, which is really in demand right now.
 
 ####Roster:
 
@@ -13,10 +13,10 @@ After a short break to cover the misadventures around TLI, we return to the Shad
 - Irm, the theoretical leader of this band of misfits, piloting a Gespenst because there was no room for our Grungust-tank in the Trilobite.
 - Kai, has pretty much supplanted Irm as leader even though his true allegiance is unknown. Trying to convert a spare Gespenst into something more impressive.
 - Russel: An irish spy for the Shadow Mirrors. Puts up with Katina more than most on the ship. Piloting a Gespenst with Blade Tonfas.
-- Latooni, a cold calculating girl who has defected from the EFA apparently to challenge herself. Piloting the Soldifar, a wierd Real Robot produced by a european company called Freemont Industries and used by the Earth's Liberation Front.
+- Latooni, a cold calculating girl who has defected from the EFA apparently to challenge herself. Piloting the Soldifar, a weird Real Robot produced by a European company called Freemont Industries and used by the Earth's Liberation Front.
 - Arado: One of the pilots from the other universe, come to stop Vindel Mauser from leading Dark Brain to their universe. Resembles one of Katinas old friends, causing issues. Has been entrusted with a Guarlion Custom.
 - Ibis Douglas: A young woman who only joined the Shadow Mirror to find a friend of hers. Loves guns of all sizes, on both her mechs and her own person. Piloting a Schutzwald, but is holding out for something with more dakka.
-- Echidna Iasakki: A cold woman in charge of the W-series, a set of wierd pods that apparently hold reconstructed pilots loyal to Shadow Mirror. Pilots a Rathgrith.
+- Echidna Iasakki: A cold woman in charge of the W-series, a set of weird pods that apparently hold reconstructed pilots loyal to Shadow Mirror. Pilots a Rathgrith.
 - ????: The group is still a pilot short for the WildRaubtier they captured from the EFA. Echidna says she can sort this out, given time.
 
 ####ACTUAL CONTENT TO FOLLOW
@@ -41,7 +41,7 @@ Irm rushes to the bridge, with you hot on his heels.
 
 "...Once we got clear of the central US, we didn't run into any more trouble, but its possible the EFA are still tracking us. With all these wounded here, we'd prefer an escort if possible."
 
-Irm nods at Axel's report. "Right. We're not far from Brasilia now, so we can send some of our people ahead and prepare our outpost to recieve the wounded, while we link up with you and return."
+Irm nods at Axel's report. "Right. We're not far from Brasilia now, so we can send some of our people ahead and prepare our outpost to receive the wounded, while we link up with you and return."
 
 Latooni nods. "A viable strategy. I shall have to go to Brasilia, I'm the only one who knows the people running the outpost. But I'll need an escort for safety."
 
@@ -53,7 +53,7 @@ You pipe up. "Ugh, I just had a thought. Isn't it nearly Lent?"
 
 "....Yyyyeeeeesss. So?"
 
-"Well... doesn't that mean its Mardi Gras season?"
+"Well... doesn't that mean its Mardi Gra's season?"
 
 Irm facepalms hard.
 
@@ -71,9 +71,9 @@ Latooni frowns at you. "That would most likely be an incredible waste of time."
 
 Latooni sighs and walks off, leading the two of you into the city.
 
-Dodging samba dancers, dodgy food stalls, and wayward drunken revellers, you eventually arrive at a non-descript office building on the outskirts of one of the nicer districts. The building obviously has tenants, being intruigingly furnished from what you see in the windows, but there are no signs of life and no answers from the doorbell.
+Dodging samba dancers, dodgy food stalls, and wayward drunken revellers, you eventually arrive at a non-descript office building on the outskirts of one of the nicer districts. The building obviously has tenants, being intriguingly furnished from what you see in the windows, but there are no signs of life and no answers from the doorbell.
 
-Latooni sighs. "They should be more responsible than this. They must not even realise what happened yesterday, to be going off like this."
+Latooni sighs. "They should be more responsible than this. They must not even realize what happened yesterday, to be going off like this."
 
 "Oh well, nothing else for it, we'll just have to brave the crowds. Better get started, its nearly nighttime."
 
@@ -111,7 +111,7 @@ Ryuune turns to you as you run over, and her face twists in confusion as to what
 
 "Er... you have the wrong person." She says in the same accent and diction as the DC leader. "I... I just have one of those faces, I guess. Now if you'll excuse me, I have someone to find." She turns on her heel and jogs off without another word.
 
-Kai comes up to you. "If that's our Ryuune Zoldark, then I'm got three eyeballs under this patch. That must be the other version, they mentioned they were missing some of thier number. We have to see what her story is!"
+Kai comes up to you. "If that's our Ryuune Zoldark, then I'm got three eyeballs under this patch. That must be the other version, they mentioned they were missing some of their number. We have to see what her story is!"
 
 ---
 ```
@@ -132,7 +132,7 @@ She runs much faster than someone wearing those kinds of shoes should be able to
 
 "Katina , that's *puff* not the sort of thing *puff* you shout on the street!"
 
-You chase Ryuune into a small park, filled with floats and other paraphenalia for the parade later tonight. She comes to a halt near a large float, of a giant woman in wierd white armor. You flop up to her, gasping for breath.
+You chase Ryuune into a small park, filled with floats and other paraphernalia for the parade later tonight. She comes to a halt near a large float, of a giant woman in weird white armor. You flop up to her, gasping for breath.
 
 "Okay, who the hell are you? How do you know about me? And what do you want?"
 
@@ -164,7 +164,7 @@ Kai comes up to the two of you. "Please excuse Katina, she has difficulties when
 
 "Can I talk to Arado now?"
 
-"He's currently on our battleship, which is rendevousing with some friends of ours off the coast."
+"He's currently on our battleship, which is rendezvousing with some friends of ours off the coast."
 
 You dry your eyes and pipe up. "I wanted to bring him along, but when I suggested he buy me some beads he ran and hid in a closet."
 
