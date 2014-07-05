@@ -22,3 +22,15 @@ episode-17.md
 episode-18.md
 episode-19.md
 episode-20.md
+episode-21.md
+episode-22.md
+episode-22a.md
+episode-23.md
+episode-23a.md
+episode-24.md
+episode-25.md
+episode-26.md
+episode-27.md
+episode-28.md
+episode-29.md
+episode-30.md
