@@ -1,22 +1,14 @@
-Archives: [ a / biz / c / co / diy / gd / int / jp / m / out / po / q / sci / sp / tg / tv / vg / vp / vr / wsg ] Boards: [ dev / foolz / neet ]
- /m/ - Mecha  
-4chan ?
-Index
- 
-Ghost
-Gallery
-Stats
- 
- 
- 7KiB, 223x130, SMShuu.jpg 
-View SameGoogleiqdbSauceNAO? 
-SRWQ Mission 21: Now we can get drunk for reals Sciencegar Sciencebolt Fri 19 Feb 2010 15:05:12 No.4555698 ViewReplyOriginalReport 
- Quoted By: >>4557270 
->>4558889 
- For previous threads, check out Haken Brownings site, Team Phantom Tiger.
+# Episode 21
 
- When last we left our brave adventurers, they had just retrieved Dr. Sophia Nate and her Machine-Cell infected fellows from the Earth Cradle, while seeing off the attentions of the Cry Wolves. In the battle, Katina discovered that the Cry Wolves leader was some kind of organic monster, and interrogated former Cry Wolves leader Kai Kitamura. He revealed the two-fold conspiracy in the EFAs upper echelon, the bio-aliens of the Council of the First and Only, and the hyper-secretive, high-tech School-trained warriors of Project SRX. Kai explained that the only hope for the Shadow Mirror world was to start a civil war between the two sides, and the only people who could do this were the Irregulars from the OG Universe... Sciencegar Sciencebolt Fri 19 Feb 2010 15:24:12 No.4555742 Report 
- Irm grimaces. "So, we just hand in our favor to Van Vat Tran, ask him to falsify the Dimensional Scanner results, and send the Irregulars, who're supposed to be our allies, into the deathtrap of Geneva, full of unkillable alien monstrosities? That's the plan?"
+## SHADOW MIRROR QUEST (AKA SRW Q)
+
+###SRWQ Mission 21: Now we can get drunk for reals 
+
+When last we left our brave adventurers, they had just retrieved Dr. Sophia Nate and her Machine-Cell infected fellows from the Earth Cradle, while seeing off the attentions of the Cry Wolves. In the battle, Katina discovered that the Cry Wolves leader was some kind of organic monster, and interrogated former Cry Wolves leader Kai Kitamura. He revealed the two-fold conspiracy in the EFAs upper echelon, the bio-aliens of the Council of the First and Only, and the hyper-secretive, high-tech School-trained warriors of Project SRX. Kai explained that the only hope for the Shadow Mirror world was to start a civil war between the two sides, and the only people who could do this were the Irregulars from the OG Universe... 
+
+---
+
+Irm grimaces. "So, we just hand in our favor to Van Vat Tran, ask him to falsify the Dimensional Scanner results, and send the Irregulars, who're supposed to be our allies, into the deathtrap of Geneva, full of unkillable alien monstrosities? That's the plan?"
 
 Kai nods. "I know it doesn't sound like a very nice thing to do, but its the only way we're going to fix our world. With most of the Shadow Mirrors gone, the ELF on its last legs and the DC basically being kept alive as an excuse for all the military funding, the EFA has to go, or at least change massively."
 
