@@ -24,7 +24,6 @@ episode-19.md
 episode-20.md
 episode-21.md
 episode-22.md
-episode-22a.md
 episode-23.md
 episode-23a.md
 episode-24.md
