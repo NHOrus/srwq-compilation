@@ -17,38 +17,25 @@ Kai nods. "I know it doesn't sound like a very nice thing to do, but its the onl
 You break in through the tension. "Look, why don't we at least see what the alien scanner says first? Thay way, if we can detect Vindel with it, we'll know where he is, and we'll have a few spots to point to that we can say to the Irregulars 'Hey, its over there!' Then we can go on ourselves and find the Colonel while they 'eliminate' the other options."
 
 Irm looks at you, then nods. "I'll agree to hold off on a desicion until we see what the results are." 
-Sciencegar Sciencebolt Fri 19 Feb 2010 15:32:12 No.4555753 Report 
- "Sorry sir, but Vat Tran's in a meeting right now."
+
+---
+
+"Sorry sir, but Vat Tran's in a meeting right now."
 
 Irm looks genuinely angry at this. "What? We're the ones who found those scientists for him, the least he can do is let us sit in on the meeting!"
 
 "I'm sorry sir, I have my orders. Vat Tran explicitly said this was a DC matter."
 
-Irm looks like he's about to protest some more, but then grunts and turns to you. "Well, guess we're stuck for a while. I'll wait here for Vat Tran to show his face. You....I dunno, I'm sure you can find something to do."
+Irm looks like he's about to protest some more, but then grunts and turns to you. "Well, guess we're stuck for a while. I'll wait here for Vat Tran to show his face. You... I dunno, I'm sure you can find something to do."
 
 You grin slightly. 
 
 "But keep what we discussed on the quiet, we haven't made any decisions yet so its best to keep everything under wraps, even from the others."
 
-WHAT SHALL KATINA DO NOW? 
-Anonymous Fri 19 Feb 2010 15:36:12 No.4555762 Report 
- Have a moment of normal-ness and with your incredible normal thinking, decide that you need a good rest for the rest of the day. 
-SEED D Cagalli !!U5xc0wG3iH0 Fri 19 Feb 2010 15:44:12 No.4555773 Report 
- Yes, relative normalness.
 
-You know what would be good? Talking with Arado and trying to make him feel more comfortable around us. Then afterwards we work on the dress. 
-Anonymous Fri 19 Feb 2010 16:11:12 No.4555795 Report 
- Quoted By: >>4556073 
- Lets get drunk for reals. Because according to Sciencegar we can. 
-Anonymous Fri 19 Feb 2010 16:37:12 No.4555829 Report 
->Report submitted! This window will close in 5 seconds... 
-Lord Guilford !UuMJgvNa0Y Fri 19 Feb 2010 18:01:12 No.4556045 Report 
- Harass Arado, but not too psychotically. Like, maybe a terrifying face that quickly melts into dere-dere mode. Then try and act stable around him. 
-Sciencegar Sciencebolt Fri 19 Feb 2010 18:01:12 No.4556047 Report 
- Quoted By: >>4556062 
->>4556259 
->>4556298 
- It's now after midnight, and you only caught a quick cat-nap since the events in Brazil, so you head to your bunk to get yourself fresh for the morning.
+---
+
+It's now after midnight, and you only caught a quick cat-nap since the events in Brazil, so you head to your bunk to get yourself fresh for the morning.
 
 Your rest is willed with odd dreams, of metal men and tentacle monsters, some terrifying, some strangely erotic...
 
@@ -60,80 +47,7 @@ You race to the hangar and find most of the crew already deploying. Arado flies 
 
 Then the sky lights up, and a massive shudder passes through the world. You and almost everyone else are knocked to the floor, equipment flying everywhere. The Bergelmir stumbles against the wall of the ship.
 
-WHAT DO YOU DO? 
-Lord Guilford !UuMJgvNa0Y Fri 19 Feb 2010 18:05:12 No.4556062 Report 
- Quoted By: >>4556259 
->>4556298 
->>4556047
-Well we need a mech.
-
-And out backup StealthRaubtier is without a pilot.
-
-So whatever Mr. Starlord's complaint is, he can stuff it while we fly around and shoot things. 
-dorkly chair of the institute for space politics Fri 19 Feb 2010 18:09:12 No.4556073 Report 
->>4555795
-Shit I _have_ been. That's an important part of my creative process. 
-Anonymous Fri 19 Feb 2010 18:14:12 No.4556093 Report 
- Quoted By: >>4556116 
->>4556123 
->>4556128 
- Can we please explain how this is /m/? Seriously, we never focus on the machines, it's all about how many people we can get our mary sue version of Katina to fuck. 
-SEED D Cagalli !!U5xc0wG3iH0 Fri 19 Feb 2010 18:20:12 No.4556116 Report 
- Quoted By: >>4556128 
->>4556135 
->>4556093
-
->Implying we did not develop a new Grungust design 
-Sciencegar Sciencebolt Fri 19 Feb 2010 18:22:12 No.4556123 Report 
- Quoted By: >>4556128 
->>4556135 
->>4556093
-
-And yet the closest Katina has gotten to scoring is feeling up Kusuha, while there have been two dozen epic mech battles. 
-Haken Browning !zHe7DH816A Fri 19 Feb 2010 18:23:12 No.4556128 Report 
->>4556093
->>4556116
->>4556123
-Also, EPIC POLITICS. Nice to get an idea of the forces behind Shadow Mirror no sekai's condition. 
-Anonymous Fri 19 Feb 2010 18:27:12 No.4556135 Report 
- Quoted By: >>4556237 
->>4556116
->implying that peripherally featuring mech stuff makes it /m/ even though all of the discussion is about who we should try to persue sexually
->>4556123
->implying that the fact that K hasn't actually done anything yet means that's not what people are here for 
-Haken Browning !zHe7DH816A Fri 19 Feb 2010 18:56:12 No.4556237 Report 
->>4556135
-This sort of thing is why the Elsewheres exist. As much as it's Katina's story (and especially as much as Katina's story revolves around unwanted sexual liasons), it's also the story of how the entire Shadow Mirror world reacts to things going NOT AS PLANNED.
-
-That reaction tends to be "continue killing shit with giant robots." 
-Anonymous Fri 19 Feb 2010 19:00:12 No.4556259 Report 
- Quoted By: >>4556298 
->>4556047
-
-So we can?t use the RaiOh?
-
-Then do like>>4556062 said.
-
-Use the Raubiter. 
-Haken Browning !zHe7DH816A Fri 19 Feb 2010 19:11:12 No.4556298 Report 
- Quoted By: >>4556320 
->>4556047
-...Oh, right, we have a choice that isn't part of the "visual novel" shenanigans.
-
-Thirding >>4556062 and 
->>4556259. If Lemonjuice can't zip it and get in the Raubtier, then WE will. 
-Anonymous Fri 19 Feb 2010 19:13:12 No.4556303 Report 
- After choosing a mech, it's probably a good idea to ask what the hell is going on.
-
-I mean, generally gigantic explosions with massive shockwaves are not good signs of anything, unless you're the one causing them. They better not be hurling nukes at us. 
-Anonymous Fri 19 Feb 2010 19:20:12 No.4556320 Report 
->>4556298
-I really wish all of our choices weren't part of the visual novel shenanigans. 
-Sciencegar Sciencebolt Fri 19 Feb 2010 19:53:12 No.4556473 Report 
- Quoted By: >>4556478 
->>4556500 
->>4556549 
- You hurriedly pick yourself up off the floor of the Trilobite and rush towards the black Raubtier, as Jayce gets to his feet.
+You hurriedly pick yourself up off the floor of the Trilobite and rush towards the black Raubtier, as Jayce gets to his feet.
 
 "Hey! I called dibs!"
 
@@ -147,163 +61,19 @@ Sciencegar Sciencebolt Fri 19 Feb 2010 19:53:12 No.4556473 Report
 
 You reach for the final ignition switch.
 
-There is another way, Katina.
+*There is another way, Katina.*
 
 "Dumi?"
 
-Cynthia, do you have some of those Machine Cells available right now?
+*Cynthia, do you have some of those Machine Cells available right now?*
 
 The Bergelmir turns to face the giant motorcycle. "Ugh, yeah, The Bergelmir stores a small amount of backup Cells. Why?"
 
-Katina, I'm detecting a Space Noah class vessel and multiple extremely powerful mecha being launched from it. A Raubtier isn't enough firepower to make a big difference in a battle like that. But if we use the Machine Cells to repair the RaiOh, we may stand a better chance.
+*Katina, I'm detecting a Space Noah class vessel and multiple extremely powerful mecha being launched from it. A Raubtier isn't enough firepower to make a big difference in a battle like that. But if we use the Machine Cells to repair the RaiOh, we may stand a better chance.*
 
-WHAT WILL KATINA DO? 
-Anonymous Fri 19 Feb 2010 19:55:12 No.4556478 Report 
->>4556473
-Raubtier. Don't fuck around with machine cells. 
-Anonymous Fri 19 Feb 2010 19:58:12 No.4556500 Report 
- Quoted By: >>4556544 
->>4556473
+"Are you sure that's a great idea, Dumi? It did quite a number on the Grungust Type-3, after all. The effect is cool and all, but I don't want Rai-Oh to mutate."
 
-Raubiter, Machine cells are BAD. I mean they are the DG-cells of SMverse/OGverse, And im pretty sure ending up brainwashed is bad. 
-Lord Guilford !UuMJgvNa0Y Fri 19 Feb 2010 19:58:12 No.4556501 Report 
- Quoted By: >>4556509 
->>4556529 
->>4556539 
- Fuck.
-
-I... don't know. On the one hand, MACHINE CELL RAIOH.
-
-On the other hand, shit might get fucked up. 
-View SameGoogleiqdbSauceNAO? rorschach.jpg,  188KiB, 750x534 
- 
-Anonymous Fri 19 Feb 2010 20:00:12 No.4556509 Report 
- Quoted By: >>4556827 
->>4556501
-Make correct choice, /m/. 
-Sciencegar Sciencebolt Fri 19 Feb 2010 20:05:12 No.4556529 Report 
- Quoted By: >>4556543 
->>4556501
-
-Shit is going to get fucked up either way, the difference is whose. 
-SEED D Cagalli !!U5xc0wG3iH0 Fri 19 Feb 2010 20:09:12 No.4556539 Report 
->>4556501
-
-This is a golden opportunity.
-
-If we Machine Cell up the Raioh AND use it responsibly, that might win over Sophia even more. If she sees that even an insane bisexual woman with shotacon problems, not exactly the most stable Shadow Mirrors member, can use Machine Cells in an overpowered weapon of death and not get drunk on power, she might start to side with the Shadow Mirrors over the DC.
-
-And we want that, don't we? 
-Anonymous Fri 19 Feb 2010 20:10:12 No.4556543 Report 
- Quoted By: >>4556548 
->>4556529
-
-Well, the Raubiter won't make much of an impact, but there are allies to rely on. Still, Katina and her buddies would be in considerable danger.
-
-On the other hand, a Machine Celled RaiOh could probably tear shit apart, but side-effects would probably put the rest of the team in even more trouble then they would be in if the Raubiter is sortied. 
-Sciencegar Sciencebolt Fri 19 Feb 2010 20:10:12 No.4556544 Report 
- Quoted By: >>4556558 
->>4556500
-
-You're already sitting in a machine that has Machine Cells, I should point out... 
-SEED D Cagalli !!U5xc0wG3iH0 Fri 19 Feb 2010 20:11:12 No.4556548 Report 
->>4556543
-
-If shit gets too serious with the Raioh, we ditch it for that shiny new Grungust NEO that Irm's dad is working on.
-
-Hey, we thought it up, it's our god-given right to get dibs on it! 
-Anonymous Fri 19 Feb 2010 20:11:12 No.4556549 Report 
->>4556473
-
-Oh fuck...
-
-We...We should machine cell Raioh. Right now the iron is hot due to the like civil war on EFA and other issues.
-I suggest we add more heat to the fire, GOOOOOOOOOO Machine cell Raioh. 
-Anonymous Fri 19 Feb 2010 20:14:12 No.4556558 Report 
->>4556544
-
-Then why not add more machine cells to the Raubiter instead in hope of it getting more firepower?
-
-Im getting a feeling that the Machine Cells might interfere with the LIOH feature. 
-Lord Guilford !UuMJgvNa0Y Fri 19 Feb 2010 20:14:12 No.4556560 Report 
- ...fuck it, MACHINE CELL THAT BITCH UP. I may not trust Dumi much, but it's worth a shot. 
-Sciencegar Sciencebolt Fri 19 Feb 2010 20:26:12 No.4556611 Report 
- Quoted By: >>4556615 
->>4556619 
->>4556621 
->>4556634 
->>4556695 
- "Are you sure that's a great idea, Dumi? It did quite a number on the Grungust Type-3, after all. The effect is cool and all, but I don't want Rai-Oh to mutate."
-
-I'll monitor the Machine Cells, and try to ensure they retain the Raiohs original form. I have the full schematics, so I should be able to program them to do repair rather than full transformation.
-
-IS THIS OK Y/N? 
-Haken Browning !zHe7DH816A Fri 19 Feb 2010 20:27:12 No.4556615 Report 
->>4556611
-*mashes Y key* 
-NuBlackAnon !!zy704HMg7tr Fri 19 Feb 2010 20:28:12 No.4556619 Report 
- Quoted By: >>4556631 
->>4556611
-SUPER RAI OH
-also, make the Machine Cells make the AI into a human(oid), so we can have the TRUE END route for Katina. The AI is the only one crazy enough for her anyway. 
-Anonymous Fri 19 Feb 2010 20:29:12 No.4556621 Report 
->>4556611
-
-YES!!!!!!!!!!!
-Fcuk Yeah!!!!!!!!!!!!! 
-Haken Browning !zHe7DH816A Fri 19 Feb 2010 20:31:12 No.4556631 Report 
- Quoted By: >>4556650 
->>4556619
-Humanoid Dumi? Don't know if want.
-
-On the one hand, it freezes our RVs with most everyone else. On the other hand, it makes it easier to pick Dumi's positronic brain and unlock the ancient secrets to DGG-03 and DGG-04's ultimate gattai as RaiXephOh. 
-Anonymous Fri 19 Feb 2010 20:31:12 No.4556634 Report 
->>4556611
-Yes!!! 
-Anonymous Fri 19 Feb 2010 20:32:12 No.4556637 Report 
- Quoted By: >>4556655 
- Well, this will not end well. Personally, I'm vouching for a catastrophe to happen. 
-Anonymous Fri 19 Feb 2010 20:34:12 No.4556644 Report 
- Actually act a bit reluctant, we don't want to seem like we're using the machine cells for our own benefit. Although no one can deny that we'll probably need the power for this fight. 
-NuBlackAnon !!zy704HMg7tr Fri 19 Feb 2010 20:36:12 No.4556650 Report 
- Quoted By: >>4556667 
->>4556631
-uh, Bike + Rider + Upgrade = RX bro. 
-Anonymous Fri 19 Feb 2010 20:38:12 No.4556655 Report 
- Quoted By: >>4556663 
->>4556637
-I agree, The RaiOh is a unstable enough machine as it is, that already pumps a shit ton of drugs into the pilots, if the Machine cells gets into the drug distribution then Katina would get pumped full of Machine Cells...
-
-But i hope that doesn?t happen. 
-Anonymous Fri 19 Feb 2010 20:40:12 No.4556663 Report 
->>4556655
->implying that Katina as a Kamen Rider is bad 
-Haken Browning !zHe7DH816A Fri 19 Feb 2010 20:41:12 No.4556667 Report 
- Quoted By: >>4556670 
->>4556650
-RX also has a car, an American knockoff, and a chain of steakhouses. Your argument is invalid. 
-NuBlackAnon !!zy704HMg7tr Fri 19 Feb 2010 20:42:12 No.4556670 Report 
- Quoted By: >>4556676 
->>4556667
-We have stealthrabuiter, OG Katina, and no restaurant YET 
-Haken Browning !zHe7DH816A Fri 19 Feb 2010 20:44:12 No.4556676 Report 
->>4556670
->OG Katina
-Does she randomly turn into Leona or Excellen due to inconsistent fight footage splicing? 
-Anonymous Mk-II Fri 19 Feb 2010 20:49:12 No.4556695 Report 
->>4556611
-tell the toaster to shut the fuck up since we are in the middle of a battle
-sortie and get ready to kick einst ass.. 
-Sciencegar Sciencebolt Fri 19 Feb 2010 21:09:12 No.4556762 Report 
- Quoted By: >>4556775 
->>4556778 
->>4556780 
->>4556790 
->>4556810 
->>4556866 
->>4556884 
->>4556961 
- (Votes are still tied, this seems to be a contraversial decision.)
+*I'll monitor the Machine Cells, and try to ensure they retain the Raiohs original form. I have the full schematics, so I should be able to program them to do repair rather than full transformation.*
 
 "Ugh....damn, this decision was a lot easier to make when it was just theoretical..."
 
@@ -317,132 +87,11 @@ Sciencegar Sciencebolt Fri 19 Feb 2010 21:09:12 No.4556762 Report
 
 "Ring made the goddamned Huckebien, Kat. A black hole on legs. We made two of them, and one of them went nuts and killed a lot of our friends. But she didn't give up on it: She found Shuu, and together they fixed it. The new Huckebien EX is out there right now, fighting your goddamn fight for you! Thats how real scientists do their jobs. Now, either take off, or get the fuck out of that cockpit!"
 
-CRUNCHTIME /m/. WHAT WILL KATINA DO? 
-Anonymous Mk-II Fri 19 Feb 2010 21:12:12 No.4556775 Report 
->>4556762
-tell him that we dont trust mad scientist and unstable technology.
-close the hacth and sortie NOW. 
-Haken Browning !zHe7DH816A Fri 19 Feb 2010 21:13:12 No.4556778 Report 
- Quoted By: >>4556824 
->>4556762
-Dammit, you know EXACTLY what it takes to elicit my vote.
-
-SACRIFICE ANAL VIRGINITY
->adviceDesu.jpg
-DAIRAIOH SYNCHRO 120% 
-Anonymous Fri 19 Feb 2010 21:13:12 No.4556780 Report 
->>4556762
-Apply machine cells to Raioh, If RIng can pilot a Blackhole on legs we can deal with machine cell Raioh. 
-Anonymous Fri 19 Feb 2010 21:15:12 No.4556790 Report 
->>4556762
-
-IGNORE SCIENTISTS, USE RAUBITER! 
-Anonymous Fri 19 Feb 2010 21:18:12 No.4556810 Report 
->>4556762
-
-Sacrifice our anal virginity for Machine celled Raioh. 
-Anonymous Fri 19 Feb 2010 21:19:12 No.4556814 Report 
- No cells. We're professionals, we don't need crutches. We could launch in a stock Gespy and win. 
-Zeta Zaku Fri 19 Feb 2010 21:21:12 No.4556824 Report 
->>4556778
-I'm sold. CELL ON. 
-Anonymous Fri 19 Feb 2010 21:22:12 No.4556827 Report 
- Quoted By: >>4556842 
->>4556850 
->>4556509
-voting this again, no compromising with unstable take 
-Anonymous Fri 19 Feb 2010 21:27:12 No.4556841 Report 
- I can NOT think of one possible scenario in which the MCs don't backfire. 
-Haken Browning !zHe7DH816A Fri 19 Feb 2010 21:28:12 No.4556842 Report 
->>4556827
-Que? The post you quoted was just a "Choose Wisely" admonishment. 
-Sciencegar Sciencebolt Fri 19 Feb 2010 21:30:12 No.4556850 Report 
->>4556827
-
-As Haken said, thats too vague to be a vote. 
-Anonymous Fri 19 Feb 2010 21:36:12 No.4556866 Report 
->>4556762
-Use machine cells. Become god (but try not to ruin the Raioh's main programs) 
-Anonymous Fri 19 Feb 2010 21:39:12 No.4556876 Report 
- I still believe that a measure of pragamatism should be exercised and that the Raubiter should be launched.
-
-Because, despite how awesome everyone sees the prospect of an MC-infected RaiOh as, it'll only cause more problems. 
-Sanger Zombolt! Fri 19 Feb 2010 21:39:12 No.4556877 Report 
- Quoted By: >>4556925 
- Machine-celled Raioh.....GO!
-
-It did not transform the Wild into a tentacle monster, it just repaired it and made restored it's stealth fnctions.
-
-Unless we bathe the Raioh completely in Machine cells, I don't see why there would be a problem. 
-Anonymous Fri 19 Feb 2010 21:40:12 No.4556884 Report 
- Quoted By: >>4556896 
->>4556762
-Use the Machine Cells.
-
-Excellen's machine was tentacle raped by the einst and she could still use it's main programs without issues. 
-Anonymous Fri 19 Feb 2010 21:43:12 No.4556893 Report 
- I say we repair our Raioh. The Wild did not become a tentacle monster and it was standing on the Thrud for a long time.... 
-Anonymous Fri 19 Feb 2010 21:44:12 No.4556896 Report 
- Quoted By: >>4556904 
->>4556913 
->>4556884
-
-Does Excellen's ride have a drug distribution system that is in danger of being corrupted?
-
-Because that's a pretty big problem. 
-Anonymous Fri 19 Feb 2010 21:46:12 No.4556904 Report 
- Don?t we have any other heavy hitter that can use the Machine cells instead?
-
-Like >>4556896 said.
-The Drug distribution system is why some people are against the idea, The risk is pretty damn high. 
-Anonymous Fri 19 Feb 2010 21:48:12 No.4556913 Report 
- Quoted By: >>4556919 
->>4556896
-A drug distribution device we haven't used at all and that could prove fatal to us in the long run if we did use it, forcing us to change the Raioh's cockpit completely. 
-Sanger Zombolt! Fri 19 Feb 2010 21:49:12 No.4556919 Report 
->>4556913
-Yeah. Touma did end up being almost killed by the constant use of the Raioh system, right? 
-Anonymous Fri 19 Feb 2010 21:51:12 No.4556925 Report 
- Quoted By: >>4556936 
->>4556877
-it was implied in game that it was some sorte of miracle in the weissritter case.
-
-we are in the middle of a battle now, about our mech that is on a perfectly good way. we shouldnt hesitate right now about some sort of crazy theory. 
-Sanger Zombolt! Fri 19 Feb 2010 21:55:12 No.4556936 Report 
- Quoted By: >>4556941 
->>4556943 
->>4556946 
->>4556925
-Well, we ARE about to fight a major battleship coming for us.
-
-The Hagane. With an entire fleet of Einsteinsed mechs and pilots that can regenerate from total oblieration in a few minutes.
-
-I doubt the Stealth is going to prove that usefull in this case. We will just end up scraping it and lots of other mechs from our companions. 
-Shas'El Fri 19 Feb 2010 21:58:12 No.4556938 Report 
- I say we go for the Machine Cells route. 
-Anonymous Fri 19 Feb 2010 21:59:12 No.4556941 Report 
- Quoted By: >>4556955 
->>4556936
-thats why!
-if we go to in the Machine cell raioh something bad will happen, remmember the last time we did something stupid in the raioh? thats why its in such a bad shape. 
-Sanger Zombolt! Fri 19 Feb 2010 21:59:12 No.4556943 Report 
->>4556936
-Besides, being in a machine-celled mech will mean the eventual infection of machine cells, amking it possible to withstand the Raioh's drug system if we need it in the future. 
-Anonymous Fri 19 Feb 2010 22:00:12 No.4556946 Report 
->>4556936
-So you think we should tak the risk of possibly becoming a machine child and become yet another enemy to add to an extensive list then?
-
-I say we sortie in the Raubiter to buy time so they can finish repairing the RaiOh the normal way. 
-Sciencegar Sciencebolt Fri 19 Feb 2010 22:01:12 No.4556952 Report 
- Quoted By: >>4556973 
->>4556984 
->>4557004 
- (It was looking hairy for a while there, but the last few votes swung it.)
-
 "Alright, take the damned Raubtier! Dumi, Cynthia, do your thing!"
 
 The Bergelmir nods, and a hatch opens in its chest, from which it takes a sphere of grey goo. It places the blob next to the Raioh, and it begins to move, pseudopods extending to pick up discarded parts and flow into the gaps in its frame.
 
+---
 
 Irm's Gespenst stops a bit away from the fallen Granzon. The mighty robot is immobile in the crater it landed in, glowing with heat. "Shuu! What the heck happened!?"
 
