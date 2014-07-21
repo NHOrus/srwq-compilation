@@ -158,389 +158,9 @@ The black-green thing sprouts gunbarrels and begins launching energy beams and s
 
 The DGG-04 Motorad flies up, past the Huckebien stabbing at a Cry-Wolf, and sights the Hagane, engaged in a sniping duel with Lamia. The pink mech desperately manuvers, after-images winking in and out of existence frantically, as it launches arrows at the battleship. The barriers around the vessel grow weak from the power drain, slivers of energy start to get through.
 
-Dumi to all Shadow Mirrors, I'm detecting MAPWs being deployed from the Hagane. Launch in 1 minute, Only a 53% chance of intercept. I reccommend retreat.
+*Dumi to all Shadow Mirrors, I'm detecting MAPWs being deployed from the Hagane. Launch in 1 minute, Only a 53% chance of intercept. I recommend retreat.*
 
-WHAT SHALL OUR HEROES DO? 
-Anonymous Sat 20 Feb 2010 21:53:37 No.4562014 Report 
- Quoted By: >>4562021 
->>4562039 
- moot !Ep8pui8Vw2 ##Admin Wed Apr 9 06:42:01 2008 No.420581
-
- I have been swamped recently and haven't had time to address this--my apologies.
-
- Here are my two solutions:
-
- 1. Create a text board for RP threads. They don't require pictures, and are more suited to the long-term discussion dis.4chan.org offers. This would allow for centralized/ongoing threads with a limit of 1,000 replies.
-
- 2. Limit the posting of these threads to "x" every few hours. There shouldn't be more than a handful of them going on at any given time. As I said when I created this board, I didn't want to see it get overwhelmed with any particular topic. This is going to be a hassle to enforce so I'm leaning towards solution #1.
-
- I'll [hopefully] make a final decision some time before the weekend. 
-Anonymous Sat 20 Feb 2010 21:54:23 No.4562019  Report 
- Quoted By: >>4562039 
->>4562045 
- moot !Ep8pui8Vw2 ##Admin Wed Apr 9 06:42:01 2008 No.420581
-
- I have been swamped recently and haven't had time to address this--my apologies.
-
- Here are my two solutions:
-
- 1. Create a text board for RP threads. They don't require pictures, and are more suited to the long-term discussion dis.4chan.org offers. This would allow for centralized/ongoing threads with a limit of 1,000 replies.
-
- 2. Limit the posting of these threads to "x" every few hours. There shouldn't be more than a handful of them going on at any given time. As I said when I created this board, I didn't want to see it get overwhelmed with any particular topic. This is going to be a hassle to enforce so I'm leaning towards solution #1.
-
- I'll [hopefully] make a final decision some time before the weekend 
-Anonymous Sat 20 Feb 2010 21:54:37 No.4562021 Report 
->>4562014
-should have saged bro 
-Anonymous Sat 20 Feb 2010 21:56:37 No.4562033 Report 
- Quoted By: >>4562043 
->>4562005
-I did my part, I reported this thread 
-Anonymous Sat 20 Feb 2010 21:56:37 No.4562039 Report 
- Quoted By: >>4562055 
->>4562019
->>4562014
->>4562008
-
-http://www.4chan.org/rules#global
-
-It doesn't say anything at all in the rules. 
-Anonymous Sat 20 Feb 2010 21:57:37 No.4562043 Report 
->>4562033
-ditto 
-Anonymous Sat 20 Feb 2010 21:57:37 No.4562045 Report 
- Quoted By: >>4562054 
->>4562055 
->>4562019
->X every few hours
-Well, that takes care of that! We only ever have two "RP" threads going on at any one time.
-
-As opposed to you mouthbreathers over at /jp/. Umineko fucking everywhere. WE can take care of ourselves. 
-Anonymous Sat 20 Feb 2010 21:59:37 No.4562053 Report 
- Quoted By: >>4562057 
->>4562075 
->>4562008
-Because /jp/=/m/.
-
-Anyway, seeing this is getting out of control, I would greatly appreciate if a mod would answer this question:
-
-Is RP in /m/ wrong? 
-Anonymous Sat 20 Feb 2010 21:59:37 No.4562054 Report 
- Quoted By: >>4562072 
->>4562045
->Umineko fucking everywhere
-Because Gundam and Toku fucking everywhere is so much better 
-Anonymous Sat 20 Feb 2010 21:59:37 No.4562055 Report 
- Quoted By: >>4562102 
->>4562039
-It's been banned before.
->>4562045
-/jp/ doesnt have those threads, they've been taken care of, RP is not allowed on 4chan even if its one thread. /m/'s problem,there is only ONE mod and he can't take care of all the bullshit 
-Anonymous Sat 20 Feb 2010 22:00:37 No.4562057 Report 
- Quoted By: >>4562067 
->>4562053
-rp in all of 4chan is wrong. 
-Anonymous Sat 20 Feb 2010 22:01:37 No.4562058 Report 
->BAWW I don't like RP because it's ruining my /m/
-Get the fuck over it as long as some are enjoying it, who gives a shit. 
-
-It's better then random /b/ shit that shows up here. 
-Anonymous Sat 20 Feb 2010 22:02:37 No.4562067 Report 
- Quoted By: >>4562084 
->>4562057
-Nowhere in the rules say that. I double checked the global rules and it says nothing about it.
-
-And there hasn't been a sticky talking about it either, as far as my memory goes.
-
-That's why I am asking a mod. 
-Anonymous Sat 20 Feb 2010 22:03:37 No.4562072 Report 
->>4562054
-What /m/ do YOU go on? This board is pretty fucking diverse in what it talks about.
-You only notice all of the Gundam and Toku threads because you've taken it upon yourself to be INTERNET JESUS CHRIST OF /m/, and deliver us from these terrible threads. If it's /m/, but you don't like it, then shut the fuck up and ignore it. 
-Anonymous Sat 20 Feb 2010 22:04:37 No.4562075 Report 
- Quoted By: >>4562092 
->>4562053
->Because /jp/=/m/.
-Unless /m/ was created for roleplay and it was specifically allowed I don't see why this
->Please do not roleplay on this board, that is not what it is for. 
-Shouldn't work for us. 
-Anonymous Sat 20 Feb 2010 22:05:37 No.4562081 Report 
- Quoted By: >>4562093 
->>4562098 
- All you people complaining about one fucking thread ruining /m/ and yet you're now perfectly fine with the countless threads about toku and 'Subject X' that are on this board?
-
-Bunch of fucking hypocrites. What's wrong with letting people have fun? 
-Anonymous Sat 20 Feb 2010 22:05:37 No.4562084 Report 
->>4562067
-Ask a mod on #4chan, check this link before you continue though
-http://archive.easymodo.net/cgi-board.pl/jp/thread/S360493
-
-this applies to all boards by the way 
-Anonymous Sat 20 Feb 2010 22:06:37 No.4562092 Report 
- Quoted By: >>4562106 
->>4562075
-Perphaps because the RP threads in your board got out of control, consisted entirely of porn or caused massive shitstrorms that damaged the integrity of the board.
-
-Thankfully, we haven't gotten to that point here. Perphaps that is why a mod didn't take action or made a sticky about it yet. 
-Anonymous Sat 20 Feb 2010 22:06:37 No.4562093 Report 
- Quoted By: >>4562110 
->>4562081
-Go have fun somewhere else, Fucking RPs online on boards are fucking retarded and not fucking allowed on 4chan. This shit has gone for too fucking long, its time for the real /m/ users to take fucking action. 
-Anonymous Sat 20 Feb 2010 22:07:37 No.4562098 Report 
->>4562081
-This, you act like this shit is on every thread on the board
-
-I'm sorry for those who where enjoying this but the bitching is kind of sad. 
-Anonymous Sat 20 Feb 2010 22:07:37 No.4562102 Report 
- Quoted By: >>4562109 
->>4562055
-You don't know how mods work, do you? They can use their magical moderation powers on any board they want, but they'll give a bigger shit about one board over another. /m/ doesn't have active moderation because the mods either a) don't care, or b) don't think the board needs it. 
-Anonymous Sat 20 Feb 2010 22:08:37 No.4562106 Report 
->>4562092
-And seeing how much shit the popular boards get, that wouldn't surprise me. 
-Anonymous Sat 20 Feb 2010 22:09:37 No.4562109 Report 
- Quoted By: >>4562131 
->>4562102
->I never gone to #4chan and know the facts instead of making my own shit up
-
-Its just one mod for this board bro 
-Anonymous Sat 20 Feb 2010 22:09:37 No.4562110 Report 
- Quoted By: >>4562123 
->>4562129 
->>4562146 
->>4562093
-
-Yeah, hey, crusader faggot, nowhere in the rules does it ever state that such threads are directly against the rules.
-
-And you idiots have taken this well enough with some of you having the common sense to hide these threads if you don't like them. What's with the sudden HURR THE BOARD MUST BE CLEAN faggotry? 
-Anonymous Sat 20 Feb 2010 22:11:37 No.4562123 Report 
- Quoted By: >>4562132 
->>4562134 
->>4562110
-http://archive.easymodo.net/cgi-board.pl/jp/thread/S360493
-
-Read 
-tg fag Sat 20 Feb 2010 22:12:37 No.4562129 Report 
- Quoted By: >>4562138 
->>4562141 
->>4562146 
->>4562110
-/tg/ Exists for this type of roleplay games. You should all move its quite clear this board does not like you 
-Anonymous Sat 20 Feb 2010 22:12:37 No.4562131 Report 
->>4562109
-And, you know, with all of the spam and cp and guro and scat that gets posted on this board, he really is swamped. He doesn't have the time to delete one RP thread that's on the front page. 
-Anonymous Sat 20 Feb 2010 22:13:37 No.4562132 Report 
- Quoted By: >>4562136 
->>4562123
-
->/jp/
-
-Yeah, okay, nice example. 
-Anonymous Sat 20 Feb 2010 22:13:37 No.4562134 Report 
->>4562123
->Please do not roleplay on THIS board.
-
->Roleplay in THIS board.
-
->THIS board.
-
->/jp/
-
->THIS board.
-
->In addition, please refrain from blogging about your personal life or about how your sister caught you masturbating. 
-
-Doesn't surprise me. 
-Anonymous Sat 20 Feb 2010 22:14:37 No.4562136 Report 
->>4562132
->not reading the actual thread 
-Anonymous Sat 20 Feb 2010 22:14:37 No.4562138 Report 
->>4562129
-
-It's 'quite clear' that the people who didn't like these threads had the common sense to hide them until faggots like you started a crusade because one RP thread is 'ruining' your precious toku-infested /m/ with countless threads on the same fucking subjects daily. 
-Anonymous Sat 20 Feb 2010 22:14:37 No.4562141 Report 
- Quoted By: >>4562151 
->>4562129
-Everything was fine until a troll called other boards to do an invasion on this thread.
-
->>4561975 
-Anonymous Sat 20 Feb 2010 22:15:37 No.4562144 Report 
->This thread
-Ok so this has now become not /m/ fagitoroy, good to know. 
-Anonymous Sat 20 Feb 2010 22:15:37 No.4562146 Report 
->>4562129
->this board
-HAHA OH WOW, NOW HE THINKS HE SPEAKS FOR EVERYONE ON THIS BOARD.
->>4562110
-Yes, you've posted that several times. It fascinating. Like a holy document.
-Funny how there's so many different sects in religion for how many different interpretations of these documents there are. 
-kai !!2vdorzb/J61 Sat 20 Feb 2010 22:16:37 No.4562149 Report 
- Quoted By: >>4562162 
->>4562185 
->>4562010
-Well 53% is still decent
-
-and its not like MapW are that damaging anyway are they? 
-Anonymous Sat 20 Feb 2010 22:16:37 No.4562151 Report 
- Quoted By: >>4562157 
->>4562141
->ignoring the past week were we've been getting the same fucking bullshit 
-Anonymous Sat 20 Feb 2010 22:17:37 No.4562157 Report 
->>4562151
-From one incredibly obvious samefag who posted every 2 minutes. 
-Anonymous Sat 20 Feb 2010 22:18:37 No.4562162 Report 
->>4562149
-They can destroy entire cities. 
-Healing the Thread. Sat 20 Feb 2010 22:20:37 No.4562173 Report 
->>4562010
-Run away. The risks are too high. 
-View SameGoogleiqdbSauceNAO GGG in a nutshell.png,  43KiB, 3500x720 
- 
-Healing the Thread. Sat 20 Feb 2010 22:21:37 No.4562176 Report 
- Quoted By: >>4562202 
-View SameGoogleiqdbSauceNAO Soldifar.jpg,  179KiB, 850x1156 
- 
-Healing the Thread. Sat 20 Feb 2010 22:21:37 No.4562178 Report 
- Quoted By: >>4562202 
-GUNDAMU !0smG1gQz9c Sat 20 Feb 2010 22:22:37 No.4562180 Report 
- Quoted By: >>4562187 
- I get back from work to see what /m/ is up to, and this is what I come back to?
-
-What the fuck, faggots. If you don't like a thread, there's a reason you can hide it. If you're trolling, you really need to find something better to do with your time. And if you honestly think you're contributing to the quality of the board, I have news for you. You're not the fucking quality control squad.
-
-You losers need to learn to let people enjoy things that they like, even if you don't enjoy those things yourself. What are you, prepubescent teenagers who think infuriating others and ruining somebody's fun is edgy and cool?
-
-Faggots, the whole lot of you. I'm not even going to sage politely, just to bump the thread and piss you off. 
-View SameGoogleiqdbSauceNAO Dygenguard type zwei.jpg,  384KiB, 1407x2031 
- 
-Healing the Thread. Sat 20 Feb 2010 22:22:37 No.4562181 Report 
- Quoted By: >>4562202 
-Sciencegar Sciencebolt Sat 20 Feb 2010 22:22:37 No.4562185 Report 
- Quoted By: >>4562254 
->>4562149
-
-MAPW are anti-base weapons on par with a nuke. Its awfully unlikely that if one were launched, that anyone on the base would survive, unless you want to gamble on machine cells and forcefields. 
-Anonymous Sat 20 Feb 2010 22:23:37 No.4562187 Report 
- Quoted By: >>4562192 
->>4562199 
->>4562180
-Faggots like you are the reason /m/ is in such a shit way. Fuck off, rp is forbidden 
-Anonymous Sat 20 Feb 2010 22:23:37 No.4562188 Report 
- well we only have Lamia pestering the hagane if we sent a few more reinforcements we should be able to prevent the Hagane from reaching the altitude it needs to MAP us to hell. 
-View SameGoogleiqdbSauceNAO Aledi naash.jpg,  45KiB, 339x480 
- 
-Healing the Thread. Sat 20 Feb 2010 22:23:37 No.4562189 Report 
- Quoted By: >>4562202 
- Healing......healing......healing..... 
-View SameGoogleiqdbSauceNAO HEROIC GRANZON!.jpg,  50KiB, 529x455 
- 
-Healing the Thread. Sat 20 Feb 2010 22:24:37 No.4562192 Report 
- Quoted By: >>4562211 
->>4562187
->IMO. 
-View SameGoogleiqdbSauceNAO Vysaga.jpg,  187KiB, 950x691 
- 
-Healing the Thread. Sat 20 Feb 2010 22:24:37 No.4562193 Report 
- Quoted By: >>4562211 
-View SameGoogleiqdbSauceNAO Beowulf and Setsuko.jpg,  134KiB, 600x697 
- 
-Healing the Thread. Sat 20 Feb 2010 22:25:37 No.4562196 Report 
- Quoted By: >>4562211 
- This should do it.
-
-Have some Beowulf and Setsuko. 
-Anonymous Sat 20 Feb 2010 22:25:37 No.4562199 Report 
- Quoted By: >>4562210 
->>4562187
-
-Oh, funny, last I heard, toku was the 'cancer killing /m/'.
-
-Infantile faggot. 
-Anonymous Sat 20 Feb 2010 22:26:37 No.4562202 Report 
- Quoted By: >>4562208 
->>4562189
->>4562181
->>4562178
->>4562176
-Well, it's pretty obvious that we need to GTF away from those MAPWs then. What's the fastest way out? 
-Sanger Zombolt! Sat 20 Feb 2010 22:26:37 No.4562203 Report 
->>4562010
-.....is it done?
-
-Good. Run away. 53% and risk getting blown up is too much of a risk. 
-Shas'El Sat 20 Feb 2010 22:27:37 No.4562208 Report 
->>4562202
-This. We must get out of here fast. 
-Anonymous Sat 20 Feb 2010 22:27:37 No.4562210 Report 
->>4562199
->implying toku and rp fags aren't the same 
-Anonymous Sat 20 Feb 2010 22:28:37 No.4562211 Report 
- Quoted By: >>4562217 
->>4562227 
->>4562240 
->>4562281 
->>4562192
->>4562193
->>4562196
-Come to think of it, why would the Hagane have the equivalent of nukes? 
-View SameGoogleiqdbSauceNAO 1260573730706.jpg,  58KiB, 638x480 
- 
-Anonymous Sat 20 Feb 2010 22:28:37 No.4562213 Report 
-View SameGoogleiqdbSauceNAO hammer.jpg,  100KiB, 508x432 
- 
-Healing the Thread. Sat 20 Feb 2010 22:28:37 No.4562216 Report 
- Anyway, posting /m/ related images for the sake of it.
-
-Also, run away. Find Vat Tram and get out of there. 
-SEED D Cagalli !!U5xc0wG3iH0 Sat 20 Feb 2010 22:29:37 No.4562217 Report 
->>4562211
-
-Nukes can be practical when you need something dead. 
-Stealthyboy !fchRKomfls Sat 20 Feb 2010 22:29:37 No.4562218 Report 
- If they're using an MAPW, we have two options.
-Either we try to shoot it down, or we begin a fighting retreat.
-And as much as it pains me to say this, I think we'd be better off going with the latter. 
-View SameGoogleiqdbSauceNAO THE BEST DAICENSOR.jpg,  2MiB, 2508x4488 
- 
-Healing the Thread. Sat 20 Feb 2010 22:29:37 No.4562223 Report 
-View SameGoogleiqdbSauceNAO bill-maher.jpg,  34KiB, 300x360 
- 
-Anonymous Sat 20 Feb 2010 22:29:37 No.4562224 Report 
->>4561764
->BAAAAAAAAAAAAW MEAN PEOPLE WON'T LET ME RP! 
-View SameGoogleiqdbSauceNAO 1265436240692.jpg,  382KiB, 1200x1193 
- 
-Healing the Thread. Sat 20 Feb 2010 22:31:37 No.4562227 Report 
- Quoted By: >>4562263 
->>4562211
-The Hagane is huge, and proably needs it for when it has to storm heavily-fortified bases. 
-GUNDAMU !0smG1gQz9c Sat 20 Feb 2010 22:32:37 No.4562236 Report 
- Quoted By: >>4562263 
- Anyway, contributing to the thread.
-
-What's the chance of being able to retreat in time to avoid the blast? If we can retreat in time, I suggest we do so. If not, release all limiters and use Plasma Leaders to throw a MapW right back at the Hagane with pinpoint accuracy. 
-View SameGoogleiqdbSauceNAO 4.jpg,  141KiB, 950x1366 
- 
-Healing the Thread. Sat 20 Feb 2010 22:32:37 No.4562237 Report 
- Quoted By: >>4562252 
->>4562263 
- Turns out the Dragon/tiger lord is one of the weakest mechs in OG. Even weraker than the non-MP Huckys.
-
-So much for being scared of it. 
-Anonymous Sat 20 Feb 2010 22:33:37 No.4562240 Report 
- Quoted By: >>4562263 
->>4562211
-Shadow mirror universe is probably more OK with mass genocide especially when they have be sent here to silence use everyone here forget that the Hagane started out trying to vaporize us with the Trouim buster cannon? 
-View SameGoogleiqdbSauceNAO 56.jpg,  133KiB, 950x1370 
- 
-Healing the Thread. Sat 20 Feb 2010 22:34:37 No.4562252 Report 
- Quoted By: >>4562259 
->>4562237
-Doesn't surprise me. All it does is shoot fire and throw rocks at you when we have mechs that can shoot motherfuckign blackholes and gravity waves at you. 
-Sciencegar Sciencebolt Sat 20 Feb 2010 22:35:37 No.4562254 Report 
- Quoted By: >>4562267 
->>4562295 
->>4562185
+---
 
 Albero and the 4 standing Cry Wolves retreat to a crater in the middle of the the base and warp out, just as you bombard the crater with your Harken Impulse weapons. Swearing, you look around to see the wrecks of the other wolves igniting, burning up with some kind of white energy, leaving nothing behind.
 
@@ -548,214 +168,14 @@ The Trilobites lift off, as the team heads back to them. The only people still f
 
 "Dammit people, hurry up!!" Screams Irm. "We've got to get out of here!"
 
-That's not a guarantee of escape, commander. They also have the Tronium weapon, its damaged but could still fire if we leave them alone. The Trilobites would be a likely target.
+*That's not a guarantee of escape, commander. They also have the Tronium weapon, its damaged but could still fire if we leave them alone. The Trilobites would be a likely target.*
 
-"Shit...What can we do?"
+"Shit... What can we do?"
 
-30 seconds to launch. Preparing intercept protocols.
+*30 seconds to launch. Preparing intercept protocols.*
 
-DECIDE WHO RUNS AND WHO GOES FOR THE HAGANE 
-SEED D Cagalli !!U5xc0wG3iH0 Sat 20 Feb 2010 22:36:37 No.4562259 Report 
->>4562252
+---
 
-Well, in the hands of strong Psychodrivers Ryuko/Koryu is really dangerous.
-
-I mean, it's *THE* strongest machine that Irui created. And that's not even getting into the fact it has a Shin form. 
-Anonymous Sat 20 Feb 2010 22:36:37 No.4562263 Report 
- Quoted By: >>4562270 
->>4562283 
->>4562325 
->>4562227
->>4562240
->>4562237
->>4562236
-How can you people sleep at night knowing that you're wasting your precious time by roleplaying fictional characters , your roleplaying isn't even that very good, the story isn't even coherent or interesting, Why do you even bother? There are much better things out there that you can do, some of you seem to suffer from some sort of psychological disorder similar to those people who believe Avatar the movie is real and want to be blue colored beings.
-
-You children need medical help, perhaps your parents are not paying much attention which leads you to create your own fantasy world and think you're actually in it. You believe its fun, but in reality it is not,it is an excuse to escape your problems and ignore the real world. 
-View SameGoogleiqdbSauceNAO RAPE.png,  31KiB, 256x256 
- 
-Healing the Thread. Sat 20 Feb 2010 22:37:37 No.4562267 Report 
- Quoted By: >>4562311 
->>4562254
-Is this going to be like the prologue of Fire Emblem Shadow Dragon?
-
-Where you have to send one of your units as a decoy and then see how it gets killed horribly? 
-View SameGoogleiqdbSauceNAO 0001-1256983334412.png,  258KiB, 512x512 
- 
-Anonymous Sat 20 Feb 2010 22:38:37 No.4562268 Report 
-View SameGoogleiqdbSauceNAO Victory pose!.jpg,  38KiB, 300x300 
- 
-Healing the Thread. Sat 20 Feb 2010 22:38:37 No.4562270 Report 
->>4562263
-Because we have nothing better to do right now. 
-Anonymous Sat 20 Feb 2010 22:38:37 No.4562271 Report 
- Quoted By: >>4562276 
->>4562286 
- has anyone else noticed that the sagefags don't show up during school hours on weekdays? 
-View SameGoogleiqdbSauceNAO OP IS A FAGGOT.jpg,  56KiB, 703x351 
- 
-Healing the Thread. Sat 20 Feb 2010 22:38:37 No.4562276 Report 
->>4562271
-Don't start. 
-View SameGoogleiqdbSauceNAO 0002-1256983375141.png,  258KiB, 512x512 
- 
-Anonymous Sat 20 Feb 2010 22:39:37 No.4562280 Report 
-Sciencegar Sciencebolt Sat 20 Feb 2010 22:39:37 No.4562281 Report 
->>4562211
-
-Because Admiral Webley is on record as a follower of the principle "There is no kill like overkill". Also, he was getting annoyed with not being able to nuke things while the Tronium Cannon was recharging. 
-Anonymous Sat 20 Feb 2010 22:39:37 No.4562283 Report 
- Quoted By: >>4562292 
->>4562263
-
-Hey, psychiatrist. Fuck off, would you kindly?
-
-Look up 'fun' in a dictionary while you're at it instead of rambling about non-existant deep-seated problems.
-
-And you're new to this board, aren't you? 
-View SameGoogleiqdbSauceNAO 08.jpg,  193KiB, 931x1400 
- 
-Healing the Thread. Sat 20 Feb 2010 22:40:37 No.4562285 Report 
- Anyway, take this into consideration if we ever fight against the Dragon Sciencegar.
-
-A hucky could beat the crap out of it with no issues. 
-View SameGoogleiqdbSauceNAO Tommyremembers.jpg,  307KiB, 1440x809 
- 
-Anonymous Sat 20 Feb 2010 22:40:37 No.4562286 Report 
->>4562271
-or work hours 
-View SameGoogleiqdbSauceNAO 05.jpg,  139KiB, 933x1400 
- 
-Healing the Thread. Sat 20 Feb 2010 22:40:37 No.4562287 Report 
-Anonymous Sat 20 Feb 2010 22:41:37 No.4562292 Report 
- Quoted By: >>4562314 
->>4562283
-Oh but i'm role playing.
-
-Like you guys 
-View SameGoogleiqdbSauceNAO 38.jpg,  139KiB, 950x1360 
- 
-Healing the Thread. Sat 20 Feb 2010 22:41:37 No.4562293 Report 
-Stealthyboy !fchRKomfls Sat 20 Feb 2010 22:42:37 No.4562295 Report 
- Quoted By: >>4562302 
->>4562254
-Sanger can hold off the Hagane until the main force can withdraw. Machine cells should be able to keep up with any damage except for the Tronium Cannon itself, so keeping that offline may be helpful.
-If only the Granzon were still active, we could just warp a shot into the inside of the Hagane.
-
-Wait, that gives me an idea.
-
-The Granzon is still trying to redirect the energy from the last Tronium shot, yes? What if Shu put that energy to use, redirecting it back into the interior of the Hagane? 
-View SameGoogleiqdbSauceNAO 15.jpg,  107KiB, 928x1400 
- 
-Healing the Thread. Sat 20 Feb 2010 22:42:37 No.4562296 Report 
-View SameGoogleiqdbSauceNAO 12.jpg,  126KiB, 931x1400 
- 
-Healing the Thread. Sat 20 Feb 2010 22:43:37 No.4562302 Report 
- Quoted By: >>4562315 
->>4562295
->Send Wodan to his death.
-
-No thanks, bro. 
-Anonymous Sat 20 Feb 2010 22:44:37 No.4562309 Report 
->>4561957
-you dumb retard this is a cyoa. 
-Anonymous Sat 20 Feb 2010 22:44:37 No.4562311 Report 
->>4562267
-Huh... Well, I think the safest course of movement is to send out OURSELVES. EVEN IF JURGEN WAS A SHITTY UNIT, I WANTED HIM TO LIVE! SO, we send ourselves because we have the strongest plot armoring. 
-Anonymous Sat 20 Feb 2010 22:45:37 No.4562314 Report 
->>4562292
-FFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFF 
-Stealthyboy !fchRKomfls Sat 20 Feb 2010 22:45:37 No.4562315 Report 
->>4562302
-Machine Cells can deal with that.
-It's not like he hasn't died before, anyway. 
-View SameGoogleiqdbSauceNAO fighta roa.jpg,  390KiB, 800x800 
- 
-Healing the Thread. Sat 20 Feb 2010 22:47:37 No.4562319 Report 
- Quoted By: >>4562328 
->>4562355 
- If anything, I say we do like that guy said and try to find a way to redirect that shot.
-
-How about increasing the gravity just below the cannon when they least expect it making them miss their shot and probably end up pulverizing on of their squadrons? 
-Anonymous Sat 20 Feb 2010 22:48:37 No.4562325 Report 
- Quoted By: >>4562330 
->>4562263
-hey retard!
-this is a cyoa not a rp thread with gay pictures and asteriks and shit, get your head checked. 
-Sanger Zombolt! Sat 20 Feb 2010 22:49:37 No.4562328 Report 
- Quoted By: >>4562355 
->>4562319
-I am OK with this. 
-Stealthyboy !fchRKomfls Sat 20 Feb 2010 22:50:37 No.4562330 Report 
->>4562325
-You know, responding to the trolls just makes things worse...
-
-See also: Thread 12. 
-View SameGoogleiqdbSauceNAO 01.jpg,  82KiB, 950x635 
- 
-Healing the Thread. Sat 20 Feb 2010 22:50:37 No.4562334 Report 
- Quoted By: >>4562347 
->>4562355 
- And then we flip them in the comm window, making mister overkill incredibly mad. 
-View SameGoogleiqdbSauceNAO 02.jpg,  90KiB, 950x635 
- 
-Healing the Thread. Sat 20 Feb 2010 22:50:37 No.4562338 Report 
-Anonymous Sat 20 Feb 2010 22:51:37 No.4562341 Report 
->Stealthyboy !fchRKomfls 
-sh*t the f*ck up tripf*g 
-Anonymous Sat 20 Feb 2010 22:52:37 No.4562347 Report 
->>4562334
-
-OH GOD THIS! 
-Anonymous Sat 20 Feb 2010 22:53:37 No.4562355 Report 
- Quoted By: >>4562382 
->>4562388 
->>4562334
->>4562328
->>4562319
-And the MAPWs? What about those? I still say we rish the Hagane in FemmeRaiOh. 
-View SameGoogleiqdbSauceNAO 10.jpg,  71KiB, 950x634 
- 
-Healing the Thread. Sat 20 Feb 2010 22:58:37 No.4562382 Report 
->>4562355
-We run away from them. It can't change it's course, and it's not fast enough to make it impossible to run away from them as shown in the games and the anime. 
-Stealthyboy !fchRKomfls Sat 20 Feb 2010 23:00:37 No.4562388 Report 
- Quoted By: >>4562392 
->>4562471 
->>4562483 
->>4562355
-If SRW has ever taught me anything it's that you can always outrun a nuke.
-
-That or shoot it down without setting it off. 
-Anonymous Sat 20 Feb 2010 23:01:37 No.4562392 Report 
- Quoted By: >>4562405 
->>4562471 
->>4562483 
->>4562388
-you do know its HARD to set off an atomic weapon, right? It is easy to shoot one down if you have the right technology, the PATRIOT missile can shoot down missiles, and so can AEGIS systems. 
-Stealthyboy !fchRKomfls Sat 20 Feb 2010 23:04:37 No.4562405 Report 
- Quoted By: >>4562471 
->>4562483 
->>4562392
-In which case SRW has actually taught me something right.
-
-Apart from the fact that they always go off anyway if you completely destroy them. 
-Healing the Thread. Sat 20 Feb 2010 23:17:46 No.4562471  Report 
->>4562405
->>4562392
->>4562388
-So....are we going to go with SRW nuke-outrunning rules or REALITY! NUKE WILL KILL YOU NO MATTER WHAT rules? 
-Healing the Thread. Sat 20 Feb 2010 23:20:37 No.4562483 Report 
- Quoted By: >>4562508 
->>4562405
->>4562392
->>4562388
-So....are we going to go with SRW "you outrun nukes" rule or reality's "nukes outrun you" rules? 
-Sciencegar Sciencebolt Sat 20 Feb 2010 23:21:37 No.4562487 Report 
- Quoted By: >>4562498 
->>4562515 
->>4562527 
->>4562587 
  "Wait, where's that sciency dude?"
 
 "You called for me, Ms Tarask?" The Granzon floats into the air, a little worse for wear but functional.
@@ -768,105 +188,67 @@ Sciencegar Sciencebolt Sat 20 Feb 2010 23:21:37 No.4562487 Report
 
 Shuu blinks. "I'm not sure... I fully follow you."
 
-I do. Allow me to access the Granzons targeting controls, Dr. Shirakawa, and I'll see what I can do...
+*I do. Allow me to access the Granzons targeting controls, Dr. Shirakawa, and I'll see what I can do...*
+
+---
+
 "Admiral, they're falling back!!"
 
 "Too late, rats! Launch the MAPW!!!"
 
 "Sir! Launching, ten seconds to impact! 8, 7, 6...It's gone sir!!"
 
-
 "What?!!? How did they shoot it down at this range?"
 
-"No wait, it's reappeared...Above us!!"
+"No wait, it's reappeared... Above us!!"
 
 "No!! Overboost!! Overbo-"
 
 The morning sky over northern Africa suddenly gains a new sun, as 47 kilotons of Duodec explosive ignite against the Haganes shields, covering the entire vessel in a fireball a mile wide. 
-Healing the Thread. Sat 20 Feb 2010 23:23:37 No.4562498 Report 
->>4562487
-Well, this was 100 times better than what I thought. 
-Anonymous Sat 20 Feb 2010 23:24:37 No.4562508 Report 
->>4562483
-That's thinking with Portals! 
-View SameGoogleiqdbSauceNAO 1265672724125.jpg,  579KiB, 640x2436 
- 
-Stealthyboy !fchRKomfls Sat 20 Feb 2010 23:25:37 No.4562515 Report 
- Quoted By: >>4562532 
->>4562487
->My face on reading this
 
-Although I'm quite disturbed that Dumi was able to take control of the Granzon so easily... 
-Sanger Zombolt! Sat 20 Feb 2010 23:27:37 No.4562527 Report 
->>4562487
-Report on the status of the Hagane?
+---
 
-Is it completely destroyed? Is it going to be repaired easily? What about it's weapons?
-
-I woulnd't mind having a very brief "elsewhere" detailing what happened to it. 
-Anonymous Sat 20 Feb 2010 23:28:37 No.4562532 Report 
- Quoted By: >>4562539 
->>4562515
->Although I'm quite disturbed that Dumi was able to take control of the Granzon so easily...
-
-Don't worry, Shu had to allow our totally trustworthy and not at all suspicious robot friend to do it. 
-Sciencegar Sciencebolt Sat 20 Feb 2010 23:29:37 No.4562534 Report 
- "This....is intolerable."
+"This....is intolerable."
 
 "Indeed. An entire squad of our ascended defeated, the second such group this week, and forced to retreat to the Home Space, no less."
 
 "How can such a thing come to pass? Our enemies should have no weapons of this magnitude!"
 
-"How naive...if there were no groups capable of threatening us, we wouldn't even have to keep up this charade of humanity."
+"How naive... if there were no groups capable of threatening us, we wouldn't even have to keep up this charade of humanity."
 
 "Stop bickering! The problem will not be solved like that. We must have action!"
 
 "But where shall we get the forces? Project Zeitgiest is still incomplete, and it may take days to generate more ascended."
 
-"....It may be that we'll have to risk THEM."
+"...It may be that we'll have to risk THEM."
 
 "No! SHE would only find a way to turn them on us!"
 
 "You think SHE hasn't begun such a plan already? Again you show exteme naivety!"
 
 "Enough! Prepare observers, and send them to Izu. Fabricate the needed evidence based on the Zezernan Files. Turn these 'Irregulars' into aliens in the eyes of as many as possible, then SHE will be forced to either destroy them for us, or act against us directly." 
-Stealthyboy !fchRKomfls Sat 20 Feb 2010 23:29:37 No.4562539 Report 
->>4562532
-THIS ISN'T ALLAYING MY WORRY. 
-SEED D Cagalli !!U5xc0wG3iH0 Sat 20 Feb 2010 23:31:37 No.4562547 Report 
- Quoted By: >>4562554 
- Okay, we run for it, though Katina and the Raioh covers for everyone else. With Dumi we can catch up if things get too bad. 
-Anonymous Sat 20 Feb 2010 23:33:37 No.4562554 Report 
- Quoted By: >>4562567 
->>4562547
-Slowpoke. 
-SEED D Cagalli !!U5xc0wG3iH0 Sat 20 Feb 2010 23:34:37 No.4562567 Report 
->>4562554
 
-And proud of it.
+---
 
-Okay, anyways, holy shit. Zenzernan's involved in this? He was a nightmare in F Final. >_> 
-Sciencegar Sciencebolt Sat 20 Feb 2010 23:36:37 No.4562577 Report 
- Quoted By: >>4562593 
- "And now that you're done showing off, what about our real problem?"
+"And now that you're done showing off, what about our real problem?"
 
-I assume you mean your promises to Vat Tran.
+*I assume you mean your promises to Vat Tran.*
 
 "You've made me promise him quite a few things that I can't deliver, even with Magus at my disposal."
 
-Unfortunate, but hardly insurmountable. I doubt we'll be doing much more than stringing him along for a while.
+*Unfortunate, but hardly insurmountable. I doubt we'll be doing much more than stringing him along for a while.*
 
 "Yes, you have your 'real' plan, which you're awfully quiet about."
 
-If I told you, you wouldn't beleive me. And I know that's saying something, seeing as you're a corpse thats been revived with technology that doesn't actually exist.
+*If I told you, you wouldn't beleive me. And I know that's saying something, seeing as you're a corpse thats been revived with technology that doesn't actually exist.*
 
 "So, you just want me to keep distracting Vat Tran, then?"
 
-That, and talk to the alien. She could be crucial, if we can get her on our side. She might be able to point them there.
+*That, and talk to the alien. She could be crucial, if we can get her on our side. She might be able to point them there.*
 
 "Where, exactly?"
 
-Space, my dear Sophia. Get them into space, and I can handle the rest. 
+*Space, my dear Sophia. Get them into space, and I can handle the rest.*
 Anonymous Sat 20 Feb 2010 23:38:37 No.4562587 Report 
 >>4562487
 With all these humilliating defeats, the Einst-possesed cast is starting to lok a looooot like team rocket.
