@@ -422,6 +422,6 @@ Kirk Hamill ignores the Black Knights jibe and bends over to whisper to Director
 
 The Black Knight speaks up again. "Any further orders, Director?"
 
-"No. Continue observation until I say so. The next few minutes may be critical.
+"No. Continue observation until I say so. The next few minutes may be critical."
 
     TURN 2 END.
