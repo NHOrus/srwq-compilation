@@ -249,43 +249,13 @@ The morning sky over northern Africa suddenly gains a new sun, as 47 kilotons of
 "Where, exactly?"
 
 *Space, my dear Sophia. Get them into space, and I can handle the rest.*
-Anonymous Sat 20 Feb 2010 23:38:37 No.4562587 Report 
->>4562487
-With all these humilliating defeats, the Einst-possesed cast is starting to lok a looooot like team rocket.
 
-It's just a matter of time before they become affable villains that help us from time to time and pose little to no threat. 
-Stealthyboy !fchRKomfls Sat 20 Feb 2010 23:39:37 No.4562593 Report 
- Quoted By: >>4562609 
->>4562617 
->>4562577
-Okay, Dumi's conspiring with Magus behind our back.
-I'm sure he has only our best interests in mind.
-Right guys?
-... 
-Anonymous Sat 20 Feb 2010 23:41:37 No.4562609 Report 
- Quoted By: >>4562628 
->>4562593
-Who knows? For all we know, he may actually have our best interest in mind but can't let us know about it. Like Bian. 
-SEED D Cagalli !!U5xc0wG3iH0 Sat 20 Feb 2010 23:42:37 No.4562617 Report 
->>4562593
+---
 
-Which is why I've been saying we need to get that Grungust Neo up and running as soon as possible. The Raioh saved our asses a lot, but to have the strength to help out this time we've had to entrust it to the Machine Cells and Dumi. 
-Stealthyboy !fchRKomfls Sat 20 Feb 2010 23:43:37 No.4562628 Report 
- Quoted By: >>4562634 
->>4562609
-I'm hoping for this.
-Otherwise my Katina/ Dumi OTP is scuppered. 
-SEED D Cagalli !!U5xc0wG3iH0 Sat 20 Feb 2010 23:44:37 No.4562634 Report 
->>4562628
+Johnathan Kazahara looks at the pile of scrap that fills the hangar of the Trilobite. "Damn... better take stock..."
 
-No, we just get to express ourselves sexually while fighting Dumi then.
-
-Which is right up Katina's alley, to be honest. 
-Sciencegar Sciencebolt Sat 20 Feb 2010 23:48:37 No.4562652 Report 
- Quoted By: >>4562668 
->>4562686 
->>4562697 
- Johnathan Kazahara looks at the pile of scrap that fills the hangar of the Trilobite. "Damn...better take stock..."
+---
+```
 
 TRILOBITE 1:
 1-4:Raioh and Unit 4, undamaged
@@ -314,205 +284,22 @@ Bergelmir: Fine
 Thrudgelmir: Regenerating and recharging slowly.
 Cerberus remains
 Torn-out cockpit block of the Garmraid. 
-SEED D Cagalli !!U5xc0wG3iH0 Sat 20 Feb 2010 23:51:37 No.4562666 Report 
- Start with the Angelg, Vysaga, Huckebein EX, Granzon... pretty much everything that's minorly damaged.
+```
+---
 
-And also make sure nobody else Machine Cell's up their machine. Can't be too careful. 
-Stealthyboy !fchRKomfls Sat 20 Feb 2010 23:51:37 No.4562668 Report 
- Quoted By: >>4562672 
->>4562652
-We'd better repair the Redspenst before Ibis sees it, otherwise we'll have someone on the casualty list... 
-SEED D Cagalli !!U5xc0wG3iH0 Sat 20 Feb 2010 23:53:37 No.4562672 Report 
- Quoted By: >>4562678 
->>4562668
+The crew of the Taussendfuessler start in shock at the cockpit of the enemy super is opened. Ring turns away, looking ill. Masaki looks like he actually will get ill. Ryuune grits her teeth in anger. The young teenaged Cynthia starts to cry. Even Wodan grits his teeth at what he sees.
 
-No, if Ibis sees it we comfort her in the most compassionate and caring way possible. This may possibly lead to sex.
+Jayce looks disgusted. "We've gotta cut him out of there... we can cut him out of there, right?"
 
-But it would DEFINITELY lead to Ibis Relationship Levelup. 
-Stealthyboy !fchRKomfls Sat 20 Feb 2010 23:54:37 No.4562678 Report 
->>4562672
-As long as we keep her from harming Irm, I'm ok with this. 
-Sciencegar Sciencebolt Sat 20 Feb 2010 23:55:37 No.4562680 Report 
- Quoted By: >>4562690 
->>4562692 
->>4562746 
->>4562804 
- The crew of the Taussendfuessler start in shock at the cockpit of the enemy super is opened. Ring turns away, looking ill. Masaki looks like he actually will get ill. Ryuune grits her teeth in anger. The young teenaged Cynthia starts to cry. Even Wodan grits his teeth at what he sees.
+Shuu looks impassively at the young red-haired man, and the organic outgrowths that have been crudely grafted to his body. "So this is the face of my enemy... to them, the human body is but a plaything. My knowledge of medicine is not perfect, Mr. Starlord, but I do believe extracting these people from the organic apparatus is our first priority. If nothing else, we have to ascertain if they're still human..." 
 
-Jayce looks disgusted. "We've gotta cut him out of there....we can cut him out of there, right?"
+---
 
-Shuu looks impassively at the young red-haired man, and the organic outgrowths that have been crudely grafted to his body. "So this is the face of my enemy...to them, the human body is but a plaything. My knowledge of medecine is not perfect, Mr. Starlord, but I do believe extracting these people from the organic apparatus is our first priority. If nothing else, we have to ascertain if they're still human..." 
-Anonymous Sat 20 Feb 2010 23:56:37 No.4562686 Report 
->>4562652
-Top priorities:
+A segment of the Trilobites medical bay is warded off, and the captives transferred in. Shine shudders as they pass her bed.
 
-Gespent Kai.
-Granzon.
-Soulgain.
-Restock all mechs with ammo and energy.
+"They... they have grim futures..."
 
-Mid-level priority:
-
-Everything that needs minor repairs.
-
-Low level priorities:
-
-Grunts (Redspent, Bluespent, Schitzwald).
-
-No priority at all:
-
-Thrud.
-Berg.
-All undamaged mechs. 
-Anonymous Sat 20 Feb 2010 23:56:37 No.4562689 Report 
- Quoted By: >>4562700 
- what happened to the armorlion? 
-Stealthyboy !fchRKomfls Sat 20 Feb 2010 23:57:37 No.4562690 Report 
- Quoted By: >>4562786 
->>4562680
-Oh fuck.
-Get the fucking HAZMAT suits out.
-No one physically touch that thing. I'm getting Getter Robo Armageddon Invaders flashbacks again. 
-SEED D Cagalli !!U5xc0wG3iH0 Sat 20 Feb 2010 23:58:37 No.4562692 Report 
->>4562680
-
-;_;
-
-You officially have the best Shu ever. 
-Anonymous Sat 20 Feb 2010 23:58:37 No.4562697 Report 
->>4562652
-
-First priority is to repair everything that needs minor repair.
-
-After that focus majority of mechanics to Thrud and Genspenst Kai, while rest focus on Schuztwald.
-
-Then concernate on Genspenst and check the new mechas.
-
-At last, repair Soulgain. 
-Sciencegar Sciencebolt Sat 20 Feb 2010 23:59:37 No.4562700 Report 
- Quoted By: >>4562720 
->>4562776 
->>4562689
-
-It returned to the Rhinos, with the rest of the DC survivors. The Vegalion just couldn't make the distance without the Altairlion supporting it, so they both went for the much closer Trilobites. 
-Sanger Zombolt! Sun 21 Feb 2010 00:03:37 No.4562720 Report 
- Quoted By: >>4562728 
->>4562700
-You still haven't answered my question.
-
-Is the Hagane completely scrapped? Will we see it again in the future?
-
-Is it actually a gigantic Einst in disguise? 
-Stealthyboy !fchRKomfls Sun 21 Feb 2010 00:06:37 No.4562728 Report 
->>4562720
->a gigantic Einst in disguise?
-
-Don't give him ideas like that. 
-Anonymous Sun 21 Feb 2010 00:10:37 No.4562746 Report 
->>4562680
-We need to have the people on the other ships get in touch and find out about this.
-
-Especially Kai. 
-Anonymous Sun 21 Feb 2010 00:20:37 No.4562776 Report 
- Quoted By: >>4562780 
->>4562783 
->>4562700
-Hey, what was the name of that blog that someone was linking the easymodo archives too? I need to read thread 22, missed Katina's entrance. 
-Stealthyboy !fchRKomfls Sun 21 Feb 2010 00:21:37 No.4562780 Report 
->>4562776
-Team Phantom Tiger. 
-Haken Browning !zHe7DH816A Sun 21 Feb 2010 00:22:37 No.4562783 Report 
- Quoted By: >>4562787 
->>4562789 
->>4562776
-http://teamphantomtiger.blogspot.com
-
-Dunno why Sciencegar asks you to Google it, I'm not the #1 result yet. 
-SEED D Cagalli !!U5xc0wG3iH0 Sun 21 Feb 2010 00:23:37 No.4562786 Report 
- Quoted By: >>4562791 
->>4562690
-
-I'm not too worried, but we do need to play it safe. I suggest the Blood test from The Thing.
-
-http://www.youtube.com/watch?v=FkNyC6MQMj0 
-Sciencegar Sciencebolt Sun 21 Feb 2010 00:23:37 No.4562787 Report 
->>4562783
-
-After all the shit we've been going through this week, I don't want to take chances. 
-Stealthyboy !fchRKomfls Sun 21 Feb 2010 00:23:37 No.4562789 Report 
- Quoted By: >>4562803 
->>4562783
-I think he's a bit wary of linking to anything after his ban. 
-Stealthyboy !fchRKomfls Sun 21 Feb 2010 00:25:37 No.4562791 Report 
- Quoted By: >>4562806 
->>4562786
-Well we don't exactly know how the Einst corrupt a human body into one of those things. And I don't intend to find out any time soon. 
-Haken Browning !zHe7DH816A Sun 21 Feb 2010 00:29:37 No.4562803 Report 
->>4562789
-Eh, turns out he was just accidentally firing anti-AT autoban flags that one time. The Stealthraubtier intro was supposed to start with "What the heck?" instead of "...the fuck?", but AT had used it as a preface two spambots back. 
-Anonymous Sun 21 Feb 2010 00:29:37 No.4562804 Report 
- Quoted By: >>4562837 
->>4562680
-shit is invaders. 
-get the biohazard suits and PURGE WITH FLAME 
-SEED D Cagalli !!U5xc0wG3iH0 Sun 21 Feb 2010 00:30:37 No.4562806 Report 
- Quoted By: >>4562813 
->>4562791
-
-Yeah, but it would be fun to do.
-
-Plus it would give Katina an excuse to use a knife. 
-Stealthyboy !fchRKomfls Sun 21 Feb 2010 00:31:37 No.4562813 Report 
- Quoted By: >>4562818 
->>4562806
-We may be crazy, but we're not suicidal. 
-SEED D Cagalli !!U5xc0wG3iH0 Sun 21 Feb 2010 00:33:37 No.4562818 Report 
- Quoted By: >>4562833 
->>4562813
-
-I mean to get everyone's blood in the event of a blood test, not to try to kill Einst with. 
-Stealthyboy !fchRKomfls Sun 21 Feb 2010 00:38:37 No.4562833 Report 
- Quoted By: >>4562857 
->>4562818
-I thought you meant testing to see how an Einst corrupts a human. 
-Anonymous Sun 21 Feb 2010 00:39:37 No.4562837 Report 
- Quoted By: >>4562848 
->>4562890 
->>4562804
-Maybe not. Excellen got better, even if she wasn't made one with the Weiss like this situation. And hopefully Masaki and Lune will mention at least a little about that, letting our good Doctor Shirikawa know that de-Einstifacation is possible. 
-View SameGoogleiqdbSauceNAO selena plaga.png,  8KiB, 256x256 
- 
-Anonymous Sun 21 Feb 2010 00:43:37 No.4562848 Report 
- Quoted By: >>4562861 
->>4562890 
->>4562898 
->>4562837
-There is a problem though.
-
-Unlike Excellen, who was being mind-controlled, these Einst actually....ummm......live inside the host's body. Like Las Plagas from Resident Evil.
-
-We could probably try to restore the host's memory, or make the Einst inside believe it is truly the person it is impersonating or simply make it regret fighting against us, like Alfimi. 
-SEED D Cagalli !!U5xc0wG3iH0 Sun 21 Feb 2010 00:46:37 No.4562857 Report 
->>4562833
-
-Ah. Well, glad we got that cleared up. 
-View SameGoogleiqdbSauceNAO PrototypeAlexMercer.png,  2MiB, 1734x1172 
- 
-Anonymous Sun 21 Feb 2010 00:47:37 No.4562861 Report 
->>4562848
-So we would have Alex Mercer in our team if we succeed? 
-Sciencegar Sciencebolt Sun 21 Feb 2010 00:47:37 No.4562863 Report 
- Quoted By: >>4562880 
->>4562899 
->>4562901 
->>4562908 
->>4562918 
->>4562953 
- A segment of the Trilobites medical bay is warded off, and the captives transferred in. Shine shudders as they pass her bed.
-
-"They...they have grim futures..."
-
-Irm grimaces. "Well, at least they'll have futures. Shuu says he can fix them...most of the way."
+Irm grimaces. "Well, at least they'll have futures. Shuu says he can fix them... most of the way."
 
 "Might not be worth it."
 
@@ -524,7 +311,7 @@ Irm grimaces. "Well, at least they'll have futures. Shuu says he can fix them...
 
 "....And?"
 
-"Well...maybe you'd like to tell us a little bit more about that?"
+"Well... maybe you'd like to tell us a little bit more about that?"
 
 "Who do you think you are, you anarchist? I'm Princess Shine Hausen, monarch of Riksent-in-exile, and Major in the EFA army. You and your thugs are nothing but a bunch of terrorist, starting wars for your own amusement and-"
 
@@ -534,111 +321,7 @@ Irm swings around to the other bed in the room. "Axel??!"
 
 "...Where's my jacket?"
 
-WHERE IS KATINA RIGHT NOW? 
-Anonymous Sun 21 Feb 2010 00:48:14 No.4562865  Report 
->>4561760
-Stop spamming AɳoɳTa|k.com with your stupid shit. 
-Haken Browning !zHe7DH816A Sun 21 Feb 2010 00:52:37 No.4562880 Report 
->>4562863
-Sleepin' it off 'cause she had to do all this without breakfast. 
-Sciencegar Sciencebolt Sun 21 Feb 2010 00:54:37 No.4562890 Report 
->>4562837
->>4562848
-
-On Kyosuke route in OG1, theres a point where Ingram captures Excellen, and he and Atad comment that they can't mind-control her all the way, because her body is actually about 80% non-earth matter. The Einst didn't just ressurect her in the shuttle crash, they basically reconstructed her. She's a human made from einst matter, and she was still able to break their control and go with humanity.
-
-Also, if you check thread 10, I'm going with the idea that Excellen is at least partly empathic with the Rien Wiessritter. I'm not sure how canonical that is, but they have to be linked somehow for it to survive post-Stern Regissuer, and a physical connection is too squicky for a happy couple like Kyo/Excellen. 
-Anonymous Sun 21 Feb 2010 00:56:37 No.4562898 Report 
->>4562848
- All we know so far is that the pilots died, and were resurrected, suggesting they fused with an Einst. Then they get controlled by them.
-Excellen died in the shuttle crash, and fused with an Einst and was resurrected, and while not all fused in with the Weiss, was eventually controlled by them.
-So there are similarities.
-It could be possibile that even if we can't totally restore them, maybe at least break them free of the control, and give them a chance to get payback for what's been done to them. Aqua obviously has no love for what she's become, I while we didn't hear a peep from Hugo, I doubt he's thrilled either. 
-Anonymous Sun 21 Feb 2010 00:56:37 No.4562899 Report 
->>4562863
-Checking to see if the Machine Cells have made any changes to her unit.
-
-Also calling at Irm across the hanger "Ooh! You broke Ibis' friend's mech! You're gonna get in twuble!" 
-GUNDAMU !0smG1gQz9c Sun 21 Feb 2010 00:57:37 No.4562901 Report 
->>4562863
-God, Shine's infuriating. Next chance we get, I vote we teach her just how much nobody gives a fuck who she is. A lesson involving shoving the cold truth about this shit right in her face. Possibly in the form of Katina's boot.
-
-As for where Katina is, I'd guess she's getting a medical exam. She's been exposed to machine cells twice now, and neither time was entirely willingly. 
-Anonymous Sun 21 Feb 2010 00:59:37 No.4562908 Report 
- Quoted By: >>4562920 
->>4562945 
->>4563032 
->>4562863
-
-comforting Ibis about Red genspenst...While eating a burger. 
-Anonymous Sun 21 Feb 2010 01:01:37 No.4562918 Report 
->>4562863
-Shine should shut the fuck up. She has been very, very wrong before. 
-
-Katina should tell her to shut the fuck up about her stupid premonition. 
-Anonymous Sun 21 Feb 2010 01:02:37 No.4562920 Report 
- Quoted By: >>4562928 
->>4562938 
->>4562908
-
-Seconding Comforting Ibis...
-
-...In a non-comforting vaguely sexual manner. 
-SEED D Cagalli !!U5xc0wG3iH0 Sun 21 Feb 2010 01:04:37 No.4562928 Report 
- Quoted By: >>4562945 
->>4562920
-
-No, this is Ibis. She's going to be shaken up by this. We need to win her over. The Shadow Mirrors have enough trouble when we get in one of our moods, they don't need TWO psychos. 
-Anonymous Sun 21 Feb 2010 01:09:37 No.4562938 Report 
- Quoted By: >>4562944 
->>4562945 
->>4562920
-Thirding comforting Ibis, except actually comforting. 
-Anonymous Sun 21 Feb 2010 01:11:37 No.4562944 Report 
->>4562938
-We also need to crush Shine's spirit again. Make her realize that our team is the only safe place for her. 
-Sciencegar Sciencebolt Sun 21 Feb 2010 01:11:37 No.4562945 Report 
- Quoted By: >>4562951 
->>4563032 
->>4563055 
->>4562938
->>4562928
->>4562908
-
-Point: Ibis is on the other Trilobite, she hasn't actually seen the state of the Redpenst yet.
-
-...Are we going to tell her? 
-SEED D Cagalli !!U5xc0wG3iH0 Sun 21 Feb 2010 01:13:37 No.4562951 Report 
->>4562945
-
-She might have heard about it from some other source. We should still talk to her; if she's seeming upset then that's likely the reason why and it's our duty to cheer her up by being compassionate for once.
-
-That way, you know, adding her to the harem. 
-Anonymous Sun 21 Feb 2010 01:13:37 No.4562953 Report 
->>4562863
-Shine needs to get it into her head that she's our prisoner and doesn't get to talk to us the way she does.
-
-We need to arrange a chance to take a shift guarding her alone so we can spend a few hours making stuff VERY clear to her. 
-Anonymous Sun 21 Feb 2010 01:33:37 No.4563032 Report 
->>4562945
-
-Then I suggest that we break shine...And possible be ready to defend Lamia the Jacket thief from Axel.
-
-BTW I am the >>4562908 Anon.... 
-Anonymous Sun 21 Feb 2010 01:38:37 No.4563055 Report 
- Quoted By: >>4563070 
->>4562945
-...GOOD POINT.
-
-We can tell her later. For now, I think we should see how Kai is doing. Maybe see if we can actually hammer out some sort of combo attack. 
-Anonymous Sun 21 Feb 2010 01:42:37 No.4563070 Report 
->>4563055
-
-We should also prepare preparations so we can hide Redpenst if Ibis comes over.... SHE MUST NEVER KNOW! 
-Sciencegar Sciencebolt Sun 21 Feb 2010 01:47:37 No.4563098 Report 
- Quoted By: >>4563154 
->>4563173 
- "Don't think I can't hear you, even out here." You kick in the door and start yelling at Shine. "I thought I taught you to shut your mouth about your so-called credentials, when you're barely out of daipers...Oh, hey Axel. Looking kinda studly there."
+"Don't think I can't hear you, even out here." You kick in the door and start yelling at Shine. "I thought I taught you to shut your mouth about your so-called credentials, when you're barely out of daipers... Oh, hey Axel. Looking kinda studly there."
 
 Down to his boxers, Axel casts about the room for his clothes. "Did the orderlies toss them out, or something?"
 
@@ -942,30 +625,20 @@ Sciencegar Sciencebolt Sun 21 Feb 2010 06:06:37 No.4564658 Report
 
 "I thought Lemon said it wasn't going to be finished for months..."
 
-May I continue?
+*May I continue?*
 
 "Sure, I guess..."
 
-The EFAs major tactical advantage is its supremacy in space, and its total control over the satellite network. With these eyes in the sky, they can track virtually anything on the planet, so long as they have enough into to find it. The Shadow Mirrors can evade their detection with the Stealth Shades on the Trilobites, but the issue is with our allies. The Rhinoceros class ships were build with the intent of open warfare, not clandestine operations, thus don't have such adapations.
+*The EFAs major tactical advantage is its supremacy in space, and its total control over the satellite network. With these eyes in the sky, they can track virtually anything on the planet, so long as they have enough into to find it. The Shadow Mirrors can evade their detection with the Stealth Shades on the Trilobites, but the issue is with our allies. The Rhinoceros class ships were build with the intent of open warfare, not clandestine operations, thus don't have such adapations.*
 
 "Yeah, we covered all that..."
 
-To avoid detection we need to break the EFAs tracking long enough for the Rhinos location to change, that they cannot find them instantly once tracking resumes. A distraction would be one option, but to divert the attentions of all the EFA satellites it would have to be a large-scale assault, against a major facility. And as Irm pointed out, there are no such bases on the continent.
+*To avoid detection we need to break the EFAs tracking long enough for the Rhinos location to change, that they cannot find them instantly once tracking resumes. A distraction would be one option, but to divert the attentions of all the EFA satellites it would have to be a large-scale assault, against a major facility. And as Irm pointed out, there are no such bases on the continent.*
 
 "So that leaves us back where we started? Man, this is a dumb computer."
 
-There is no target on the continent, but there is a target within 1000 kilometers.
+*There is no target on the continent, but there is a target within 1000 kilometers.*
 
 "What target?"
 
-One of the satellites themselves. 
-
-Subject 
-Name 
-E-mail 
-Password 
- 
- 
-FoolFuuka Imageboard 2.0.0-dev-0 - Asagi Fetcher  Change Theme   
- Change Language   
-FAQ - Credits & Links - Network Status - Blog
+*One of the satellites themselves. *
