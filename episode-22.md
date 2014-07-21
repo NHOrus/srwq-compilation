@@ -416,7 +416,7 @@ Irm raises an eyebrow. "Dr. Albark? He walked out of the TLI a year ago, on some
 
 The Vegalion and Altairlion fly out of the hangar and off to the Rhino, finally allowing the room for the R-Blade to be brought out of maintenance. Brooklyn looks her over, seeming to be relatively satisfied. "It's got good poise, and looks pretty light on its toes. It should suffice, Major."
 
-"Don't worry, I'll have the Vaisaga back to you once I've found what I need. " Axel turns to Irm. "Now, what exactly are the DC doing?"
+"Don't worry, I'll have the Vaisaga back to you once I've found what I need." Axel turns to Irm. "Now, what exactly are the DC doing?"
 
 "Vat Tran said his ships were headed for a more secure location in the Congo, but whether we can make it there undetected is another thing. The Trilobites and the Killer Whale with the DCs gear should be safe, but the Rhino kinda stick out, especially the Golden one."
 
