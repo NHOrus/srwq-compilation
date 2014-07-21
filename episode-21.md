@@ -246,7 +246,7 @@ The sphere of absolute darkness punches straight through the battleship and out 
 
 "...Not bad."
 
-    TURN 1 COMPLETE. ORDERS FOR NEXT TURN. 
+    TURN 1 COMPLETE.
 
 ---
 
@@ -262,7 +262,7 @@ Kai sets his jaw. "Albero Est is dead."
 
 "You're not him, you're just one of those green-blooded monsters with his voice."
 
-Albero laughs a cold laugh. "Probably. But, regardless, you're overdue for a killing, and...well, the bosses changed our motto, Kai."
+Albero laughs a cold laugh. "Probably. But, regardless, you're overdue for a killing, and... well, the bosses changed our motto, Kai."
 
 "Did they now?"
 
@@ -271,58 +271,30 @@ Albero laughs a cold laugh. "Probably. But, regardless, you're overdue for a kil
 "Cute."
 
 The two mechs charge at each other. 
-Anonymous Mk-II Sat 20 Feb 2010 04:34:12 No.4558549 Report 
- Quoted By: >>4558554 
->>4558526
-hey those guys are the perfect enemies for us, its a shame we are gonna have to kill em. 
-Stealthyboy !fchRKomfls Sat 20 Feb 2010 04:35:12 No.4558554 Report 
- Quoted By: >>4558588 
->>4558549
-It's not like killing them is really going to do anything...
-With them all Einsty, they'll be as difficult to kill permanently as the Beowulves. 
-Sciencegar Sciencebolt Sat 20 Feb 2010 04:43:12 No.4558587 Report 
- Irm grunts as shells rip up the left side of his Gespenst. "Slash Rippers! Cut them down!"
+
+---
+
+Irm grunts as shells rip up the left side of his Gespenst. "Slash Rippers! Cut them down!"
 
 The remote-control blades reach out and cut two of the drone pods from the air, while the third is crushed by a Jet Magnum. Irm pauses, then leans over: Sleigh's bright red Gespesnt is in bad shape.
 
 "Ibis'll kill me..."
+
 The Coating Sword stabs straight for Arados cockpit, but Russel interposes himself and blocks with his plasma stakes, entangling the blade. "Nows yer chance lad!"
 
-"Right!" The Guarlion boosts for hieght, and flies through the melee, glowing blue as the Breaker Field charges up. As Russels plasma stakes begin to melt from the strain, he impacts the Cerberus dead centre, shattering the Coating Sword and sending the unit flying.
+"Right!" The Guarlion boosts for height, and flies through the melee, glowing blue as the Breaker Field charges up. As Russels plasma stakes begin to melt from the strain, he impacts the Cerberus dead centre, shattering the Coating Sword and sending the unit flying.
 
 It lands on its feet, trips and rolls over, then tumbles into a crouch, with its railgun drawn. The first round takes the left hand off the Guarlion.
 
 "Cross Smasher!"
 
 The Cerberus' right arm and Terminus Cannon shatter to fragments as the red and blue streamers of energy eat away at it. Deprived of weapons, it falls silent. 
-View SameGoogleiqdbSauceNAO? 1252897713830.jpg,  109KiB, 608x467 
- 
-Anonymous Mk-II Sat 20 Feb 2010 04:44:12 No.4558588 Report 
->>4558554
-well the og numbers can kill them, what do you think because they regenerate they are unkillable?
-just blow the damn thing until there is nothing left.
-gespesnt unrelated but heh ... i just wanted to post it 
-Anonymous Sat 20 Feb 2010 04:51:12 No.4558618 Report 
- tear it to pieces and then bathe him with the cross smasher and whatever ammo is left. 
-Anonymous Sat 20 Feb 2010 04:52:12 No.4558621 Report 
- Quoted By: >>4558639 
->>4558659 
- ETA on Raioh? 
-Anonymous Sat 20 Feb 2010 04:57:12 No.4558639 Report 
- Quoted By: >>4558646 
->>4558659 
->>4558621
-It's EFA not ETA. 
-Anonymous Mk-II Sat 20 Feb 2010 05:00:12 No.4558646 Report 
- Quoted By: >>4558659 
->>4558639
-i believe he meant the Estimated Time of Arrival of the machine celled raioh. 
-Sciencegar Sciencebolt Sat 20 Feb 2010 05:04:12 No.4558656 Report 
- Quoted By: >>4558664 
->>4558694 
- As the burning fist strikes home, the Thrudgelmir goes flying backward, straight through the DC command centre and into the Lion hangars beyond. Tons of concrete and twisted metal fly through the air like dust motes. Then the white mech picks itself up. The shattered left arm begins to ooze back together, as the Drill Boost Knuckle reattached to the right.
 
-"Unless your attacks slay me in one hit....THEY ARE USELESS!!!"
+---
+
+As the burning fist strikes home, the Thrudgelmir goes flying backward, straight through the DC command centre and into the Lion hangars beyond. Tons of concrete and twisted metal fly through the air like dust motes. Then the white mech picks itself up. The shattered left arm begins to ooze back together, as the Drill Boost Knuckle reattached to the right.
+
+"Unless your attacks slay me in one hit... THEY ARE USELESS!!!"
 
 The Thrudgelmirs eyes burst with Green flame. "EYESLIT STORM!!!" Two bursts of green energy lance out and strike the Garmraid's recharging fist, blasting clean through and severing fingers. 
 
@@ -338,66 +310,14 @@ Dr. Nate frowns. "That's irrelevant. With the Machine Cell at your disposal, you
 The semi-tonal voice of Aquija cuts in. "Yes, you should be no stranger to cutting and running by this stage, Vatran."
 
 Vat Tran grimaces. "Well, the Haganes stopped firing, so we have our chance. Helmsman, get us to the coast ASAP, we'll meet up with the Killer Whale, and see if this Wodan fellow leaves us anything to work with." 
-Haken Browning !zHe7DH816A Sat 20 Feb 2010 05:05:12 No.4558659 Report 
->>4558621
->>4558639
->>4558646
-ETA of MC RaiOh legs on EFA asses, perhaps?
 
-My signs point to "right when we fucking need it." 
-Stealthyboy !fchRKomfls Sat 20 Feb 2010 05:07:12 No.4558664 Report 
- Quoted By: >>4558670 
->>4558689 
->>4558656
-Magus sure is wanting people to use Machine Cells now, isn't she?
+---
 
-Am I the only one worried by this? 
-Sciencegar Sciencebolt Sat 20 Feb 2010 05:10:12 No.4558670 Report 
- Quoted By: >>4558682 
->>4558664
-
-There was a lot of offscreen banter since the last time we saw Nate. Things were decided, behind closed doors. 
-Stealthyboy !fchRKomfls Sat 20 Feb 2010 05:11:12 No.4558682 Report 
- Quoted By: >>4558696 
->>4558670
-THIS DOES NOT LESSEN MY UNEASE. 
-Anonymous Mk-II Sat 20 Feb 2010 05:12:12 No.4558689 Report 
->>4558664
-you are not the only one. 
-Anonymous Sat 20 Feb 2010 05:14:12 No.4558694 Report 
->>4558656
->Omeda Disaster.
-
-...ugh...
-
-Anyway, we are going to turn tail and run now?
-
-Damn, I had hoped we would shoot down the damnet Hagane. We are already on mission 21, it's about time we blew up a big fish like this one. 
-GUNDAMU !0smG1gQz9c Sat 20 Feb 2010 05:15:12 No.4558696 Report 
- Quoted By: >>4558720 
->>4558682
-Come now.
-
-What could possibly go wrong? 
-Anonymous Mk-II Sat 20 Feb 2010 05:21:12 No.4558720 Report 
- Quoted By: >>4558741 
->>4558696
-remmember the last time someone tried untested technology in SRW?
-yeah the huckebeins vanishing thing that killed a lot of people, sure it was inspector doing behind the scenes but we better keep our guard up i can see some of that kinda of naive shit we do backfiring and making things worst. 
-Stealthyboy !fchRKomfls Sat 20 Feb 2010 05:25:12 No.4558728 Report 
- Quoted By: >>4558745 
->>4558761 
->>4558766 
- It's not the technology that worries me.
-It's the fact that it's Magus who's suggesting using it.
-Plus the DC've been discussing this behind our backs. 
-Sciencegar Sciencebolt Sat 20 Feb 2010 05:25:12 No.4558729 Report 
- Quoted By: >>4558759 
- The two coating swords dance around the Soldifar like a fretful partner, as Latooni desperately battles to keep the Medius from chopping her in half. The ramblings of the woman inside it aren't help her concentration.
+The two coating swords dance around the Soldifar like a fretful partner, as Latooni desperately battles to keep the Medius from chopping her in half. The ramblings of the woman inside it aren't help her concentration.
 
 "No!! Aqua, my precious daughter! They've beheaded you, dismembered you, defiled you! I'll never forgive them!"
 
-"Please....be quiet."
+"Please... be quiet."
 
 Blocking the two swords with her good hand, Latooni fires her beam machinegun into the Medius' stomach with the other. Chunks of torso fly off, but then black mechs leg comes up and kicks the gun away.
 
@@ -405,60 +325,17 @@ Blocking the two swords with her good hand, Latooni fires her beam machinegun in
 
 Latooni ducks just in time to avoid losing the Soldifars head, as Ibis boost into the fray, both autocannons rattling away. The Medius backs off as the shells burst off it.
 
-"Uwwaaaargh!! I...I must...Oh god, were am I...gotta run..."
+"Uwwaaaargh!! I... I must... Oh god, were am I... gotta run..."
 
 "Going somewhere?" The Cybuster flies down from the melee and stabs its blade into the heart of the black mess.
 
 "ARRRGHH!! ALL IN ONE! FIRST AND ONLY!!"
 
 The tentacles burst from the wound, and wrap around Cybusters arms. 
-Anonymous Sat 20 Feb 2010 05:30:12 No.4558741 Report 
- Quoted By: >>4558761 
->>4558720
-Exactly. That whole incident was rigged and it would have worked just fine if it wasn't for the inspectors.
 
-Every other time it wasn't rigged the whole thing worked out.
+---
 
-Just look at the Tronium Cannon. Untested in actual battle but saved the OGs asses when they stormed the DC base.
-
-Or the HTB cannon that wasn't tested properly but worked just fine when the SRX had to fend of the Einsts.
-
-Or the R-1 when it was first deployed. It was still very unstable but ended up saving Ryuse's ass when they needed it most.
-
-Or the DGGs when they were first introduced.
-
-Sure, some of them had issues at first but then they got over it. 
-Sanger Zombolt! Sat 20 Feb 2010 05:32:27 No.4558745 ? Report 
- Quoted By: >>4558750 
->>4558728
-And what are you gonna do about it? 
-
-We are grunts. We do what we are told and don't ask questions. 
-Sanger Zombolt! Sat 20 Feb 2010 05:34:27 No.4558750 ? Report 
->>4558745
-The only thing we can do is wait till shit happens and we are forced to fight against Magus. 
-Stealthyboy !fchRKomfls Sat 20 Feb 2010 05:36:12 No.4558759 Report 
->>4558729
->"Uwwaaaargh!! I...I must...Oh god, were am I...gotta run..."
-Sounds like the pilot's mind is still in there somewhere. Maybe we can-
->The tentacles burst from the wound, and wrap around Cybusters arms.
-
-Oh. Cock. 
-Anonymous Mk-II Sat 20 Feb 2010 05:37:12 No.4558761 Report 
->>4558728
-thats my point as well.
-
->>4558741
-still that was reckless as hell. lets just hope this shit ends the best way possible. 
-Sanger Zombolt! Sat 20 Feb 2010 05:38:12 No.4558766 Report 
->>4558728
-And what are you gonna do about it? 
-
-We are grunts. We do what we are told and don't ask questions. The only thing we can do is wait till shit happens and we are forced to fight against Magus.
-
-Don't worry about things that will happen no matter what we do. Just wait till it happens and then let's kick the problem into oblivion. 
-Sciencegar Sciencebolt Sat 20 Feb 2010 05:45:12 No.4558778 Report 
- Admiral Webley waves away the damage report and turns to his comms officer. "Where the hell are the Giganspadas? They're supposed to be guarding our flanks!!"
+Admiral Webley waves away the damage report and turns to his comms officer. "Where the hell are the Giganspadas? They're supposed to be guarding our flanks!!"
 
 "Giganspada 1 is heavily engaged, cannot respond! Giganspada 2, breaking off!!"
 
@@ -480,35 +357,10 @@ Missiles fly everywhere as Spada 1 fights off the DCs newest units, and fails mi
 "T-Toby! Watch out!!!"
 
 And then the monsters are upon them. 
-Anonymous Sat 20 Feb 2010 05:46:12 No.4558779 Report 
- Fuck. I guess we really gotta kill the Einst infected characters. I thought we could save them. 
-Sciencegar Sciencebolt Sat 20 Feb 2010 05:46:12 No.4558781 Report 
- Quoted By: >>4558804 
->We are grunts. We do what we are told and don't ask questions
 
-Isn't this the mindset that led to the Evil Overlord route discussion a few threads back? 
-Anonymous Sat 20 Feb 2010 05:47:12 No.4558783 Report 
-http://forums.mariosworld.org/showthread.php?t=217 
-Anonymous Sat 20 Feb 2010 05:48:12 No.4558784 Report 
- Quoted By: >>4558788 
- Oh, boy, here we go, more Evil for the Lulz discussion looming... 
-Stealthyboy !fchRKomfls Sat 20 Feb 2010 05:49:12 No.4558788 Report 
->>4558784
-Overlord route != Evil for the lulz.
+---
 
-Well, not necessarily. 
-Sanger Zombolt! Sat 20 Feb 2010 05:55:12 No.4558804 Report 
- Quoted By: >>4558811 
->>4558781
-I am not trying to start a discusion like that.
-
-I just wanted to say that we can't do shit about all those conspiracies and talks behind our backs, and whatever happens, happens.
-
-We don't need to break unnnecesary sweat for events that can't be stopped. Did any of us constantly worry about the Shadow Mirrors joining with the Inspectors in OG2 with all the talking behind the shadows they did there?
-
-I don't think so. We just had to deal with that problem when it eventually happened. 
-Sciencegar Sciencebolt Sat 20 Feb 2010 05:56:12 No.4558810 Report 
- Jayce finishes his half-loop and comes up behind the Cry Wolf, blasting it in the back with beam cannon and missiles. The Tesla Drive fails and the Gespenst is sent to the ground, where half its fellows are already lying.
+Jayce finishes his half-loop and comes up behind the Cry Wolf, blasting it in the back with beam cannon and missiles. The Tesla Drive fails and the Gespenst is sent to the ground, where half its fellows are already lying.
 
 But to even stop that few, the DC have paid a terrible cost. There are but a handful of Lions left, and the remainder are in retreat. The Cry Wolves fall on the Barrellions, and begin beating them down, the vunerable artillery units being no match for the enhanced Jet Magnums.
 
@@ -521,18 +373,14 @@ Jayce swings around, trying to find a fight he can actually help to win, and spo
 "TOBY!!!" The Altairlion transforms and dives after the falling red AM.
 
 "-finish them off." 
-Sanger Zombolt! Sat 20 Feb 2010 05:56:12 No.4558811 Report 
->>4558804
-So what if Sophia is really Magus? Well....sucks to be her. Non-protagonist villains never win in SRW.....except in bad ends. 
-Sciencegar Sciencebolt Sat 20 Feb 2010 06:09:12 No.4558837 Report 
- Quoted By: >>4558855 
->>4558882 
->>4559600 
- "Barrel warp within limits...lets try her again!!" Ring reattaches the Black Hole Cannon, and once again, the air around her turns purple as reality prepares to vomit itself inside out.
+
+---
+
+"Barrel warp within limits...lets try her again!!" Ring reattaches the Black Hole Cannon, and once again, the air around her turns purple as reality prepares to vomit itself inside out.
 
 "Admiral, its preparing to attack again!!!"
 
-"Goddamned insect...Prepare manuver Delta-3! Watch for the peak gravity distortion...."
+"Goddamned insect... Prepare manuver Delta-3! Watch for the peak gravity distortion..."
 
 A sphere forms inside the cannon and launches itself down the barrel, towards the Haganes rear.
 
@@ -544,19 +392,17 @@ Sean grabs desperately to his command chair to avoid being thrown to the floor. 
 
 Beams, bullets and missiles fly at the red mech, and Ring throws it into full boost simply to avoid the stream of destruction. Something twangs off one of the rear wings, as she curses herself for managing to miss a battleship...
 
+---
 
 Brooklyn pulls out of his dive and land on the tarmac, next to the fresh furrow thats been dug through the base. He turns to face the advancing Garmraid, as it picks up speed again.
 
 "Well, I've broken my lance on the main prize...lets see what the other contestants are like!"
 
 The Vaisaga leaps forward, cutting into the Garmraids flank, and drawing something like blood. But then Brooklyn dances backward to avoid a massive fist, and raises his blade to deflect a forehead beam. "It seems theres still fight in you! Excellent!! It's a duel!!" 
-Anonymous Mk-II Sat 20 Feb 2010 06:14:12 No.4558855 Report 
->>4558837
-bullet his awesome and we should spend more time with him. just dont take his moralfagottry seriously 
-Sciencegar Sciencebolt Sat 20 Feb 2010 06:16:12 No.4558858 Report 
- Quoted By: >>4558877 
->>4558916 
- "Are you getting all this, Director?"
+
+---
+
+"Are you getting all this, Director?"
 
 "Yes, the StealthFalkens image-gathering abilities are excellent, as expected."
 
@@ -572,172 +418,10 @@ Kirk Hamill ignores the Black Knights jibe and bends over to whisper to Director
 
 "The Irregulars?"
 
-"This is a concentration of firepower unheard of outside of our own base. It's taking on the Hagane and more than holding its own. This group could end up being very useful...if they survive."
+"This is a concentration of firepower unheard of outside of our own base. It's taking on the Hagane and more than holding its own. This group could end up being very useful... if they survive."
 
 The Black Knight speaks up again. "Any further orders, Director?"
 
 "No. Continue observation until I say so. The next few minutes may be critical.
 
-TURN 2 END.
-ORDERS FOR TURN 3? 
-Anonymous Mk-II Sat 20 Feb 2010 06:24:12 No.4558877 Report 
- Quoted By: >>4558909 
->>4558858
-kill em all, there will be no escape, rip and tear etc.
-focus on designated targets and run em down, stop shooting/slash/kick/punch unless the pilots are absolutely sure there is nothing left. the hagane would make a good start but there is more dangerous shit running around. 
-Stealthyboy !fchRKomfls Sat 20 Feb 2010 06:25:12 No.4558882 Report 
- Quoted By: >>4558887 
->>4558837
-Has anyone else ever wondered if Kirk Hamill is related to Manami Hamill?
-
-If they are, things could get interesting, considering Manami has the Zweizergain, the Koryuoh and is going after the KRO's SMverse counterparts... 
-View SameGoogleiqdbSauceNAO? Toby Watson.jpg,  139KiB, 698x516 
- 
-SEED D Cagalli !!U5xc0wG3iH0 Sat 20 Feb 2010 06:28:12 No.4558885 Report 
- Quoted By: >>4558891 
- Waiiiiit...
-
->Toby
-
-Don't tell me...
-
-Cybuster and Masaki become Einstified and turn into Shurouga and Asakim and kill them? 
-Anonymous Mk-II Sat 20 Feb 2010 06:29:12 No.4558887 Report 
->>4558882
-wouldnt be better if once we know where they are keeping vindel,lemon and zwei we storm their fortress, kill some of the guys inside, escapee with prisioners and mech then blow all to bits. special ops kinda of shit. 
-Anonymous Sat 20 Feb 2010 06:30:12 No.4558889 Report 
->>4555698
-WE ARE OSCAR MIKE
-KATINA DO EVERYTHING! 
-View SameGoogleiqdbSauceNAO? 1266456717114.jpg,  29KiB, 350x256 
- 
-Stealthyboy !fchRKomfls Sat 20 Feb 2010 06:31:12 No.4558891 Report 
->>4558885
->Asakim 
-Jerid Messa !!AbDOcayw4O/ Sat 20 Feb 2010 06:33:12 No.4558899 Report 
- Hmm we're kicking ass but at the same time the DC have taken a serious beating. I doubt we'll be able to take down the Hagane this battle and EFA reinforcements will probably show up soon so I suggest we start pulling back gradually. 
-Sanger Zombolt! Sat 20 Feb 2010 06:35:12 No.4558909 Report 
->>4558877
-These guys are kicking our asses. I doubt rushing them aggressively will do much.
-
-But then again, we have to get our asses kicked before the Raioh appears so whatever.
-
-What this man said: Keep doing what they are doing right now.
-
-And perphaps you could make Bullet do a High-speed rush to cut as much Hagane-turrets as he can. 
-Zeta Zaku Sat 20 Feb 2010 06:37:12 No.4558916 Report 
- Quoted By: >>4558990 
->>4558858
->Giganspadas destroyed, Cerberus disabled
->All Lion squads out of commission. 
-
-Okay. Have Kai continue to engage Albero. Irm, Arado, Russel and Jayce should move to cover Star Team. If we can at least pummel the Gespents enough to begin a regen cycle we can regain the initiative. Hugo seems entirely focused on Wodan and Bullet, so he's taken care of.
-
-With Sean focusing all his fire on Ring, he should be open, and the Rathgrith can shove F-Solid shells up its engine block. Have Lamia join in. 
-
-Restraining the Cybuster has to be a full-round action at least, so have Ibis, Lat, and Ryunne pummel Elvy until she can't afford to keep him pinned. Take different angles so she can't use him as a shield. 
-Stealthyboy !fchRKomfls Sat 20 Feb 2010 06:39:12 No.4558926 Report 
- Quoted By: >>4558990 
->>4559236 
- Have Ring attack the Hagane's bridge in melee, they won't be able to dodge a Roche sabre that easily. 
-Anonymous Sat 20 Feb 2010 06:59:12 No.4558990 Report 
->>4558916
->>4558926
-this 
-Anonymous Sat 20 Feb 2010 07:33:12 No.4559161 Report 
- Quoted By: >>4559173 
- UUUUUAAAAAAAAAAAAAAAAAAAAAAAAAAAAGH!!! 
-GUNDAMU !0smG1gQz9c Sat 20 Feb 2010 07:35:12 No.4559173 Report 
->>4559161
-I agree.
-
-Have Katina jump onto the roof of the nearest ship or base, and assume "The Pose" in the newly formed Machine Cell DaiRaioh.
-
-AND THEN ULTRA INAZUMA KICK THE FUCK OUT OF SOMETHING. 
-Anonymous Sat 20 Feb 2010 07:45:12 No.4559236 Report 
- Quoted By: >>4559252 
->>4558926
-attacking the hagane in melee seems a little too risky with the barrage they're putting up. 
-Stealthyboy !fchRKomfls Sat 20 Feb 2010 07:47:12 No.4559252 Report 
- Quoted By: >>4559260 
->>4559236
-Actually, melee is the best range when faced with a barrage of fire, as the fire angles mean less turrets can shoot the same target. 
-Anonymous Sat 20 Feb 2010 07:48:12 No.4559260 Report 
- Quoted By: >>4559277 
->>4559252
-But first you must go throught the barrage of fire. The Hucky can't take that punishment or dodge that many shots. 
-Anonymous Sat 20 Feb 2010 07:50:12 No.4559277 Report 
- Quoted By: >>4559436 
->>4559260
-Plus, this Hagane has giant frag mines on it's hull.
-Vysaga can tank those hits, the Huckebein probably wouldn't fare so well. 
-Stealthyboy !fchRKomfls Sat 20 Feb 2010 08:18:12 No.4559436 Report 
- Quoted By: >>4559439 
->>4559526 
->>4559277
-Do you really think they'd place anti-PT scale mines right next to their bridge? I'd have thought that'd be a bit suicidal. 
-Anonymous Sat 20 Feb 2010 08:18:12 No.4559439 Report 
- Quoted By: >>4559452 
->>4559436
-Then again, these are Einst we are fighting against. 
-Stealthyboy !fchRKomfls Sat 20 Feb 2010 08:20:12 No.4559452 Report 
- Quoted By: >>4559486 
->>4559439
-We've seen no evidence yet that the bridge crew of the Hagane are Einst. It's possible, but not necessarily so. 
-Anonymous Sat 20 Feb 2010 08:25:12 No.4559486 Report 
->>4559452
-If they even dared place those mines all over the Hagane and risk killing part of the crew.... 
-Anonymous Sat 20 Feb 2010 08:29:12 No.4559526 Report 
- Quoted By: >>4559544 
->>4559436
-Why not? The explosions can't be enough to damage the inside of the ship in any significant way, or they wouldn't even have the things. And they would be be designed so that frag only goes outwards, not in towards actually hitting the bridge or anything. 
-Stealthyboy !fchRKomfls Sat 20 Feb 2010 08:31:12 No.4559544 Report 
- Quoted By: >>4559639 
->>4559767 
->>4559526
-Well, I can understand them being on armoured areas of the hull, but the bridge area is significantly weaker due to the necessity of windows to see out of. Placing mines near there sounds daft to me. 
-SEED D Cagalli !!U5xc0wG3iH0 Sat 20 Feb 2010 08:34:12 No.4559558 Report 
- The mines are specifically designed to blast outward. Damage to the Hagane would actually be quite minimal, especially if it was primarly a shrapnel/fragmentation type mine, which it seems to be.
-
-If we're going to attack the bridge, we need to safeguard that area first by attacking the hell out of it in the hopes we might prematurely detonate the mines.
-
-If push comes to shove and it's a matter of defeat or victory, I am all for attacking the Hagane's bridge. But let's not do anything hasty just yet. 
-View SameGoogleiqdbSauceNAO? 54.jpg,  46KiB, 1278x540 
- 
-Anonymous Sat 20 Feb 2010 08:42:12 No.4559600 Report 
->>4558837
->Sean grabs desperately to his command chair to avoid being thrown to the floor. "Fire! Fire Everything!!" 
-Anonymous Sat 20 Feb 2010 08:52:12 No.4559639 Report 
- Quoted By: >>4559730 
->>4559544
-Unrelated, but why do they need windows to see outside? Why even have the bridge in such a dangerous place?
-
-Can't they just place the bridge in the center of the ship or something and use cameras as their eyes? I mean, that's the more logical thing to do, not to mention you can place cameras everywhere and not be limited by the window. 
-Anonymous Mk-II Sat 20 Feb 2010 09:19:12 No.4559730 Report 
->>4559639
-mecha anime shenenigans. 
-Anonymous Sat 20 Feb 2010 09:29:12 No.4559767 Report 
- Quoted By: >>4559955 
->>4559544
-The windows could be reinforced too. 
-Stealthyboy !fchRKomfls Sat 20 Feb 2010 10:09:12 No.4559955 Report 
->>4559767
-No matter how strong you make the windows, they'll never be as strong as several feet of steel (or whatever the hell a Space Noah's armour is made from) 
-Anonymous Sat 20 Feb 2010 13:13:12 No.4560525 Report 
- Quoted By: >>4560557 
- BAHMPUU! 
-Anonymous Sat 20 Feb 2010 13:23:12 No.4560557 Report 
->>4560525
-No wait its in autosage.
-
-Bugger. 
-
-Subject 
-Name 
-E-mail 
-Password 
- 
- 
-FoolFuuka Imageboard 2.0.0-dev-0 - Asagi Fetcher  Change Theme   
- Change Language   
-FAQ - Credits & Links - Network Status - Blog
+    TURN 2 END.
