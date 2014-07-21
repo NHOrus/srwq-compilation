@@ -339,85 +339,32 @@ You shrug.
 
 Irm is about to speak up when you jump in front of him and begin your tirade.
 
-HOMEWORK FOR THE LOT OF YOU: SUMMARIZE EVERYTHING THATS HAPPENED TO AXEL. You can do the whole story of everything thats happened to your group, or just cover what happened since Axel was KOed. Remember, this is from Katinas distinctly non-omniscient POV. Best entry goes into the next post. 
-Anonymous Sun 21 Feb 2010 01:58:37 No.4563154 Report 
- Quoted By: >>4563165 
->>4563169 
->>4563098
-"Ok, so, apparently we picked you up after you had a bad fight with some kick-ass real type. I was too busy checking out Mardi Gras, but Dumi told me what happened. ANYWAY we brought you and Bullet and Ensign Mickey back to the South America base while Irm, Kai, and Lat tried to figure out what to do. I led most of the rest of the team on a team building exercise! Yeah. But you were passed out, Lamia took your clothes to become a real person, and then Princess Prissy over there showed up and we had to bail.
+"Well, see your new roommate here? We caught her spyin' on us after we flew on down to South America for repairs and supplies from the underground cells. Picked up a couple of the Irregulars along the way, but no worries. They seem pretty cool so far. Anyway, the big news? Turns out she's from that super hot-shit brigade out east, the...S-E-X Force or some shit. Says she's got some kinda super mind-powers, sees the future or somethin', won't shut up about that crap. Anyway, after that we hooked up with that old DC guy and went off to the Earth Cradle to pick up some stuff. Turns out the head lady there was workin' on some new tech that makes robots heal or somethin', like your Soulgain, 'cept it don't eat at ya. It's really cool, we stuck some on Raioh and it fixed itself all nice and pretty-like. But the EFA, see, they want this stuff, so they sent down the Cry Wolves, who’re dead, 'cept they're not and now they're tentacle beasties, and they kicked all our asses. We got saved by this Wodan guy and his super-Grungust, and they all came back with us along with Sophia, the doc lady.”
+“Then we came back, and we forced Kai to tell us why we were fighting zombies in Africa. He says that the EFA is being run by space monsters now, and they're fighting Princess Future-Britches here's group. ‘Cept they’re not good either and we don’t know what they want ‘cause she won’t shut up about how special she is.” *Glare* “Anyway, they sent their big ship with the big gun and more of the same tentacle zombie Gespies after us just now, along with a bunch of weird fancy prototype mechs. We beat them before they blew us all up and captured a couple. You wanna see an alien, Axel?”
 
-We decided to bail cause the EFA would probably show up and hook up with some more DC guys. Oh, we had met with Ryuune Zoldark a while back and agreed to do something for her in exchange for gas. I forget what. So we saved Vat Tran's ass from some trio of battleships, hooked up with them, saved the remains of the Earth Cradle, then had an epic battle with the Hagane. Also we found out the EFA is basically split into two factions, one of which is made of evil alien tentacle monsters. We also picked up Echidna and her W-guys somewhere along the way, I was too busy kicking things to death to remember specifically."
+"...This is why I let Lemon handle this shit..." 
 
-I know I got some things out of order, but what the heck. 
-Haken Browning !zHe7DH816A Sun 21 Feb 2010 02:00:37 No.4563165 Report 
->>4563154
-Sounds a little hyper for 6-in-the-morning, just-got-out-of-battle Katina, but I'll accept it.
-
-Abstaining for obvious reasons. 
-BSRaven !!pZhu/eJf6iW Sun 21 Feb 2010 02:02:37 No.4563169 Report 
->>4563154
-You forgot to temporarily psycho with OH YEAH I MELTED A BATTLESHIP ON MY OWN.
-
-But it'll do. 
-Zeta Zaku Sun 21 Feb 2010 02:03:37 No.4563173 Report 
- Quoted By: >>4563175 
->>4563198 
->>4563098
-Uh...shit. I can't even remember when Axel even joined up, let alone when he was KO'd and Soulgain trashed. ANYWAY, ATTEMPT BEGINS.
-
-"Well, see your new roommate here? We caught her spyin' on us after we flew on down to South America for repairs and supplies from the underground cells. Picked up a couple of the Irregulars along the way, but no worries. They seem pretty cool so far. Anyway, the big news? Turns out she's from that super hot-shit brigade out east, the...S-E-X Force or some shit. Says she's got some kinda super mind-powers, sees the future or somethin', won't shut up about that crap." 
-Zeta Zaku Sun 21 Feb 2010 02:03:37 No.4563175 Report 
- Quoted By: >>4563198 
->>4563173
-"Anyway, after that we hooked up with that old guy and his fleet and went off to the Cradle to pick up some stuff. Turns out the head lady there was workin' on some new tech that makes robots heal or somethin', like your Soulgain, 'cept it don't eat at ya. It's really cool, we stuck some on Raioh and it fixed itself all nice and pretty-like. But the EFA, see, they want this stuff, so they sent down the Cry Wolves, who’re dead, 'cept they're not and now they're tentacle beasties, and they kicked all our asses. We got saved by this Wodan guy and his super-Grungast and his pretty friend in her weird bug-Hucky-thing, and they all came back with us along with Sophia, the doc lady.”
-
-“Then we came back, and we forced Kai to tell us why we were fighting zombies in Africa. He says that the EFA is being run by space monsters now, and Princess Future-Britches here was from the group fightin’ them. ‘Cept they’re not good either and we don’t know what they want ‘cause she won’t shut up about how special she is.” *Insert menacing glare when appropriate.* “Anyway, they sent their big ship with their fancy moustache captain and more of the same tentacle zombie Gespies after us just now, along with a bunch of weird fancy prototype mechs. We beat them before they blew us all up and captured a couple. You wanna see an alien, Axel?” 
-Anonymous Sun 21 Feb 2010 02:11:37 No.4563198 Report 
->>4563173
->>4563175
-
-I like these, Especially the S-E-X thing. 
-Sciencegar Sciencebolt Sun 21 Feb 2010 02:29:37 No.4563300 Report 
- Quoted By: >>4563336 
->>4563346 
->>4563578 
- (Slight rewrite for continuity's sakes, but well done ZZ)
-
- "Well, see your new roommate here? We caught her spyin' on us after we flew on down to South America for repairs and supplies from the underground cells. Picked up a couple of the Irregulars along the way, but no worries. They seem pretty cool so far. Anyway, the big news? Turns out she's from that super hot-shit brigade out east, the...S-E-X Force or some shit. Says she's got some kinda super mind-powers, sees the future or somethin', won't shut up about that crap. Anyway, after that we hooked up with that old DC guy and went off to the Earth Cradle to pick up some stuff. Turns out the head lady there was workin' on some new tech that makes robots heal or somethin', like your Soulgain, 'cept it don't eat at ya. It's really cool, we stuck some on Raioh and it fixed itself all nice and pretty-like. But the EFA, see, they want this stuff, so they sent down the Cry Wolves, who’re dead, 'cept they're not and now they're tentacle beasties, and they kicked all our asses. We got saved by this Wodan guy and his super-Grungust, and they all came back with us along with Sophia, the doc lady.”
- “Then we came back, and we forced Kai to tell us why we were fighting zombies in Africa. He says that the EFA is being run by space monsters now, and they're fighting Princess Future-Britches here's group. ‘Cept they’re not good either and we don’t know what they want ‘cause she won’t shut up about how special she is.” *Glare* “Anyway, they sent their big ship with the big gun and more of the same tentacle zombie Gespies after us just now, along with a bunch of weird fancy prototype mechs. We beat them before they blew us all up and captured a couple. You wanna see an alien, Axel?”
-
-"....This is why I let Lemon handle this shit..." 
-Anonymous Sun 21 Feb 2010 02:34:37 No.4563336 Report 
->>4563300
-I'd feel sorry for Axel if I wasn't loling at the summary. 
-Sciencegar Sciencebolt Sun 21 Feb 2010 02:36:37 No.4563345 Report 
- Axel pulls on his appropriated uniform. "So you're actually listening to the Irregulars horseshit?"
+Axel pulls on his appropriated uniform. "So you're actually listening to the Irregulars horseshit?"
 
 Irm folds his arms. "They're good people, Axel, they're just desperate. If our world was at risk like that, we'd be doing much the same."
 
 "Our world is at risk, BECAUSE of them. Idiots with good intentions are still idiots, Irm."
 
-"....Also, we needed the firepower."
+"...Also, we needed the firepower."
 
-"Now that's a proper reason." Axel pulls on boots. "As for this two sides thing...I think Vindel and Lemon knew something about it, but weren't sure. Any luck finding them, by the by?"
+"Now that's a proper reason." Axel pulls on boots. "As for this two sides thing... I think Vindel and Lemon knew something about it, but weren't sure. Any luck finding them, by the by?"
 
-"Nothing yet, but Vat Trans alien buddy says she can make a gizmo to scan for the Zweizergain. We...were planning to find out where Vindel was, then send the Irregulars somewhere else."
+"Nothing yet, but Vat Trans alien buddy says she can make a gizmo to scan for the Zweizergain. We... were planning to find out where Vindel was, then send the Irregulars somewhere else."
 
 "Sounds like a good plan. Maybe you're cut out for command after all, Irm."
 
 "...It was Kai's plan, actually."
 
-"Oh...there's a can of worms." 
-Anonymous Sun 21 Feb 2010 02:36:37 No.4563346 Report 
->>4563300
->"....This is why I let Lemon handle this shit..."
+"Oh... there's a can of worms." 
 
-"Oh that reminds me! Some of the Irregulars might want to kill Vindel and Lemon I think, I'm not entirely clear on that point." 
-Anonymous Sun 21 Feb 2010 02:39:37 No.4563363 Report 
- . 
-Sciencegar Sciencebolt Sun 21 Feb 2010 02:43:37 No.4563381 Report 
- Quoted By: >>4563453 
- You find Kai at the hangar, sitting on the unattached arm of his Gespenst, working a ratchet on a servo. He doesn't seem to be that into it.
+---
+
+You find Kai at the hangar, sitting on the unattached arm of his Gespenst, working a ratchet on a servo. He doesn't seem to be that into it.
 
 "Kai? Axel's awake, he'd like to talk to you."
 
@@ -427,31 +374,27 @@ Kai turns around and flops down onto the Gespensts hand. "Hello, Major. Finally 
 
 "I think its safe to say the Beowulfs not a man, at this point."
 
-Axel looks oddly at Kai. "So...I take it you've run into him and his green-blooded cronies?"
+Axel looks oddly at Kai. "So... I take it you've run into him and his green-blooded cronies?"
 
 "...Yeah, something like that."
 
 "You know, I'm not getting the vibe I was expecting from an Ex-Agressor."
 
-"Agressors are old news these days, Major Almer. It's all about technology now, not pilots. Mass-production, machine cells, organic mechs, the pilots....are just parts now."
+"Agressors are old news these days, Major Almer. It's all about technology now, not pilots. Mass-production, machine cells, organic mechs, the pilots... are just parts now."
 
 "And you're going to accept that, old man?"
 
 A light reappears in Kais good eye. "No. No I amn't. Major Almer, I need to start a war. Can you help me?"
 
 "I might just be able to oblige you." 
-View SameGoogleiqdbSauceNAO big boss salute.jpg,  20KiB, 603x380 
- 
-Anonymous Sun 21 Feb 2010 02:53:37 No.4563453 Report 
->>4563381
-War....War has changed. 
-Sciencegar Sciencebolt Sun 21 Feb 2010 03:06:37 No.4563536 Report 
- Quoted By: >>4563555 
- The transfer to Trilobite 2 goes smoothly, and you're soon in the other hangar. Ibis waves at you, and Irm quickly hides behind the Vegalion.
+
+---
+
+The transfer to Trilobite 2 goes smoothly, and you're soon in the other hangar. Ibis waves at you, and Irm quickly hides behind the Vegalion.
 
 The Soulgain is as you saw it then it teleported into Brazil, gouges everywhere and green orbs popped like zits. If it's been regenerating on its own.
 
-Axel grunts. "Dammit...I knew Beowulf had hit something important, but I didn't think it'd fuck up the self-repair this badly."
+Axel grunts. "Dammit... I knew Beowulf had hit something important, but I didn't think it'd fuck up the self-repair this badly."
 
 "Can you do something about it?"
 
@@ -461,78 +404,40 @@ And then Axel collapses.
 
 "Boss-man!! You ok?"
 
-Axel picks himself up. "Ugh...its no good. The Lifeforce Absorber is out of whack, I so much as sit in the cockpit, its liable to kill me. My own mech...Shit!!"
+Axel picks himself up. "Ugh... its no good. The Lifeforce Absorber is out of whack, I so much as sit in the cockpit, its liable to kill me. My own mech... Shit!!"
 
-"Can't...can't someone fix it? Maybe Johnathan can-"
+"Can't... can't someone fix it? Maybe Johnathan can-"
 
-"Johnny's an old hand, meant to building classic, reliable mechs. The Earthgain series is way over his head, heck, very few of TLIs people even half know how they're making them. No, there's a very short list of people who can fix the Soulgain...Lemon, and the guy who gave us the Lifeforce technology in the first place."
+"Johnny's an old hand, meant to building classic, reliable mechs. The Earthgain series is way over his head, heck, very few of TLIs people even half know how they're making them. No, there's a very short list of people who can fix the Soulgain... Lemon, and the guy who gave us the Lifeforce technology in the first place."
 
 Irm raises an eyebrow. "Dr. Albark? He walked out of the TLI a year ago, on some kinda vision quest thing. No-ones seen him since."
 
-"Yeah...well, those people won't be trying as hard as me." 
-Anonymous Sun 21 Feb 2010 03:09:37 No.4563555 Report 
- Quoted By: >>4563579 
->>4563589 
->>4563536
+"Yeah... well, those people won't be trying as hard as me." 
 
-Only one thing to do... Have Axel pilot one of the mechs we captured instead, I mean, He is good pilot and shouldn´t really need his SPECIAL SNOWFLAKE mech to be efficent. And we need all people we can get. 
-Zeta Zaku Sun 21 Feb 2010 03:12:37 No.4563578 Report 
->>4563300
-I admit I was a little fuzzy on the facts, whens and wheres. Katina must be great fun for you to write, I know she was for me. 
-
-Also, Dr. Albark? I want to find me a university that lets me get a doctorate in Machine Fist. 
-SEED D Cagalli !!U5xc0wG3iH0 Sun 21 Feb 2010 03:12:37 No.4563579 Report 
->>4563555
-
-Axel should use a Rathgrith. It's his canon real in OG2 anyways.
-
-And did I read Albark? FUCK YES! 
-Anonymous Sun 21 Feb 2010 03:13:37 No.4563589 Report 
- Quoted By: >>4563701 
->>4563555
-We didn't capture anything intact, is the problem. Just pieces of the Cerebus and the cockpit block of the Garmraid. We're currently a little poor on the mecha budget right now.
-
-Oh, while we're on the Twolibite we should see about checking out those DC pilots. Give them props and introduce ourselves. 
-Sciencegar Sciencebolt Sun 21 Feb 2010 03:28:37 No.4563685 Report 
- Quoted By: >>4563753 
- The Vegalion and Altairlion fly out of the hangar and off to the Rhino, finally allowing the room for the R-Blade to be brought out of maintenance. Brooklyn looks her over, seeming to be relatively satisfied. "It's got good poise, and looks pretty light on its toes. It should suffice, Major."
+The Vegalion and Altairlion fly out of the hangar and off to the Rhino, finally allowing the room for the R-Blade to be brought out of maintenance. Brooklyn looks her over, seeming to be relatively satisfied. "It's got good poise, and looks pretty light on its toes. It should suffice, Major."
 
 "Don't worry, I'll have the Vaisaga back to you once I've found what I need. Now, what exactly are the DC doing?"
 
 "Vat Tran said his ships were headed for a more secure location in the Congo, but whether we can make it there undetected is another thing. The Trilobites and the Killer Whale with the DCs gear should be safe, but the Rhino kinda stick out, especially the Golden one."
 
-Axel ponders. "We won't get that alien scanner until we're in a secure location...maybe we should run interference."
+Axel ponders. "We won't get that alien scanner until we're in a secure location... maybe we should run interference."
 
-"What, like....attack the EFA?? In our condition?"
+"What, like... attack the EFA?? In our condition?"
 
 "If it gets all the Inspector tech to the right place, it may be worth the risk."
 
-WHAT WILL KATINA SAY TO THIS SUGGESTION? OR DOES SHE HAVE HER OWN POINTS TO BRING UP? 
-Sciencegar Sciencebolt Sun 21 Feb 2010 03:31:37 No.4563701 Report 
->>4563589
->Now, what exactly are the DC doing?"
 
->"Vat Tran said his ships were headed for a more secure location in the Congo,
+    Because I'm an idiot, I forgot to insert that Axel turns to Irm for all this info. Brooklyn's not dumb or anything, but he hasn't been talking to Vat Tran. 
 
-Because I'm an idiot, I forgot to insert that Axel turns to Irm for all this info. Brooklyn's not dumb or anything, but he hasn't been talking to Vat Tran. 
-Anonymous Sun 21 Feb 2010 03:37:37 No.4563753 Report 
- Quoted By: >>4563862 
->>4563685
-
-I think attacking the EFA so soon is kinda dumb, We should first repair all our stuff and check things out with our prisoners, We might obtain a more efficient option that way. Who knows, Besides those Einst thingies might have telepathy-GPS-Hivemind senses and sense our prisoners when we approach the EFA base, Meaning we wouldn´t be able to senak attack them. 
-Anonymous Sun 21 Feb 2010 03:54:37 No.4563862 Report 
->>4563753
-This, suggest that since those thinks have been able to track us for so long with such high accuracy, they must have some sort of alien-psychic-radar ability and because of that we might became from hunters to hunted. 
-Sciencegar Sciencebolt Sun 21 Feb 2010 04:41:37 No.4564178 Report 
- Quoted By: >>4564273 
- "I dunno, I think we should see about these prisoners of our first. I mean, if they are part of the alien hive mind, maybe their psychic resonances are leading enemy forces to us right now!"
+"I dunno, I think we should see about these prisoners of our first. I mean, if they are part of the alien hive mind, maybe their psychic resonances are leading enemy forces to us right now!"
 
 Axel blinks, then sighs. "Irm, check who's able to fight and prep a strike team. I'll go see if theres anything we can tell from these prisoners."
 
+---
 
 Shuu looms over the disecting table, prodding at one of the alien pseudopod with all manner of arcane instruments.
 
-"So...Doc...what can you tell us about the things from beyond Saturn?"
+"So... Doc... what can you tell us about the things from beyond Saturn?"
 
 "Carbon-based life, genetic code reminiscent of DNA. Slight dimensional vibration implies their origin is from another universe, rather than outer space. The organic components are connected only to the pilot, not to any of the mechanical systems, implying they don't have compatability, at least with the mech we captured."
 
@@ -542,62 +447,23 @@ Shuu looms over the disecting table, prodding at one of the alien pseudopod with
 
 "Would it still work, if they showed up again?"
 
-"Unlikely, the actual body modification on these two was minimal...after the surgery, at least. And the organic components are dying now, so they don't seem to be remote organisms, merely parasites to the pilots."
+"Unlikely, the actual body modification on these two was minimal... after the surgery, at least. And the organic components are dying now, so they don't seem to be remote organisms, merely parasites to the pilots."
 
 "So, those two are fine now?"
 
-Shuu blinks. "I wouldn't say...fine...The girl is in mental shock, and the man...well, he doesn't have limbs. The alien appeared to have grafted their technology directly onto severed stumps."
+Shuu blinks. "I wouldn't say... fine... The girl is in mental shock, and the man... well, he doesn't have limbs. The alien appeared to have grafted their technology directly onto severed stumps."
 
 Axel barely blinks. "Sounds like business as usual down in EFA central." 
-Anonymous Sun 21 Feb 2010 04:58:37 No.4564273 Report 
->>4564178
-FFFFFFFFFFFFFFFFFFFFFFFFUCK.
 
-Seems the MX guys won't enter into battle for some time.....and that's a massive understatement. 
-Jerid Messa !!AbDOcayw4O/ Sun 21 Feb 2010 05:06:37 No.4564314 Report 
- Quoted By: >>4564327 
- Well the MX duo have certainly seen better days. Aqua might be back in action sooner than Hugo after some bonding time with Katina though. 
-Anonymous Sun 21 Feb 2010 05:08:37 No.4564327 Report 
- Quoted By: >>4564331 
->>4564360 
->>4564314
-When you say "back into action" you mean as a sex slave? And bonding as "lesbian sex" right? 
-Haken Browning !zHe7DH816A Sun 21 Feb 2010 05:10:37 No.4564331 Report 
- Quoted By: >>4564341 
->>4564327
-DAMMIT, I ALREADY FAILED ONCE, AND I HAVEN'T PLAYED/SPOILED ENOUGH MX YET
-
-DON'T WRECK MY SABBATICAL LIKE THIS 
-Ratsel Feinschmecker !VFYL66iWMA Sun 21 Feb 2010 05:12:37 No.4564341 Report 
- Quoted By: >>4564475 
->>4564514 
->>4564331
-
-*backhands* stop failing, boy. 
-Jerid Messa !!AbDOcayw4O/ Sun 21 Feb 2010 05:17:37 No.4564360 Report 
- Quoted By: >>4564447 
->>4564514 
->>4564327
-
-That wasn't quite what I was getting at but that works too. Preferably after actual bonding and helping Aqua get better mentally. 
-Anonymous Sun 21 Feb 2010 05:32:37 No.4564447 Report 
->>4564360
-Sounds like Kai knew her better, I'd rather leave him to do it while we focus on the people we've already become friends with. I've always thought we've been spreading our attention too thin. 
-Ratsel Feinschmecker !VFYL66iWMA Sun 21 Feb 2010 05:37:37 No.4564475 Report 
- Quoted By: >>4564514 
->>4564341
-
-Hmm..... Darn. I dont have the powers of Bright Noa. 
-Sciencegar Sciencebolt Sun 21 Feb 2010 05:43:37 No.4564502 Report 
- "Irm, what do we have?"
+"Irm, what do we have?"
 
 Irm pulls out a notebook. "The Raioh and Dumi are good to go, thanks to those Machine Cells. Same with the StealthRaubtier, we'll just have to put me or Russel in it, or switch around pilots. The Angelg is good-"
 
 "Still need to talk to her about my clothes..."
 
-"Er...You can take the Vaisaga, the Guarlion will be fixed within the hour, and the Huckebien should be good to go by then as well. Plus we have the Valsione and Cybuster, but I think you want to keep the Irregulars out of this, don't you?"
+"Er... You can take the Vaisaga, the Guarlion will be fixed within the hour, and the Huckebien should be good to go by then as well. Plus we have the Valsione and Cybuster, but I think you want to keep the Irregulars out of this, don't you?"
 
-"Just a bit...But that sounds like we could have a strike team."
+"Just a bit... But that sounds like we could have a strike team."
 
 "Yeah, Axel, but where?"
 
@@ -605,21 +471,9 @@ Irm pulls out a notebook. "The Raioh and Dumi are good to go, thanks to those Ma
 
 "Where would we be sending this team? All the way back to Dakar? They'd be stranded unless a Trilobite went with them. There are no major EFA bases until you get to Capetown, which is the same distance. I can maybe understand your point of distracting the EFA, but theres no easily available target."
 
-Well, since we're being ambitious, might I suggest something? 
-Haken Browning !zHe7DH816A Sun 21 Feb 2010 05:44:37 No.4564514 Report 
- Quoted By: >>4564523 
->>4564341
->>4564475
-...It's cool, man. I've already been instructed not to mix psychiatry with porn in the future.
+*Well, since we're being ambitious, might I suggest something? *
 
->>4564360
-This. 
-Ratsel Feinschmecker !VFYL66iWMA Sun 21 Feb 2010 05:47:37 No.4564523 Report 
->>4564514
-
-..... That made no sense, Sniper Boy. 
-Sciencegar Sciencebolt Sun 21 Feb 2010 06:06:37 No.4564658 Report 
- "Why is this mech talking to me?"
+"Why is this mech talking to me?"
 
 "Its Dumi, the DGG-04's AI. He's quite the help."
 
