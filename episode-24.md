@@ -94,132 +94,17 @@ Lefina looks at her captain ever-impassive face. Is she some kind of seditionist
 
 "Wait, what?"
 
-We're going with them. They're secret Shadow Mirror agents who'll be transporting us to another location.
+*We're going with them. They're secret Shadow Mirror agents who'll be transporting us to another location.*
 
 "W-we weren't briefed on this..."
 
-Everyone has to have their little secrets. Now, don't worry about it, you don't have to come with us.
+*Everyone has to have their little secrets. Now, don't worry about it, you don't have to come with us.*
 
-Dumi turns to you. So, Katina, ready for the day-trip?
+Dumi turns to you. *So, Katina, ready for the day-trip?*
 
-FINAL DESICION: WILL YOU GET ON THE SHIP? 
-Stealthyboy !fchRKomfls Mon 22 Feb 2010 05:03:00 No.4570480 Report 
->>4570474
-GET ON SHIP
-*AdviceDesu*
-FLIRT WITH LEFINA 
-Anonymous Mon 22 Feb 2010 05:03:00 No.4570484 Report 
->>4570474
-Yes but explain to your other team members the situation first. 
-Anonymous Mon 22 Feb 2010 05:04:00 No.4570492 Report 
->>4570474
-Let's go for a ride. 
-SEED D Cagalli !!U5xc0wG3iH0 Mon 22 Feb 2010 05:05:00 No.4570500 Report 
- Quoted By: >>4570503 
->>4570524 
->>4570474
+---
 
-FUCK!
-
-DUMI REALLY IS DUMINUSS! HOW ELSE COULD DEATHPENIS KNOW ABOUT US?!? 
-Stealthyboy !fchRKomfls Mon 22 Feb 2010 05:06:00 No.4570503 Report 
- Quoted By: >>4570511 
->>4570500
-You hadn't figured this out already? 
-Jerid Messa !!AbDOcayw4O/ Mon 22 Feb 2010 05:07:00 No.4570509 Report 
- Lets roll, maybe we'll get some nice machines from Duminuss too. 
-SEED D Cagalli !!U5xc0wG3iH0 Mon 22 Feb 2010 05:07:00 No.4570511 Report 
->>4570503
-
-No... but this sorta clinches it! 
-Anonymous Mon 22 Feb 2010 05:08:00 No.4570520 Report 
- Good lord the guys are going to be surprised when we turn up with a Hiryu class ship later on. 
-GUNDAMU !0smG1gQz9c Mon 22 Feb 2010 05:09:00 No.4570521 Report 
->>4570474
-Looks legit.
-
-Besides, unless the Raioh has orbital re-entry abilities, there's really no way to get back without them.
-
-...Unless we use the satellite like a heat shield, and use it to surf into the atmosphere. But that would only really work for one of us, as there's only one satellite. 
-Anonymous Mon 22 Feb 2010 05:09:00 No.4570524 Report 
->>4570500
-But this is a FRIENDLY duminuss. 
-Sanger Zombolt! Mon 22 Feb 2010 05:12:00 No.4570540 Report 
- Well, my hunch was right after all!
-
-We WOULD have gotten a gigantic battleship earlier if we had gone with Duminuss. 
-Stealthyboy !fchRKomfls Mon 22 Feb 2010 05:14:00 No.4570554 Report 
- Quoted By: >>4570562 
- I wonder which side of the EFA Schism Lefina falls on. Although, it sounds like she doesn't even know about it... 
-Sanger Zombolt! Mon 22 Feb 2010 05:17:00 No.4570562 Report 
- Quoted By: >>4570585 
->>4570589 
->>4570592 
->>4570554
-Probably the ones that realized the true face of the EFA and reject it, and now want to conquer the Einst at any cost.
-
-BTW, what was the gist of Dumi in SRW R? Was he trying to protect the world in an assholish way like GunEden? 
-SEED D Cagalli !!U5xc0wG3iH0 Mon 22 Feb 2010 05:24:00 No.4570585 Report 
->>4570562
-
-In R, Duminuss was trying to find its/her/his creator. It needed the Time Flow Engine to go back in time to try to find it, so it attacks Rau/Fiona at the end of either Prince of Darkness/Char's Counterattack and kills everyone. The Time Flow Engine gets triggered and then everyone gets sent back in time five years.
-
-What DOES scare me, however, is, as I realized, if this IS not 100% evil Duminuss? That means it's it's a successful product by Dark Brain.
-
-And I fear for that. 
-Anonymous Mon 22 Feb 2010 05:24:00 No.4570589 Report 
->>4570562
-Duminuss in R was just someone who wanted to know what the reason for their existance was. Everything they did was just to try to go find their maker and ask. 
-Sciencegar Sciencebolt Mon 22 Feb 2010 05:25:00 No.4570592 Report 
- Quoted By: >>4570598 
->>4570562
-
-From what I understand, SRWR Duminass was one of those clumsy moe girls who are always tripping over and dropping things, expect instead of dropping something she killed the person who made her. She then became obsessed with undoing this, so she went after the Time Flow Engine in the main characters mech. Shit just escalated from there. 
-Stealthyboy !fchRKomfls Mon 22 Feb 2010 05:26:00 No.4570598 Report 
->>4570592
- D'Awwwwwwwww... 
-Sanger Zombolt! Mon 22 Feb 2010 05:28:00 No.4570604 Report 
- Quoted By: >>4570616 
- Well, it's official.
-
-We will help Dumi find his/her/it's maker and avert the situation that made Dumi go out of control. 
-Stealthyboy !fchRKomfls Mon 22 Feb 2010 05:31:00 No.4570616 Report 
- Quoted By: >>4570634 
->>4570604
-inb4 It's Dark Brain: We all get mind controlled. 
-Anonymous Mon 22 Feb 2010 05:32:00 No.4570619 Report 
- Quoted By: >>4570632 
->>4570644 
- Is it me, or Easymodo is not archiving it? 
-Anonymous Mon 22 Feb 2010 05:34:00 No.4570632 Report 
- Quoted By: >>4570640 
->>4570642 
->>4570619
-You're right, it doesn't seem to be archiving. 
-Sanger Zombolt! Mon 22 Feb 2010 05:34:00 No.4570634 Report 
- Quoted By: >>4570660 
->>4570616
-Do you seriously believe he can mind control someone as crazy as Katina? 
-Anonymous Mon 22 Feb 2010 05:35:00 No.4570640 Report 
->>4570632
-Wait no, I'm wrong, it's working if you enter the thread number directly to the address bar. 
-Anonymous Mon 22 Feb 2010 05:35:00 No.4570641 Report 
->>4570474
-GET ON THE SHIP
-
-MOLEST LEFINA 
-Anonymous Mon 22 Feb 2010 05:35:00 No.4570642 Report 
->>4570632
-Someone fix this? 
-Stealthyboy !fchRKomfls Mon 22 Feb 2010 05:35:00 No.4570644 Report 
->>4570619
-It seems to have stopped after my New Getter picture. 
-Stealthyboy !fchRKomfls Mon 22 Feb 2010 05:39:00 No.4570660 Report 
->>4570634
-And unfortunately, yes probably. 
-Sciencegar Sciencebolt Mon 22 Feb 2010 05:39:00 No.4570661 Report 
- Quoted By: >>4570682 
- The PT bay of the Eurydice is quite snug compared to the wide space of the Trilobite. The Hiryu MkIIs are quite a downsize from the originals, but make up for it in speed. And thats what you want right now.
+The PT bay of the Eurydice is quite snug compared to the wide space of the Trilobite. The Hiryu MkIIs are quite a downsize from the originals, but make up for it in speed. And thats what you want right now.
 
 As you roll into the cockpit, a comm window pops up, showing a young blue-haired woman in an EFA captains uniform. Her expression is somewhere between passive and bored.
 
@@ -235,19 +120,15 @@ As you roll into the cockpit, a comm window pops up, showing a young blue-haired
 
 "...Is she always like that?"
 
-Despinis has issues expressing herself. Inside she's very concerned for our safety, but she's mastered her poker face a bit too well. 
-Stealthyboy !fchRKomfls Mon 22 Feb 2010 05:43:00 No.4570682 Report 
->>4570661
-I guess we go and wait nicely in our private quarters out of sight then
-...
-Naw, I'm just kidding, lets go cause some chaos and see if there are any cute girls/guys on board for Katina to cause discomfort to. 
-Sciencegar Sciencebolt Mon 22 Feb 2010 05:47:00 No.4570703 Report 
- Quoted By: >>4571272 
- 'Have met friendly forces. Will rejoin you later.'
+*Despinis has issues expressing herself. Inside she's very concerned for our safety, but she's mastered her poker face a bit too well. *
+
+---
+
+'Have met friendly forces. Will rejoin you later.'
 
 "...That's it?" Axel looks incredulous. "They head off in an EFA ship, and thats the only message we get from them?"
 
-Irm puts a hand on his shoulder. "I...I'm sure Katina has her reasons..."
+Irm puts a hand on his shoulder. "I... I'm sure Katina has her reasons..."
 
 "I'm sure she does. What I'm not sure of is whether they're good reasons. I've heard the crew talking about her, Irm. She's a loose cannon, always two steps away from getting you all killed, or drunk. And now she's absconding with one of our best units!"
 
@@ -257,77 +138,25 @@ Irm puts a hand on his shoulder. "I...I'm sure Katina has her reasons..."
 
 "Well, we don't need her back right away, and heck, a bit of breathing space might be nice for a change..."
 
-"Maybe...We do have more important things to worry about, like the alien tech, and tracking down Albark. Besides, worst that'll happen, we lose a few units. We've lost plenty already this week, what two more?" 
-Anonymous Mon 22 Feb 2010 06:15:00 No.4570840 Report 
- Quoted By: >>4570860 
- Who wins in a fight between japanese Godzilla and american Godzilla? 
-Anonymous Mon 22 Feb 2010 06:19:00 No.4570860 Report 
->>4570840
-http://www.youtube.com/watch?v=2H8rQJ8MGJ0 
-Anonymous Mon 22 Feb 2010 06:23:00 No.4570877 Report 
- Let's take a peek at Kai. I want to know how he's dealing with Aqua and Hugo's condition. 
-Anonymous Mon 22 Feb 2010 06:36:00 No.4570952 Report 
- I told you guys to run this past Axel first. Now we're not going to be able to come back. Hope teaming up with one of Dark Brain's servants was worth it. 
-Anonymous Mon 22 Feb 2010 07:02:00 No.4571115 Report 
- Quoted By: >>4571185 
- When are we gonna have a final fusion? 
-Anonymous Mon 22 Feb 2010 07:12:00 No.4571185 Report 
->>4571115
-Not until we find Vindel, so he can approve it. 
-Anonymous Mon 22 Feb 2010 07:25:00 No.4571272 Report 
->>4570703
->She's a loose cannon, always two steps away from getting you all killed, or drunk.
->always two steps away from getting you all drunk
-Just felt the need to point this out. It seems we're closer to our master goal than we all believed, since Axel Motherfucking Almer is never wrong... 
-Anonymous Mon 22 Feb 2010 09:04:00 No.4571954 Report 
- Ne... 
-Anonymous Mon 22 Feb 2010 10:00:00 No.4572344 Report 
- Bumpan. 
-Anonymous Mon 22 Feb 2010 10:41:00 No.4572619 Report 
- Quoted By: >>4572840 
- So how long do you guys think it'll take to get us some Neo Grungust lovin'? 
-Anonymous Mon 22 Feb 2010 11:09:00 No.4572840 Report 
- Quoted By: >>4572953 
->>4572619
-Till we can get Vindel to aprove of the Grungust's FINAL FUUUUUUUSIOOOOOON!
+"Maybe... We do have more important things to worry about, like the alien tech, and tracking down Albark. Besides, worst that'll happen, we lose a few units. We've lost plenty already this week, what two more?" 
 
-http://www.youtube.com/watch?v=Wb29g3XHvNY&feature=related
+---
 
-I always thought of the Neo Grungust being amde of 3 different machines, like GGG. 
-Anonymous Mon 22 Feb 2010 11:28:00 No.4572953 Report 
- Quoted By: >>4574320 
->>4574897 
->>4572840
-So who would pilot it?
+Kai looks uncomfortable in the medical room. "So... They're as comfortable as they can be? And safe from the alien stuff?"
 
-Irm, obviously, maybe...I dunno, Ibis as gunnery officer and Latooni too? 
-
-Hell, lets go all the way. Lets make it Neo Getter Grungust. 
-Anonymous Mon 22 Feb 2010 12:33:00 No.4573287 Report 
- bump 
-Lord Guilford !UuMJgvNa0Y Mon 22 Feb 2010 18:32:00 No.4574315 Report 
- Delicious. 
-SEED D Cagalli !!U5xc0wG3iH0 Mon 22 Feb 2010 18:34:00 No.4574320 Report 
->>4572953
-
-Irm's a good choice.
-
-Plus, I've played SRW F Final. I know how tough Grungusts were back in the day. It's time we give them their balls back. 
-Sciencegar Sciencebolt Mon 22 Feb 2010 19:26:00 No.4574484 Report 
- Kai looks uncomfortable in the medical room. "So...They're as comfortable as they can be? And safe from the alien stuff?"
-
-A tired Kusuha nods. "We've removed all trace of the alien matter we can detect, and made them as comfortable as we can. The man hasn't recovered consciousness yet, and the girl...she's still in shock. She keeps demanding we give her clothes, even though she's fully dressed. She's...very uncomfortable with the situation."
+A tired Kusuha nods. "We've removed all trace of the alien matter we can detect, and made them as comfortable as we can. The man hasn't recovered consciousness yet, and the girl... she's still in shock. She keeps demanding we give her clothes, even though she's fully dressed. She's... very uncomfortable with the situation."
 
 Kai nods, his eye betraying emotion his granite face won't. "Th-thank you. As long as they're safe..."
 
-"Do you....maybe want to visit them?"
+"Do you... maybe want to visit them?"
 
-"I...don't think so. I'm not sure I can look them in the face right now."
+"I... don't think so. I'm not sure I can look them in the face right now."
 
 Kusuha watches after him as he leaves. Then she sighs, and grabs for the hip flask she has hidden in the medicine cabinet. 
-Sciencegar Sciencebolt Mon 22 Feb 2010 19:34:00 No.4574515 Report 
- Quoted By: >>4574538 
- "Intruiging..." Shuu looks in wonder at the goop he's extracting from the Cerberus's engine.
+
+---
+
+"Intruiging..." Shuu looks in wonder at the goop he's extracting from the Cerberus's engine.
 
 Ring blinks. "Is that more of the alien control system?"
 
@@ -341,36 +170,21 @@ Ring blinks. "Is that more of the alien control system?"
 
 "If the aliens could construct this, then terminus energy, or something like it, must be a natural energy source for them. It would fit with their interdimensional origins. They naturally absorb extra-dimensional power to operate their mecha-sized bodies."
 
-"So Zapad's experiments...could have attracted them here?"
+"So Zapad's experiments... could have attracted them here?"
 
-"Possibly...At the very least, I think its safe to say the Tsentr Project is no longer run by humans. But still..."
+"Possibly... At the very least, I think its safe to say the Tsentr Project is no longer run by humans. But still..."
 
-"What?....Shuu?.....You're not thinking of...using this thing, are you?"
+"What?... Shuu?... You're not thinking of... using this thing, are you?"
 
 Shuu Shirakawa smirks. It's enough to make Ring shiver. 
-Lord Guilford !UuMJgvNa0Y Mon 22 Feb 2010 19:37:00 No.4574518 Report 
- Quoted By: >>4574540 
->Shuu Shirakawa smirks. It's enough to make Ring shiver.
 
-It's enough to make me grin like an idiot. 
-NuBackAnon !!z6ldXGL61Wm Mon 22 Feb 2010 19:44:00 No.4574538 Report 
->>4574515
-So we will get PURE NEO GRANZON! 
-Haken Browning !zHe7DH816A Mon 22 Feb 2010 19:45:00 No.4574540 Report 
->>4574518
-Likewise.
+---
 
-Though it means my image of SM!Shuu is shifting more towards Kurtis than Gordon... 
-Zeta Zaku Mon 22 Feb 2010 19:47:00 No.4574545 Report 
- I knew he was still a magnificent bastard under all that. How many perpetual energy sources does he intend to cram into White Granzon before this is all over? 
-Sciencegar Sciencebolt Mon 22 Feb 2010 19:52:00 No.4574566 Report 
- Quoted By: >>4574581 
->>4574613 
- The crew of the Eurydice gawk as you stride through the mess hall like you own the place. Some of them begin to whisper. You start snatching up food from the canteen trays, its reconstituted factory stuff but its better than space rations.
+The crew of the Eurydice gawk as you stride through the mess hall like you own the place. Some of them begin to whisper. You start snatching up food from the canteen trays, its reconstituted factory stuff but its better than space rations.
 
 "So...whadda you guys do for fun around here?"
 
-The crewman nearest stares at you as you attack your plate. "Er, miss....Who exactly are you?"
+The crewman nearest stares at you as you attack your plate. "Er, miss... Who exactly are you?"
 
 "I'm Katina Tarask. Why?"
 
