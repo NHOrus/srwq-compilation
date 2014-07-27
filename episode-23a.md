@@ -1,92 +1,10 @@
-Archives: [ a / biz / c / co / diy / gd / int / jp / m / out / po / q / sci / sp / tg / tv / vg / vp / vr / wsg ] Boards: [ dev / foolz / neet ]
- /m/ - Mecha  
-4chan 
-Index
- 
-Ghost
-Gallery
-Stats
- 
- 
- 157KiB, 741x592, 1265653028556.png 
-View SameGoogleiqdbSauceNAO 
-SRWQ Mission 23A: IT KEEPS HAPPENING Sciencegar Sciencebolt Sun 21 Feb 2010 19:39:41 No.4567794 ViewReplyOriginalReport 
- Quoted By: >>4567817 
->>4567825 
->>4567853 
->>4568308 
->>4568315 
->>4568575 
- This week has not been a good one for this exercise. It seems that someone randomly deletes the threads now. But, lacking context, I can't do much but continue.
+###SRWQ Mission 23A: IT KEEPS HAPPENING
 
- Anyway, our 'heroine' Katina Tarask has just blasted off into the sky, with her ever-helpful AI pal Dumi, and Setsuko and Toby from the DC's Star Team, to knock out one of the EFAs spy satellites and give the DC and Shadow Mirrors a chance to get to their new base undetected. The jump to orbit will take about an hour.
+Anyway, our 'heroine' Katina Tarask has just blasted off into the sky, with her ever-helpful AI pal Dumi, and Setsuko and Toby from the DC's Star Team, to knock out one of the EFAs spy satellites and give the DC and Shadow Mirrors a chance to get to their new base undetected. The jump to orbit will take about an hour.
 
- WHAT WILL KATINA DO IN THAT TIME? View SameGoogleiqdbSauceNAO IT KEEPS HAPPENING.jpg,  21KiB, 315x336 
- 
-Stealthyboy !fchRKomfls Sun 21 Feb 2010 19:43:41 No.4567803 Report 
- Quoted By: >>4567833 
- Can she talk to the members of the Star team? 
-View SameGoogleiqdbSauceNAO 1266758470272.jpg,  4KiB, 126x123 
- 
-Anonymous Sun 21 Feb 2010 19:44:09 No.4567805  Report 
- Quoted By: >>4567817 
->This week has not been a good one for this exercise. It seems that someone randomly deletes the threads now.
+---
 
->Not taking the hint that rps are bannable 
-Anonymous Sun 21 Feb 2010 19:48:41 No.4567817 Report 
- Quoted By: >>4567838 
->>4567805
-
-The rules didn't say anything about that.
-
-But it does say something about abusing the report and sage function...
-
->>4567794
-
-Well I don't know. Talk to Dumi to pend the time? 
-Haken Browning !zHe7DH816A Sun 21 Feb 2010 19:51:41 No.4567825 Report 
- Quoted By: >>4567830 
->>4567794
-Engage in conversation with all pertinent NPCs.
-
-Also, quit posting on weekend mornings - since E/I quotas have killed Saturday/Sunday-morning cartoons in America, the underage b&s have nothing keeping them from shitting on everyone else's fun. 
-Sciencegar Sciencebolt Sun 21 Feb 2010 19:53:41 No.4567830 Report 
->>4567825
-
-It's hard for me to judge, since its afternoon here. Even I don't sleep in that late. 
-Sciencegar Sciencebolt Sun 21 Feb 2010 19:54:41 No.4567833 Report 
- Quoted By: >>4567835 
->>4567803
-
-Nothing stopping her. Talking to the Trilobites is discouraged, since it might give away their position. 
-Stealthyboy !fchRKomfls Sun 21 Feb 2010 19:56:41 No.4567835 Report 
- Quoted By: >>4567839 
->>4567833
-Then, I think we'd better discuss the mission with them, make sure we know all the details.
-
-Also discuss the worrying fact that the Hyperlion series was developed by Aguija. 
-Anonymous Sun 21 Feb 2010 19:57:41 No.4567838 Report 
- Quoted By: >>4567845 
->>4567929 
->>4568177 
->>4567817
->Same excuse
-
->too new to know that rps have been banned before and will always be banned 
-Anonymous Sun 21 Feb 2010 19:58:41 No.4567839 Report 
->>4567835
-
-seconded 
-Anonymous Sun 21 Feb 2010 19:58:41 No.4567840 Report 
- Quoted By: >>4567856 
- Buthurt janitors from other boards. Mods know that Quests aren't bannable so they don't need to ban. 
-Anonymous Sun 21 Feb 2010 20:01:41 No.4567845 Report 
->>4567838
->I don't like people contributing to the boards
-Alright then. 
-Sciencegar Sciencebolt Sun 21 Feb 2010 20:02:41 No.4567846 Report 
- Quoted By: >>4567848 
- Elsewhere...
+Elsewhere...
 
 "Director, the target group has launched 2 Super Robots and 2 AMs, on a course for a low earth orbit."
 
