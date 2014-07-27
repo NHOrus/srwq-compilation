@@ -1,27 +1,16 @@
-Archives: [ a / biz / c / co / diy / gd / int / jp / m / out / po / q / sci / sp / tg / tv / vg / vp / vr / wsg ] Boards: [ dev / foolz / neet ]
- /m/ - Mecha  
-4chan 
-Index
- 
-Ghost
-Gallery
-Stats
- 
- 
- 66KiB, 561x455, InvELibGranzonBetter.jpg 
-View SameGoogleiqdbSauceNAO 
-SRWQ Mission 24: This plan cannot possibly have a downside. Sciencegar Sciencebolt Mon 22 Feb 2010 00:02:00 No.4568972 ViewReplyOriginalReport 
- Quoted By: >>4569010 
->>4569803 
- For previous threads, check out easymodo or Haken Brownings site.
+# Episode 20
 
- In our last thread, aside from a lot of trolling, we blasted off into space to attack the EFAs spy satellites. Along the way, we chatted to Toby Watson about the girl he's gonna marry after the war is over, and our good friend Dumi suggested we take a side trip to investigate a mysterious resource satellite, using a ship belonging to one of his friends.
+## SHADOW MIRROR QUEST (AKA SRW Q)
 
- Sounds totally legit, right? Sciencegar Sciencebolt Mon 22 Feb 2010 00:18:00 No.4568992 Report 
- Quoted By: >>4568998 
->>4569001 
->>4569007 
- Setsuko comes in over the comms. "Target spotted! It's....bigger than I expected."
+###SRWQ Mission 24: This plan cannot possibly have a downside. 
+
+In our last episde, aside from a lot of trolling, we blasted off into space to attack the EFAs spy satellites. Along the way, we chatted to Toby Watson about the girl he's gonna marry after the war is over, and our good friend Dumi suggested we take a side trip to investigate a mysterious resource satellite, using a ship belonging to one of his friends.
+
+Sounds totally legit, right?
+
+---
+
+Setsuko comes in over the comms. "Target spotted! It's....bigger than I expected."
 
 The spy satellite looks like a flower, armored petals open around the sensitive observation equipment, which are already starting to close. Large beam turrets pop up on pylons, missile banks emerge, and a set of Rangzen drone fighters pop off the rear of the satellite and begin to drop down to intercept you. 
 
