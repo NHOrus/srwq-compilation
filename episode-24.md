@@ -14,177 +14,16 @@ Setsuko comes in over the comms. "Target spotted! It's....bigger than I expected
 
 The spy satellite looks like a flower, armored petals open around the sensitive observation equipment, which are already starting to close. Large beam turrets pop up on pylons, missile banks emerge, and a set of Rangzen drone fighters pop off the rear of the satellite and begin to drop down to intercept you. 
 
-Toby smirks. "Looks like a tough nut...makes sense, its in such a vunerable location, it needs the extra protection for just this kind of attack."
+Toby smirks. "Looks like a tough nut... makes sense, its in such a vunerable location, it needs the extra protection for just this kind of attack."
 
 You grin as the first set of victims approach. "Well, we'll show them that you can't prepare for the likes of us!"
 
-FIRST ACTIONS? 
-Anonymous Mon 22 Feb 2010 00:29:00 No.4568995 Report 
- Quoted By: >>4569124 
- Shit, we're fighting the Rafflesia. 
+"Dumi, you first! Stars, behind me! We're breaking through!" The formation lines up as the enemy opens fire. Beams and missiles lance into Dumis forcefield, which takes a pounding but holds.
 
-Lions take on the fighters, Dumi and Raioh go after turrets. And on a slightly related note, did machine-celling Raioh up mean we can't get DaiRaiOh now, since they're going to be constantly restoring it back to normal? 
-Anonymous Mon 22 Feb 2010 00:30:00 No.4568998 Report 
->>4568992
-Use the Counter Break to create a wall of electricity and rush them. Have everyone else follow closely behind you. 
-SEED D Cagalli !!U5xc0wG3iH0 Mon 22 Feb 2010 00:30:00 No.4568999 Report 
- Dumi and the Raioh take point. The Vegalion and Altairlion fly behind them. Once we've appropriately drawn the fire, Setsuko and Toby peel away and around us and destroy its weapons. 
-View SameGoogleiqdbSauceNAO x-rider1.jpg,  10KiB, 183x250 
- 
-Stealthyboy !fchRKomfls Mon 22 Feb 2010 00:30:00 No.4569001 Report 
- Quoted By: >>4569148 
- ...can I post now?
-
-Continuing my line of inquiry from the last thread, about Ridols. Now, I've never watched Kamen Rider, so bear with me, I may be asking stupid questions.
-
-From googling, they look like the pic, right?
-You said the handle comes out of the arm... how? From the elbow following the path of the forearm? From the wrist, sticking perpendicularly out?
-Are the handles of the Ridols the hadles used in Bike form?
-
-And >>4568992
-
-If possible, try to keep the Rangzen's in between us and the turrets: if they fire, they'll only hit their drones then, and not us. 
-Zeta Zaku Mon 22 Feb 2010 00:33:00 No.4569007 Report 
->>4568992
-Setsuko and Toby can draw off the Rangzens. Hell, Setsuko could probably do it herself, if need be, unless the Einst have tentacle'd them for whatever reason.
-
-Dumi and Katina bumrush the satellite. Between Dumi's shielding and our new Machine Cells, we should be just fine. 
-View SameGoogleiqdbSauceNAO RPG.jpg,  21KiB, 737x226 
- 
-Anonymous Mon 22 Feb 2010 00:34:00 No.4569010 Report 
- Quoted By: >>4569022 
->>4568972
-This must be posted in every single thread from now on. 
-Anonymous Mon 22 Feb 2010 00:38:00 No.4569022 Report 
- Quoted By: >>4569026 
->>4569028 
->>4569030 
->>4569010
-
-Oh, hey, are you the guy who can't the second half of that sentence?
-
-Good to see you again. Moving on. 
-Anonymous Mon 22 Feb 2010 00:38:00 No.4569026 Report 
->>4569022
-*read 
-Anonymous Mon 22 Feb 2010 00:39:00 No.4569028 Report 
- Quoted By: >>4569031 
->>4569022
-I think he's quite the contrary, bro. 
-Anonymous Mon 22 Feb 2010 00:39:00 No.4569030 Report 
->>4569022
-No, I am not. We need proof if we want to fend off the guys that say these threads should not exist. 
-Anonymous Mon 22 Feb 2010 00:41:00 No.4569031 Report 
->>4569028
-
-Hm, point taken. Some guy tried trolling using that image. 
-Anonymous Mon 22 Feb 2010 00:43:00 No.4569042 Report 
- When are we going to do stupid shit like this?
-
-The Mission: sneak into the temple of a maniacal cult and rescue the virginal daughter of a CEO before she is sacrificed to a kraken.
-During the infiltration, the intrepid group manages to 'borrow' some white acolyte robes for disguises. Clad in white from head to toe, they stealthily make their way through the twisted passages of the ancient temple.
-
-From ahead one of the group hears muttering and they stop. It turns out they have reached the dining hall of the temple guards who are congregating for the morning meeting/briefing. As the group ponders how to go about passing this obstacle, one of them hears someone approaching fast down the hall towards them. The runners shrink back against the walls and, as the guard runs by, tackle him, incapacitate him, and then the Sam of the group (hereafter known as Mr. Bloodlust) chops off his head!
-
-This minor commotion, though too quiet to be noticed in the meeting, disturbs a room full of 'sacred animals' being kept for sacrifices. In order to silence them Mr. Bloodlust jumps into the room and, using his combat axe, slaughters the twenty or more sheep. He does this with great abandon, spattering their blood and gibs all over the walls in the process (killing with a combat axe is MESSY).
-
-After this little killing spree, Mr.Bloodlust leaves the carnage and returns to the group. As he passes by the body of the dead guard, he realizes he has a chance at a free weapon and, reasoning in typical sam fashion that one can never have too many guns/too much ammo, strips the cooling body of combat webbing (complete with pistols and grenades), and slips it on OVER his robes.
-
-At this point, the group realizes that they have to pass through the meeting room in order to get to the remainder of the temple and complete the mission. 
-Anonymous Mon 22 Feb 2010 00:43:00 No.4569044 Report 
- The voices from the guardroom have increased in volume as more people arrive. As the group stands around pondering their next move they hear someone in the meeting call out "Hey! Where's Abdul?"
-
-Glancing down at the combat webbing name badge that says 'Abdul', Mr. Bloodlust gets an idea…
-
-Of course, he consults no one else regarding this cunning plan.
-
-He bursts into the dining hall and yells out, "Somebody killed Abdul!"
-
-At this point, the GM stopped the game. As he puts it "I had fallen to the floor laughing so hard that I could hardly breathe!"
-
-GM: "What the Hell were you thinking?"
-Mr. Bloodlust: "Well, I figure they'll all want to investigate Abdul's death."
-GM: "Okay, let's imagine this scene. An ork clad in the blood-drenched robes of an acolyte, bearing a bloody, gore encrusted combat axe and WEARING the combat webbing and name-badge of 'Abdul' rushes into a room full of security personnel and freely announces the death of somebody HE HAS MURDERED!
-Mr. Bloodlust: (is quiet for a moment) "Ooops." 
-GUNDAMU !0smG1gQz9c Mon 22 Feb 2010 00:48:00 No.4569075 Report 
- Quoted By: >>4569210 
- Hmm. An army of grunts between us and our objective?
-
-I'd say LAUNCH ME, DUMI again, but an object in motion stays in motion. And when we're in space, I don't think that's a good idea.
-
-Unless Dumi precisely calculates the velocity so that we'll land on the satelite, instead of passing through it and rocketing off into space.
-
-Come to think of it, how big is this thing again? 
-Sciencegar Sciencebolt Mon 22 Feb 2010 00:56:00 No.4569124 Report 
- Quoted By: >>4569496 
->>4568995
-
-That would depend on where the upgrade to Raioh is coming from. Who's to say the Machine Cells can't handle it themselves? 
-View SameGoogleiqdbSauceNAO Ridol.gif,  3KiB, 453x388 
- 
-Sciencegar Sciencebolt Mon 22 Feb 2010 01:02:00 No.4569148 Report 
- Quoted By: >>4569184 
->>4569001
-
-Pic is how I imagined it. Top pic is the external view showing the handles in grey, bottom is the internal view with the Memory Cell reservoirs. It assumes a preprogrammed shape as the ridol is removed. 
-Stealthyboy !fchRKomfls Mon 22 Feb 2010 01:07:00 No.4569184 Report 
- Quoted By: >>4569217 
->>4569148
-So sticking out forwards like a Gespenst's plasma sword rack, got it. 
-Sciencegar Sciencebolt Mon 22 Feb 2010 01:11:00 No.4569210 Report 
- Quoted By: >>4569214 
->>4569075
-
-The main body is about 100 meters across, half instruments and half manuvering thrusters to maintain this less-than-stable geostationary orbit (real geostationary orbits are thousands of km in altitude). The missiles are on the main body, the turrets on pylons about 30 meters long. The effect is kinda shurikenny. 
-Anonymous Mon 22 Feb 2010 01:12:00 No.4569214 Report 
- Quoted By: >>4569225 
->>4569210
-Don't forget that the mech is 150 meters tall. 
-Sciencegar Sciencebolt Mon 22 Feb 2010 01:13:00 No.4569217 Report 
- Quoted By: >>4569252 
->>4569184
-
-As to whether they're the Motorad mode handles...well, I never figured out the particulars of the transformation to see where they end up. I think they might fit better as the exhausts, really. 
-Sciencegar Sciencebolt Mon 22 Feb 2010 01:14:00 No.4569225 Report 
- Quoted By: >>4569265 
->>4569214
-
-Raioh and Dumi are about 50 meters tall, typical size for an SRW super. The only units that are significantly larger are the Giganspadas, and actual ships (and bosses). 
-Stealthyboy !fchRKomfls Mon 22 Feb 2010 01:19:00 No.4569252 Report 
->>4569217
-Well, I'll never be able to make it have a possible transformation anyway... I'm not a mech designer and I'm barely a drawfag, so you guys'll have to live with what you get, I'm afraid. 
-GUNDAMU !0smG1gQz9c Mon 22 Feb 2010 01:22:00 No.4569265 Report 
->>4569225
-So, there's really no way to slow down enough to land on the satelite without destroying it and flying off into the endless void of space, huh?
-
-...Come to think of it, the same could be said for an enemy mech as well. Rope one in with Plasma Leaders, get Dumi to hack it's reactor to explode, and engage all your boosters to surf it into the satelite, jumping off at the last second.
-
-Then recover the remaining drones and retrofit them as backup units. 
-Sciencegar Sciencebolt Mon 22 Feb 2010 01:24:00 No.4569275 Report 
- Quoted By: >>4569283 
->>4569295 
- Raioh can fly in space, you know. It just needs Dumi to carry it to orbit. 
-Anonymous Mon 22 Feb 2010 01:26:00 No.4569283 Report 
->>4569275
-No, it can't.
-
-Enjoy your bad end. 
-GUNDAMU !0smG1gQz9c Mon 22 Feb 2010 01:29:00 No.4569295 Report 
->>4569275
-...I'm still voting for hacking and surfing a grunt into the satellite, and ignoring all common sense and battle strategy.
-
-Besides, it pays off when we get to retrofit the salvaged leftover grunts, which would be in good condition after not really being too roughed up.
-
-See? I can brains too. 
-Sciencegar Sciencebolt Mon 22 Feb 2010 01:41:00 No.4569343 Report 
- Quoted By: >>4569359 
->>4569383 
->>4569527 
- "Dumi, you first! Stars, behind me! We're breaking through!" The formation lines up as the enemy opens fire. Beams and missiles lance into Dumis forcefield, which takes a pounding but holds.
-
-Quite an impressive rate of fire on those turrets, much higher than I expected.
+*Quite an impressive rate of fire on those turrets, much higher than I expected.*
 
 "Star-3, Prominence, Speigual!!"
+
 "Star-2, Prominence, Siephard!!"
 
 A storm of missiles fly out of the AMs and arc around the super robots, slamming into the Rangzen squadron, hard. Most of the drones are already gone, with only a few stray scratches on you and Dumi. 
@@ -193,61 +32,11 @@ A storm of missiles fly out of the AMs and arc around the super robots, slamming
 
 The Plasma Leader snakes out and grabs one of the fighters, and you unceremoniously drag it to you. Placing your feet on its back, you attempt to ride it like a bucking bronco. Except it doesn't buck that much.
 
-Katina, that fighter doesn't have the thrust to move the Rai-oh effectively.
+*Katina, that fighter doesn't have the thrust to move the Rai-oh effectively.*
 
 "Dammit, stupid weak jet! Pull hardAH!!" A beam lances into the Raiohs torso, blowing off chips of armor.
 
-ANOTHER STRATEGY, PERHAPS? 
-Anonymous Mon 22 Feb 2010 01:44:45 No.4569358  Report 
->>4568969
-Please stop spamming www. anon removethis talk .com with your stupid bots already. We do not want you or your memes there. 
-SEED D Cagalli !!U5xc0wG3iH0 Mon 22 Feb 2010 01:45:00 No.4569359 Report 
->>4569343
-
-GRAB MORE FIGHTERS!
-Katina.jpg
-MAKE IT WORK! 
-Anonymous Mon 22 Feb 2010 01:48:00 No.4569383 Report 
- Quoted By: >>4569462 
->>4569480 
->>4569509 
->>4569536 
->>4569343
-Feel boobs. Check if there is anything wrong with them.
-
-Then proceed to use the Haken Impulse to control the trajectory of as much Rangzens as you can, and when you have them in a favorable position, use the Counter Break to shoot electricity into the enemy. 
-Shas'El Mon 22 Feb 2010 02:06:00 No.4569462 Report 
->>4569383
-I like this. Let's do it.
-
-Boob grabbing included 
-Anonymous Mon 22 Feb 2010 02:10:00 No.4569480 Report 
- Quoted By: >>4569561 
->>4569574 
->>4569383
-Everything this man said. 
-
-Then rush the turrets. There should be a blind spot around dthe satelite where neither the turrets or the missiles can target you effectively. 
-BSRaven !!pZhu/eJf6iW Mon 22 Feb 2010 02:14:00 No.4569496 Report 
->>4569124
-Oh fuck.
-
-SHIN DAIRAIOH ANYONE!?
-
-Also: Use Dumi for momentum, then RAIOH KICK SOMETHING. Because even in space we're awesome.
-
-Alternatively: Molest Raioh. I'm okay with it. 
-Sanger Zombolt! Mon 22 Feb 2010 02:16:00 No.4569509 Report 
->>4569383
-Breast Cancer awareness? 
-Anonymous Mon 22 Feb 2010 02:21:00 No.4569527 Report 
->>4569343
-GRAB FIGHTERS
-USE THE FIGHTERS AS SPACE PARTS THROUGH MACHINE CELL OVERTECHNOLOGY 
-BECOME SPACE RAI-OH. 
-Sciencegar Sciencebolt Mon 22 Feb 2010 02:22:00 No.4569532 Report 
- Quoted By: >>4569556 
- You check your boobs. They seem to be in perfect working order. You toss the useless surfboard into the path of a beam, and start kicking.
+You check your boobs. They seem to be in perfect working order. You toss the useless surfboard into the path of a beam, and start kicking.
 
 The rapid fire from the Harken Impulse forces the drones to evade as you want them to, though you take some more glancing hits until you draw the circle tight enough to shield you. Then you thrust out your arms, lightning playing across them.
 
@@ -257,162 +46,9 @@ The enemy squad are thrown violently back, several exploding from the sheer stre
 
 Another beam clips you.
 
-STRATEGY FOR THE SATELLITE ITSELF? 
-Anonymous Mon 22 Feb 2010 02:23:00 No.4569536 Report 
->>4569383
-This. 
-SEED D Cagalli !!U5xc0wG3iH0 Mon 22 Feb 2010 02:25:00 No.4569545 Report 
- Quoted By: >>4569570 
->>4569946 
- We have Setsuko and Toby focus their firepower on that metal plate while we run interference. 
-Anonymous Mon 22 Feb 2010 02:26:00 No.4569556 Report 
- Quoted By: >>4569589 
->>4569532
-ASSIMILATE SATELLITE
-BROADCAST MESSAGE OF LOVE AND PEACE TO WORLD
-????
-GET HAREM. 
-Anonymous Mon 22 Feb 2010 02:26:00 No.4569561 Report 
->>4569480
-This seems like a nice idea. The satelite should be defenseless if we are right next to it.
+"Star Team, I've made a hole, you thrust into it! I'll handle the turrets!!"
 
-Ask everyone else to protect you from the appraching missiles. Also, use the electricity forcefield we used to get free of the sinking boat to tank the turret fire. 
-View SameGoogleiqdbSauceNAO DGG4 DUMI.png,  6KiB, 424x447 
- 
-Stealthyboy !fchRKomfls Mon 22 Feb 2010 02:27:00 No.4569567 Report 
- Quoted By: >>4569578 
->>4569594 
->>4569726 
- Right, okay, here's my shitty attempt at drawfagging Dumi.
-
-The wheels should probably be bigger, but there's no way I'm redrawing them. 
-Anonymous Mon 22 Feb 2010 02:28:00 No.4569570 Report 
- Quoted By: >>4569946 
->>4569545
-This, lets run interference by kicking the turrets closest to us. 
-
-And by "closest to us" I mean "all of them". 
-Stealthyboy !fchRKomfls Mon 22 Feb 2010 02:28:00 No.4569574 Report 
->>4569480
-Seconding this plan. 
-Anonymous Mon 22 Feb 2010 02:29:00 No.4569578 Report 
->>4569567
-Thats pretty good. 
-BSRaven !!pZhu/eJf6iW Mon 22 Feb 2010 02:30:00 No.4569589 Report 
->>4569556
-I'll fund this.
-
-Even if it's never going to happen, I'll still say this. 
-SEED D Cagalli !!U5xc0wG3iH0 Mon 22 Feb 2010 02:33:00 No.4569594 Report 
- Quoted By: >>4569648 
->>4569567
-
-You know what? That's kinda fitting.
-
-Katina is now a Kamen Rider with two eye colors. And the Godhand edit had her eyes be purple and green.
-
-Purple and green = colors of Double
-
-Dumi also turns into a motorcycle
-
-Turns into a motorcycle = the gimmick of Accel. 
-Haken Browning !zHe7DH816A Mon 22 Feb 2010 02:45:00 No.4569648 Report 
- Quoted By: >>4569691 
->>4569761 
->>4569594
-And the post pointing all this out is a palindrome.
-
-Gentle/m/en, we have become DESU-BOILED EXTREME. 
-Anonymous Mon 22 Feb 2010 02:49:00 No.4569678 Report 
- Quoted By: >>4569702 
- God damn it. Would someone post the actual link to the Phantom Tiger site? I can't find it when I search Yahoo. Totally going to bookmark it this time. 
-SEED D Cagalli !!U5xc0wG3iH0 Mon 22 Feb 2010 02:51:00 No.4569691 Report 
- Quoted By: >>4569702 
->>4569648
-
-Actually it would be a palindrome if it was 45699654.
-
-But that would've been awesome if it was. 
-View SameGoogleiqdbSauceNAO Ryouma.jpg,  7KiB, 150x113 
- 
-Stealthyboy !fchRKomfls Mon 22 Feb 2010 02:52:00 No.4569697 Report 
- ----->Kamen Rider references
------>My head.
-
-Polite sage for own ignorance 
-Haken Browning !zHe7DH816A Mon 22 Feb 2010 02:52:00 No.4569702 Report 
- Quoted By: >>4569714 
->>4569812 
->>4569691
-I count odd-character palindromes.
-
->>4569678
-http://teamphantomtiger.blogspot.com 
-Anonymous Mon 22 Feb 2010 02:54:00 No.4569714 Report 
- Quoted By: >>4569946 
->>4569702
-Damn it all. I put Team Phantom Tiger Blog into the search engine and I /still/ couldn't find that in the first five pages. 
-Sciencegar Sciencebolt Mon 22 Feb 2010 02:56:00 No.4569726 Report 
- Quoted By: >>4569755 
->>4569567
-
-Feet are a bit big, but otherwise, fine job sir!! 
-Stealthyboy !fchRKomfls Mon 22 Feb 2010 03:02:00 No.4569755 Report 
- Quoted By: >>4569769 
->>4569726
-God knows how it transforms into a bike from that, though... 
-Zeta Zaku Mon 22 Feb 2010 03:03:00 No.4569761 Report 
- Quoted By: >>4569769 
->>4569648
-I still have enough issues with Dumi that I'd not call him our SAIKYOU no PAATONAA yet. If Lefina turns out to be on the level, then maybe we'll be in business. 
-Anonymous Mon 22 Feb 2010 03:05:00 No.4569769 Report 
- Quoted By: >>4569789 
->>4569946 
->>4569755
-PLASMA FIELDS
->>4569761
-Dumi is a cute girl who is our true lover. Dumi needs a humanoid form. Science. Make the machine cells make HUMANOID DUMI. She is the only one fit for our batshit insane gothloli. 
-Stealthyboy !fchRKomfls Mon 22 Feb 2010 03:07:00 No.4569789 Report 
- Quoted By: >>4569806 
->>4569946 
->>4569769
-But Dumi's a guy... 
-Anonymous Mon 22 Feb 2010 03:10:00 No.4569803 Report 
- Quoted By: >>4569812 
->>4568972
-Haken Browning's site.
-Link, damn you. 
-Anonymous Mon 22 Feb 2010 03:10:00 No.4569806 Report 
- Quoted By: >>4569946 
->>4569789
-If the machine cells could make humanoid Dumi, I'm sure they could make rule 63 humanoid Dumi. 
-Zeta Zaku Mon 22 Feb 2010 03:11:00 No.4569812 Report 
->>4569803
-See:
->>4569702 
-Haken Browning !zHe7DH816A Mon 22 Feb 2010 03:32:00 No.4569946 Report 
->>4569714
-You searching with MSN or someshit? Just "Team Phantom Tiger" spits out my initial entry as the third result in Google.
-
->>4569545
->>4569570
-Seconded.
-
->>4569769
->>4569789
->>4569806
-If Machine Cells can't make Dumi a girl, then Einst will once we've crushed Beowulf. If THOSE don't work, then I will. 
-Sciencegar Sciencebolt Mon 22 Feb 2010 03:36:00 No.4569977 Report 
- Quoted By: >>4570009 
->>4570012 
->>4570022 
->>4570076 
->>4570086 
->>4570088 
->>4570124 
- "Star Team, I've made a hole, you thrust into it! I'll handle the turrets!!"
-
-We'll handle the turrets, you mean.
+*We'll handle the turrets, you mean.*
 
 "Yeah yeah."
 
@@ -422,65 +58,15 @@ You kick through the pylon of a second turret, grab it with the Plasma Leaders a
 
 Even the Star Team are having issues, barely getting into range to fire heavy missiles before the flak sends them away again.
 
-ANY BRIGHT IDEAS?? 
-SEED D Cagalli !!U5xc0wG3iH0 Mon 22 Feb 2010 03:42:00 No.4570009 Report 
->>4569977
-
-Setsuko and Toby are to do barrel rolls while firing smart bombs and lasers.
-
-Okay, not really.
-
-Anyways, we should fall back. Raioh can heal, the enemy forces can't. Buy enough time for our machine to get out of the red, then charge back into the fray to draw enemy fire.
-
-Dumi and the Star team will hang back until all eyes are on us, and then lunge forward from a different angle. Dumi will tank for Setsuko and Toby until they can get in the satellite and shut it down from in there. 
-Haken Browning !zHe7DH816A Mon 22 Feb 2010 03:43:00 No.4570012 Report 
- Quoted By: >>4570052 
->>4569977
-Defensive/suppressive fire while the MCs do their thing. What do we (RaiOh and Dumi) have that can intercept a fuckton of missiles at once (and can do THAT more than once)? 
-Stealthyboy !fchRKomfls Mon 22 Feb 2010 03:44:00 No.4570022 Report 
->>4569977
->We'll handle the turrets, you mean.
-D'awwwwww, he just wants Katina to accept him as her partner...
-
-Seriously now, though. Try to rip off some of the armour from the satellite and use it as a shield. 
-Sciencegar Sciencebolt Mon 22 Feb 2010 03:47:00 No.4570052 Report 
- Quoted By: >>4570059 
->>4570012
-
-If you used the plasma leaders defensively, you should be able to block most of the missiles, but it means you won't be able to use any attacks. Apart from his shield, Dumi can rapidfire his weapons on intercept mode. 
-SEED D Cagalli !!U5xc0wG3iH0 Mon 22 Feb 2010 03:48:00 No.4570059 Report 
->>4570052
-
-Alright. Dumi and Katina serve as shields entirely focusing on defense. We leave attacking to Setsuko and Toby. 
-Zeta Zaku Mon 22 Feb 2010 03:50:00 No.4570076 Report 
->>4569977
-I want to say Star Team uses any AMS equipment they might have, chaff, flares, et al. I doubt they have enough for this though. 
-
-Alternate between Star Team and the DGGs plugging away at the turrets. Aggressive passes with Dumi and Katina, taking advantage of our Machine Cells. Split Toby and Setsuko up, they should be fast enough to draw some aggro and keep us from tanking too much and overloading our regen. 
-Anonymous Mon 22 Feb 2010 03:52:00 No.4570086 Report 
->>4569977
->I've made a hole, you thrust into it!
-I'm reminded of the OG2 scene "A man should attack with his fists!" "Lt. Katina you ARE a woman, right?"
-Or something to that effect. 
-Anonymous Mon 22 Feb 2010 03:53:00 No.4570088 Report 
->>4569977
-TEAR OUR WAY INTO THE SATELLITE. This will prevent them from shooting us! 
-View SameGoogleiqdbSauceNAO 1265607046985.jpg,  16KiB, 426x240 
- 
-Stealthyboy !fchRKomfls Mon 22 Feb 2010 04:02:00 No.4570124 Report 
->>4569977
->I've made a hole, you thrust into it! 
-Sciencegar Sciencebolt Mon 22 Feb 2010 04:54:00 No.4570455 Report 
- Quoted By: >>4570460 
- "Ok, not going so good...OK, switch around!! Star Team take the turrets, I'll handle the armor!"
+"Ok, not going so good...OK, switch around!! Star Team take the turrets, I'll handle the armor!"
 
 "Roger!" The two AMs burst off in opposite directions, laying fire into the missile swarms. A network of orange bubbles follows you as you fly around the satellite and ram your fists into the ragged section of armor."
 
-Dumi rushes in to block a beam headed for you. Katina, what exactly are you going to do now?
+Dumi rushes in to block a beam headed for you. *Katina, what exactly are you going to do now?*
 
 I'm gonna....show them all....MY POOOWWWEEEEERR!!!" In a burst of lighting, the entire panel is wrenched away from the satellite. You drag it out, turn it, and then boost at maximum, ramming the sharp end into the main lens, shattering it. 
 
-Well...well done. That sho-
+*Well... well done. That sho-*
 
 Then you reposition yourself and boost again, wrenching the panel around in the wound, crushing the remaining sensors utterly.
 
@@ -490,29 +76,22 @@ Toby lets out a victory yell. "Well done girl. We've nuetralised the missile ban
 
 "Not so fast!" Setuko sounds worried. "I'm picking up an EFA vessel, ending engagement range!! We can't reenter the atmosphere with them firing on us!"
 
-It's alright. They're friendlies. 
-Stealthyboy !fchRKomfls Mon 22 Feb 2010 04:56:00 No.4570460 Report 
->>4570455
-I suppose this is Dumi's friend coming.
-I wonder if we should be jealous. 
-Anonymous Mon 22 Feb 2010 04:59:00 No.4570470 Report 
- Since we have Rafflesia, where is Ginguiser or at least TTGL? 
-Sciencegar Sciencebolt Mon 22 Feb 2010 05:00:00 No.4570474 Report 
- Quoted By: >>4570480 
->>4570484 
->>4570492 
->>4570500 
->>4570521 
->>4570641 
- "Alright. These are the units we're meant to collect. Open the PT bay doors and prepare to recieve them."
+*It's alright. They're friendlies.*
 
-Lefina blinks in shock. "Captain....we just saw them destroy one of our own defense satellites!"
+---
+
+"Alright. These are the units we're meant to collect. Open the PT bay doors and prepare to recieve them."
+
+Lefina blinks in shock. "Captain... we just saw them destroy one of our own defense satellites!"
 
 Despinis rolls a lazy eye at her subordinate. "I have my orders."
 
-"Y-yes, captain." This is crazy! Why would friendy units be attacking our own satellites? There's no reason for our own units to be destroying EFA facilities...Unless theres some kind of internal rift I don't know about.
+"Y-yes, captain." This is crazy! Why would friendy units be attacking our own satellites? There's no reason for our own units to be destroying EFA facilities... Unless theres some kind of internal rift I don't know about.
 
-Lefina looks at her captain ever-impassive face. Is she some kind of seditionist? And if so....is that a bad thing?
+Lefina looks at her captain ever-impassive face. Is she some kind of seditionist? And if so... is that a bad thing?
+
+---
+
 "Wait, what?"
 
 We're going with them. They're secret Shadow Mirror agents who'll be transporting us to another location.
