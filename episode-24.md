@@ -196,7 +196,7 @@ The crewman nearest stares at you as you attack your plate. "Er, miss... Who exa
 
 You look up at the EFA commander, a pretty young woman in formal dress.
 
-"Commander Lefina Enfield, CO of this vessel. Forgive me if I'm prying, but I'm a little concerned about the captains reasons for letting you onto this vessel."
+"Commander Lefina Enfield, XO of this vessel. Forgive me if I'm prying, but I'm a little concerned about the captains reasons for letting you onto this vessel."
 
 "Why I'd love to, Commander!" You grin. "We'll have to take this to a more secure location, however... Say my new quarters."
 
@@ -206,13 +206,13 @@ You amble off to the rear of the ship, where you've been given a room by Despini
 
 You enter the room and flop down on the bunk. Lefina looks increasingly concerned. "Ms. Tarask, the captain wouldn't say who you are or what your relationship with the EFA was. Given your... actions earlier, I have to ask... what exactly are you?"
 
- "I'm Katina Tarask. It's what I am."
+"I'm Katina Tarask. It's what I am."
 
 "I'm not sure I-"
 
 You stand up and look straight into her eyes. "They call me The Thunderous Fury. When they need something recovered, they send the Cry Wolves. When they need someone dead, they send Beowulf. When they need something ground into dust, they send me."
 
-"Er...I see."
+"Er... I see."
 
 "Intimidated?"
 
@@ -226,212 +226,11 @@ You stand up and look straight into her eyes. "They call me The Thunderous Fury.
 
 "I just want to know what you're getting this ship into! Are you going to get us killed?"
 
-"Don't worry babe, there's nothing I can't handle...unless you'd like to prove me wrong?"
+"Don't worry babe, there's nothing I can't handle... unless you'd like to prove me wrong?"
 
 Lefina steps backwards and starts fumbling for the door handle.
 
-ARE YOU GOING TO STOP HER, OR SAY ANYTHING ELSE? 
-Anonymous Mon 22 Feb 2010 22:28:00 No.4575352 Report 
->>4575084
-tell her
->>4575109
-and 
->>4575162 
-Lord Guilford !UuMJgvNa0Y Mon 22 Feb 2010 22:29:00 No.4575355 Report 
- Quoted By: >>4575423 
->>4575347
-...that was even more entertaining than I hoped.
-
-Now cut the crazy talk and say something deceitful and rational. 
-Haken Browning !zHe7DH816A Mon 22 Feb 2010 22:30:00 No.4575359 Report 
->>4575347
-Let her go. She'll be running off to Captain Deathpenis crying about how we're a loose cannon, and in turn she'll attempt to rationalize our actions. 
-SEED D Cagalli !!U5xc0wG3iH0 Mon 22 Feb 2010 22:30:00 No.4575363 Report 
- Quoted By: >>4575380 
->>4575394 
->>4575423 
->>4576404 
->>4575347
-
-Say you'd like to talk with the captain as soon as possible.
-
-Dumi must have SOME reason for getting us on an EFA ship. 
-Stealthyboy !fchRKomfls Mon 22 Feb 2010 22:31:00 No.4575369 Report 
- Quoted By: >>4575394 
->>4575347
-Come on to her even stronger, that should make her stop asking questions and leave. 
-Stealthyboy !fchRKomfls Mon 22 Feb 2010 22:33:00 No.4575380 Report 
->>4575363
-Also, this. 
-Anonymous Mon 22 Feb 2010 22:37:00 No.4575394 Report 
->>4575363
->>4575369
-
-A mix with these two. 
-Anonymous Mon 22 Feb 2010 22:43:00 No.4575423 Report 
- Quoted By: >>4575523 
->>4575355
->>4575363
-These two. We did crazy, now let's see if we can do smart. 
-BSRaven !!pZhu/eJf6iW Mon 22 Feb 2010 23:06:00 No.4575523 Report 
->>4575423
-I'm with this guy. So thirded. 
-Anonymous Mon 22 Feb 2010 23:15:00 No.4575583 Report 
- Tell her that we need to see the captain in order to prepare for our next assignment. 
-Anonymous Mk-II Mon 22 Feb 2010 23:47:00 No.4575687 Report 
->>4575347
-tell her we are kidding and that we want to talk with the captain ASAP. 
-Sciencegar Sciencebolt Tue 23 Feb 2010 01:34:00 No.4576106 Report 
- Quoted By: >>4576370 
- I will now proceed to pleasure myself with a fish. 
-Anonymous Tue 23 Feb 2010 01:54:00 No.4576189 Report 
- Quoted By: >>4576235 
- I finally caught one of these when it's still alive! So, now, even though they're long out of date here are the few observations that I kept wanting to post but always missed the chance to, Ignore them if you like but It'll finally be over. 
-
-
-> What I'm trying to say is, there are ample oppurtunities, just not universal ones.
-
-I was worried that this was going to turn into a protracted game of guess the verb just then. 
-
->The most reliable members of our team are a Irishman and a South Carolina ex-valley girl with a gun fetish."
-
-She was from New York. Born in Chelsea in the Alpha-verse (although probably not in the OGverse... how many meteors fell in the Shadow Mirrorverse?)
-
-Interestingly New York was destroyed by meteor in the Alphaverse too, but they rebuilt it.
-
-> so what does this make Arado 
-
-German. At least based on his name.
-
-(About Dumi tanking)
->This is starting to make me really suspicious. Sitting in front of a battleship's cannon and not taking a scratch? There's high defense but this is ridiculous.
-
-It's not that suspicious. Wouldn’t an OG Grungust for example with fully upgraded armour only take 10 damage from most enemy battleships? Admittedly it's more money than you'd expect to be put into it by this stage of the game, even then with iron wall...
-
-Don’t forget it’s got some sort of barrier...a G-Wall or something? 
-Stealthyboy !fchRKomfls Tue 23 Feb 2010 02:03:00 No.4576235 Report 
- Quoted By: >>4576350 
->>4576189
-I find the fact that you're spoiler tagging things from several threads prior very amusing. 
-Anonymous Tue 23 Feb 2010 02:19:00 No.4576319 Report 
->We WOULD have gotten a gigantic battleship earlier if we had gone with Duminuss.
-
-I thought the standard Hiryu wasn't a battleship and the Hiryu Custom only had that kind of power ... once it was customised?
-
->Commander Lefina Enfield, CO of this vessel
-
-I thought that was Despinis? 
-Anonymous Tue 23 Feb 2010 02:23:00 No.4576350 Report 
- Quoted By: >>4576370 
->>4576235
-
-That was just so people that didn't want to have to look at it didn't have to. 
-
-More embarrassingly I just found out that you can't spoiler green text. I didn't realise. 
-View SameGoogleiqdbSauceNAO Suzaku You Fishy Bastard.jpg,  75KiB, 550x385 
- 
-Haken Browning !zHe7DH816A Tue 23 Feb 2010 02:25:00 No.4576370 Report 
- Quoted By: >>4576417 
->>4576350
->Spoilers trumping greentext are an integral part of CycloneJokertext, y'know.
-
->>4576106
-See pic. 
-Anonymous Tue 23 Feb 2010 02:28:00 No.4576404 Report 
->>4575363
->>4575189
-
-These. 
-Anonymous Tue 23 Feb 2010 02:30:00 No.4576417 Report 
- Quoted By: >>4576433 
->>4576370
-
-What do you mean "Spoilers trumping greentext"? I can still see the green text. 
-Anonymous Tue 23 Feb 2010 02:32:15 No.4576424  Report 
- Quoted By: >>4576433 
->Wait a second let me try 
-Haken Browning !zHe7DH816A Tue 23 Feb 2010 02:33:00 No.4576433 Report 
- Quoted By: >>4576574 
->>4576417
->>4576424
->You do it by leaving an empty pair of spoiler tags in a quote line. 
-Anonymous Tue 23 Feb 2010 02:40:00 No.4576483 Report 
- Oh, right I'm with you now. 
-
-And I think it's high time I stopped filling the thread with useless posts. 
-Anonymous Tue 23 Feb 2010 02:59:00 No.4576574 Report 
- Quoted By: >>4576581 
->>4576433
->Isn't there some way to alternate green and black text also? 
-Haken Browning !zHe7DH816A Tue 23 Feb 2010 03:00:00 No.4576581 Report 
->>4576574
-JokerCyclone? That's crazy talk, boy.
-
-Courtesy sage for lack of productivity. 
-Anonymous Tue 23 Feb 2010 04:12:00 No.4576976 Report 
- Quoted By: >>4577004 
- I bet Getter Emperor could beat a Zaku easily. 
-View SameGoogleiqdbSauceNAO 1265995896847.png,  51KiB, 318x470 
- 
-I apologised on 4chan !!O1JS15Z6lxy Tue 23 Feb 2010 04:17:00 No.4577004 Report 
- Quoted By: >>4577009 
->>4576976
->I bet Getter Emperor could beat a Zaku easily. 
-
-Doesn't that depend on who's piloting the Zaku? 
-Anonymous Tue 23 Feb 2010 04:18:00 No.4577009 Report 
->>4577004
-It is being piloted by soldier A. 
-I apologised on 4chan !!O1JS15Z6lxy Tue 23 Feb 2010 04:20:00 No.4577018 Report 
- Quoted By: >>4577024 
- That Soldier A? The guy that loves to wear red shirts, loudly identify Gundams, paint his Mobile Suits orange and has just had a chance encounter with Jessica Fletcher? 
-Anonymous Tue 23 Feb 2010 04:21:00 No.4577024 Report 
- Quoted By: >>4577033 
->>4577018
-That one. 
-I apologised on 4chan !!O1JS15Z6lxy Tue 23 Feb 2010 04:23:00 No.4577033 Report 
- Quoted By: >>4577047 
->>4577050 
->>4577051 
->>4577024
-
-Huh, I thought I already killed that guy in the ZEONQUEST Christmas Special... 
-Anonymous Tue 23 Feb 2010 04:25:00 No.4577047 Report 
->>4577033
-Getter Emperor is reaching through time just to kill him first. 
-Anonymous Tue 23 Feb 2010 04:25:00 No.4577050 Report 
- Quoted By: >>4577077 
->>4577033
-So, curious, what kind of load-out do you go with in SRW games, in terms of Real/Super? I have to admit curiousity on this.
-
-I am the guy who kept whining about sticking the leg rockets on the Doms. 
-Anonymous Tue 23 Feb 2010 04:25:00 No.4577051 Report 
->>4577033
-How can he be dead if he is piloting a Zaku against Getter Emperor? 
-SEED D Cagalli !!U5xc0wG3iH0 Tue 23 Feb 2010 04:30:00 No.4577077 Report 
->>4577050
-
-Depends on the game I'm playing:
-
-I typically goes with Supers (Soulgain, Grungust, always use the Solverius Rex mode when I can) but sometimes a Real stands out and I have to use it.
-
-Specifically the Aile Chevalier in SRW D and the Coustwell in SRW J. 
-Sciencegar Sciencebolt Tue 23 Feb 2010 04:49:00 No.4577174 Report 
- Quoted By: >>4577200 
-> so what does this make Arado
->German. At least based on his name.
-
-For some reason I always thought it sounded kinda south-american-y.
-
-I always have a big dichotomy with SRW. I usually prefer supers in terms of design and storylines, but nothing beats the feeling of getting your reals to 0% hit chance 
-Anonymous Tue 23 Feb 2010 04:54:00 No.4577200 Report 
- Quoted By: >>4577294 
->>4577174
-Did you finish pleasuring yourself with that fish? 
-Sciencegar Sciencebolt Tue 23 Feb 2010 05:04:00 No.4577282 Report 
- Quoted By: >>4577441 
->>4577492 
- "Heh-heh, don't sweat it girl, very few can stand up to The Fury. Now, if you don't mind, I'd like to speak with your lovely captain."
+"Heh-heh, don't sweat it girl, very few can stand up to The Fury. Now, if you don't mind, I'd like to speak with your lovely captain."
 
 Lefina stops panicking. "...Right. Right. The Captain. I'll bring you to her. As long as you promise me this ship won't be drawn into anything it can't handle."
 
@@ -441,60 +240,7 @@ The walk to the captains office is just as dull and drab, except now the moon is
 
 Lefina lets you into the captains office and then leaves before you can pinch her ass. Despinis turns to you, her face still incredibly stioc. "Yes, Katina, what can I do for you?"
 
-WHAT DO WE HAVE TO SAY TO THE CAPTAIN? 
-Sciencegar Sciencebolt Tue 23 Feb 2010 05:06:00 No.4577294 Report 
->>4577200
-
-That was just some guy stealing the name for a random post. It's happened before on other threads. I'll ignore it until it becomes an actual problem, actual tripfaggotry is the last step before admitting you're a dedicated 4channer. 
-Anonymous Tue 23 Feb 2010 05:07:00 No.4577306 Report 
- Quoted By: >>4577324 
- RAPE THE CAPTAIN 
-Haken Browning !zHe7DH816A Tue 23 Feb 2010 05:10:00 No.4577324 Report 
- Quoted By: >>4577485 
->>4577306
-For once, I disagree. Might wreck our RVs with Dumi for both obvious and subtle reasons.
-
-Too lazy to slog through the trollfests to recall what the heck we're up here to do, but let's try to be professional about requesting/informing exactly what it is, hmm? 
-Sanger Zombolt! Tue 23 Feb 2010 05:25:00 No.4577441 Report 
- Quoted By: >>4577461 
->>4577466 
->>4577282
-What were we supposed to ask the captain again? 
-Anonymous Tue 23 Feb 2010 05:29:00 No.4577461 Report 
->>4577441
-I don't know. I checked the thread and there is nothing saying that. 
-Anonymous Tue 23 Feb 2010 05:29:00 No.4577466 Report 
->>4577441
-I dunno... I think we just decided we wanted to see the captain. 
-Sanger Zombolt! Tue 23 Feb 2010 05:31:00 No.4577482 Report 
- Well, fuck. I don't know what to do. 
-Sciencegar Sciencebolt Tue 23 Feb 2010 05:31:00 No.4577485 Report 
->>4577324
->Shadow Mirror intelligence apparently had suspicions about a resource satellite, just on the far side of the moon. Reports are sketchy, but apparently they suspected it was some form of weapons factory, belonging to which faction was unclear.
-
-That what Dumi said Katina and he should check out. How curious she is about it is up to you. 
-Anonymous Tue 23 Feb 2010 05:32:00 No.4577492 Report 
->>4577282
-Ask for information on the defenses on the resource satellite and/or weapons factory we'll be raiding/taking over. I can't remember exactly which we were planning on. 
-Anonymous Tue 23 Feb 2010 05:33:00 No.4577497 Report 
- Let's ask how he is doing? 
-Anonymous Tue 23 Feb 2010 05:34:00 No.4577515 Report 
- The only action we can do now is leaving the room in a panic, I guess. 
-SEED D Cagalli !!U5xc0wG3iH0 Tue 23 Feb 2010 05:36:00 No.4577525 Report 
- We should ask Despinis how our support craft's AI would know this would be a safe ship to go to. 
-Anonymous Tue 23 Feb 2010 05:37:00 No.4577541 Report 
- I can't believe this shit.
-
-If we want to do something productive let's ask him about the ship and it's specs. 
-Anonymous Tue 23 Feb 2010 05:49:00 No.4577619 Report 
- ...huh. At the time I was just thinking of how to allay Lefina's concerns... I've no idea what to say now that we're here.
-
-Ask her about how she and Dumi met? Or what exactly they are up to/what they hope to gain out of this (if there's any chance she'll talk), If all else fails ask if she thinks the EFA will twig that she's gone AWOL 
-Sciencegar Sciencebolt Tue 23 Feb 2010 06:06:00 No.4577737 Report 
- Quoted By: >>4577801 
->>4577828 
->>4577897 
- "So...er...ugh....friend of Dumi's, then?"
+"So... er... ugh... friend of Dumi's, then?"
 
 A slight pause. "Yes. I made his acquaintance back during his construction, while I was helping design his intelligence-gathering functions. He is quite the personality, for what is supposed to be a machine for tactical support."
 
@@ -502,7 +248,7 @@ A slight pause. "Yes. I made his acquaintance back during his construction, whil
 
 "Its not that hard, if you know what you're doing."
 
-"But...why him? Seems at odd choice when there should be other Shadow Mirrors you can talk to."
+"But... why him? Seems at odd choice when there should be other Shadow Mirrors you can talk to."
 
 "There aren't. The main command staff were lost in this Lygeus operation. Any surviving officers where not in my cell structure and their contact details were not available. Dumi was my only link."
 
@@ -510,29 +256,7 @@ A slight pause. "Yes. I made his acquaintance back during his construction, whil
 
 "...From what Dumi tells me, if the intelligence is accurate, we will have no issues with the EFA once we secure the base."
 
-ANYTHING ELSE YOU'D LIKE TO ASK? 
-Anonymous Mk-II Tue 23 Feb 2010 06:16:00 No.4577801 Report 
- Quoted By: >>4578045 
->>4577737
-ask her when does the operation start. after that see if you can contact axel and the other guys back on earth. they think we are crazy so we should start to act more like soldiers instead perverted psycopaths(even if that what we are) 
-Anonymous Tue 23 Feb 2010 06:19:00 No.4577828 Report 
- Quoted By: >>4578045 
->>4577737
-Ask what that intelligence is. I want to know what we're getting into here. 
-Anonymous Tue 23 Feb 2010 06:30:00 No.4577897 Report 
- Quoted By: >>4578045 
->>4577737
-Let's talk to her about the Hiryu. I'm interested in how different it is from the Hiryu Kai. 
-Sanger Zombolt! Tue 23 Feb 2010 06:55:00 No.4578045 Report 
->>4577897
->>4577828
->>4577801
-A mix of these three. 
-Sciencegar Sciencebolt Tue 23 Feb 2010 07:00:00 No.4578088 Report 
- Quoted By: >>4578111 
->>4578139 
->>4578884 
- "Ok...when will we be getting there?"
+"Ok... when will we be getting there?"
 
 "About 4 hours from now. The Eurydice is not a slow vessel."
 
