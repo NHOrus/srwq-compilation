@@ -268,63 +268,22 @@ A slight pause. "Yes. I made his acquaintance back during his construction, whil
 
 Despinis frowns slightly, the only facial expression you think she's made this whole conversation. "It doesn't need to be. We just need to get onto that rock."
 
-ANY MORE QUESTIONS? 
-Anonymous Tue 23 Feb 2010 07:03:00 No.4578111 Report 
- Quoted By: >>4578306 
->>4578088
-That's never a good sign. Ask her what she means by that, is this thing undefended or what? 
-Anonymous Tue 23 Feb 2010 07:07:00 No.4578139 Report 
- Quoted By: >>4578306 
->>4578088
-i think thats all the info we need. time to contact our HQ and get some data for space combat, probably latooni, kai and ring can teach us a thing or two about it.
-also notify axel about all the shit thats going on up here, he is our commander after all. 
-Anonymous Mk-II Tue 23 Feb 2010 07:24:00 No.4578306 Report 
->>4578111
->>4578139
-this. also check if the raioh is damaged or not and do proper maintenence accordingly. 
-Sciencegar Sciencebolt Tue 23 Feb 2010 07:51:00 No.4578585 Report 
- Quoted By: >>4578620 
->>4578648 
- "Wait, so, this thing is undefended then? That's a bit odd for a weapons factory, isn't it?"
+"Wait, so, this thing is undefended then? That's a bit odd for a weapons factory, isn't it?"
 
-"The indications are that its a fully automated factory, with next to no actual people aboard. If there are any defenses, they should only be on the outside of it. Once we're inside, there should be nothing to stop us retrieving...anything we find inside."
+"The indications are that its a fully automated factory, with next to no actual people aboard. If there are any defenses, they should only be on the outside of it. Once we're inside, there should be nothing to stop us retrieving... anything we find inside."
 
-"I see....So we just need the Raioh to bust through then? Actually..." You twiddle with your earpiece communicator. "Dumi, how's the Raioh doing?"
+"I see... So we just need the Raioh to bust through then? Actually..." You twiddle with your earpiece communicator. "Dumi, how's the Raioh doing?"
 
 The Machine Cells are low on energy with the beating it took form the satellite, but it should be in perfect condition by the time we arrive.
 
-"..Kay. Can I get through to Axel here, let him know how all this is going?"
+"...Kay. Can I get through to Axel here, let him know how all this is going?"
 
-I've already sent him a message, Katina, explaining what we're doing. We can't risk too many signals, otherwise the EFA may pick them up, and we'd only end up leading them to the new base.
+*I've already sent him a message, Katina, explaining what we're doing. We can't risk too many signals, otherwise the EFA may pick them up, and we'd only end up leading them to the new base.*
 
-ANYTHING ELSE? 
-Anonymous Tue 23 Feb 2010 07:56:00 No.4578620 Report 
- Quoted By: >>4578647 
->>4578585
-Inform Stars team about what we should expect and plan the attack. 
-Sciencegar Sciencebolt Tue 23 Feb 2010 08:00:00 No.4578647 Report 
- Quoted By: >>4578739 
->>4578620
 
-They didn't come along, since they didn't have any orders to and they were a little wierded out at the situation. Also, they probably wouldn't fit in the PT bay, its basically full with Raioh and DGG-04. 
-Anonymous Mk-II Tue 23 Feb 2010 08:00:00 No.4578648 Report 
- Quoted By: >>4578739 
->>4578585
-funny toaster, thinking in everything. BTW how about a change in perspectives?
-its been a while since we heard something from vindel, lemon and the resistance guys and now that i remmember kusuha and burrito-kun are with them. 
-Anonymous Tue 23 Feb 2010 08:10:00 No.4578739 Report 
->>4578647
-Well get some sleep before the attack or something then. Not much else to do.
+---
 
->>4578648
-Seconding this as well.
-
-The scene shifts really help the SRW feel of the thread, not to mention character development. I really liked that hospital scene. 
-Sciencegar Sciencebolt Tue 23 Feb 2010 08:24:00 No.4578839 Report 
- Quoted By: >>4578860 
->>4578874 
->>4578982 
- Lily Junkers frowns at the screen in front of her. "Thats an EFA vessel alright, and its heading straight for Hellsgate. Juergen, they may finally be onto you."
+Lily Junkers frowns at the screen in front of her. "Thats an EFA vessel alright, and its heading straight for Hellsgate. Juergen, they may finally be onto you."
 
 "Not possible. As far as they know, its just an inanimate rock. Only we know the secret of the Sphere."
 
@@ -343,231 +302,46 @@ Junkers turns from the screen and sees an orderly come up to her. "Ma'am, the pe
 "A location in China, ma'am. Some kind of Archeological dig, apparently."
 
 "Hrm...maybe we're not the only ones finding buried treasure..." 
-Anonymous Mk-II Tue 23 Feb 2010 08:27:00 No.4578860 Report 
->>4578839
->>juergen
-GODDAMMIT I HATE THAT FAGGOT
-i hope our dear frilly dressed maniac kills him like the bitch he is 
-Anonymous Tue 23 Feb 2010 08:27:30 No.4578861  Report 
- Who's side is she actually on? Are we even going to be allowed to keep any of the stuff that we're going to be (the only one) fighting for?
 
-Also AFAIK in SRWR
+---
 
-Duminas made Despinis, in SRWQ Despinis made Dumi. 
-Zeta Zaku Tue 23 Feb 2010 08:28:00 No.4578874 Report 
->>4578839
->Hellgate.
-I knew it. Also
+The Asteroid is massive, easily bigger than any space colony, and is made of ominous red stone. From certain angles, the craters catch the light in such a way as to make a skull face. It's not inviting.
 
->Juergen
->ODE System
->new units
->Sphere
->possible Choukijin
-
-Goddamnit Dumi, what have you dragged us into. 
-Anonymous Tue 23 Feb 2010 08:29:00 No.4578884 Report 
- Quoted By: >>4578938 
->>4578088
-
-Who's side is she actually on? Are we even going to be allowed to keep any of the stuff that we're going to be (the only one) fighting for?
-
-Some things we might want to be more worried about.
-
-Also AFAIK in SRWR
-
-Duminas made Despinis, in SRWQ Despinis made Dumi. 
-Anonymous Mk-II Tue 23 Feb 2010 08:36:00 No.4578938 Report 
->>4578884
-holy shit!
-but still lets play along with them and if they try something funny and/or suspicious kill em all without hesitation or remorse. 
-Anonymous Tue 23 Feb 2010 08:41:00 No.4578982 Report 
->>4578839
-Well this is going to suck. 
-Sciencegar Sciencebolt Tue 23 Feb 2010 09:19:00 No.4579202 Report 
- Quoted By: >>4579210 
- The Asteroid is massive, easily bigger than any space colony, and is made of ominous red stone. From certain angles, the craters catch the light in such a way as to make a skull face. It's not inviting.
-
-Well, we're here. No sign of any activity, except a raised heat signature. It seems the factory is deep inside the rock, to mask all its emissions.
+*Well, we're here. No sign of any activity, except a raised heat signature. It seems the factory is deep inside the rock, to mask all its emissions.*
 
 "Any sign of defense turrets, missiles or the like?"
 
-None, although some could be hidden in the shade.
+*None, although some could be hidden in the shade.*
 
 "And are we just meant to drill through the rock?"
 
-We could, but there must be access points somewhere. I'd suggest checking around the southern area, the part that looks like the skulls teeth.
+*We could, but there must be access points somewhere. I'd suggest checking around the southern area, the part that looks like the skulls teeth.*
 
 "Woah. I thought I was just imagining the skull..."
 
-HOW DO YOU WANT TO DO THIS? SEARCH FOR ENTRANCE, BASH YOUR WAY IN, OR SOMETHING ELSE? 
-Jesus Yamato Tue 23 Feb 2010 09:20:00 No.4579210 Report 
->>4579202
->SOMETHING ELSE?
+---
 
-Play Vestige and tell them to stop fighting while blowing up all of their weapons because Cagalli is crying! 
-Anonymous Tue 23 Feb 2010 09:35:00 No.4579291 Report 
- Search for an opening, I suppose. We want to save all our strength just in case Dumi is wrong and there is something horrible waiting for us inside. 
-View SameGoogleiqdbSauceNAO bartool.png,  130KiB, 238x373 
- 
-Sciencegar Sciencebolt Tue 23 Feb 2010 09:49:00 No.4579366 Report 
- Quoted By: >>4579383 
- You mount up and fly over to the asteroid on minimal thrust. The surface is pockmarked and cavernous, and theres a lot of it. Eventually though, you see a glint of metal, and sure enough, it looks like some sort of landing bay. Unfortunately, two of these things appear to be guarding it.
+You mount up and fly over to the asteroid on minimal thrust. The surface is pockmarked and cavernous, and theres a lot of it. Eventually though, you see a glint of metal, and sure enough, it looks like some sort of landing bay. Unfortunately, two Bartools appear to be guarding it.
 
-Well, this is unexpected..
+*Well, this is unexpected...*
 
 "What the heck are they?"
 
 Passive scans imply they're some form of drones, no pilots. Lightly armed and armored, but built for mobility. Without a pilot to hold them back, they could be quite manuverable, assuming their AI systems are competent.
 
-WHAT WILL KATINA DO? 
-Anonymous Tue 23 Feb 2010 09:51:00 No.4579383 Report 
->>4579366
-Oh...fuck.
+"Well, if they're AIs, does that mean you can hack them? Make it so they see us as friendlies?"
 
-Make sure not to pull out any, ANY of our decent attacks yet, just use enough to take them down. 
-Gamlin !Xb1uRYUg66 Tue 23 Feb 2010 09:51:00 No.4579384 Report 
- Quoted By: >>4579437 
->>4580259 
- At this point trying to make comm contact would be best.
-
-Broadcast a short range hail on all channels.
-
-"DUMI TOLD ME THAT YOU GUYS WOULD GIVE USE SOME SUPER BAD ASS WEAPONS! AND I WANNA USE EM TO KICK GOOEY EFA ASS!!!" 
-Jerid Messa !!AbDOcayw4O/ Tue 23 Feb 2010 09:51:00 No.4579385 Report 
- I sure hope those are Mirongas. Lets try to disable them, we can bring one back for Russel or Arado. 
-Anonymous Tue 23 Feb 2010 09:52:00 No.4579393 Report 
->Bartools
-
-Fuuuuuuuuuuuuck
-
-I dunno, let someone else who is more awake decide. 
-Anonymous Tue 23 Feb 2010 09:58:00 No.4579423 Report 
- The only solution I see is the Black Mage solution. 
-
-Probably best for someone else to come up with a plan. 
-View SameGoogleiqdbSauceNAO nanoha.jpg,  68KiB, 510x536 
- 
-Anonymous Tue 23 Feb 2010 10:00:00 No.4579437 Report 
- Quoted By: >>4580259 
->>4579384
-Concur. Lets avoid fighting while we can. Maybe Dumi can befriend them?
-
-If that fails, we can always Befriend them. Pic related. 
-Anonymous Tue 23 Feb 2010 10:00:00 No.4579442 Report 
- Try to contact them while moving closer. Katina doesn't know they're a hivemind yet, so contacting them would seem to be the reasonable option. Is Dumi around? 
-Anonymous Tue 23 Feb 2010 10:02:00 No.4579457 Report 
- Quoted By: >>4579594 
- Just going off on an unrelated tangent here, but can the Machine Cells rapidly alter the RaiOh's structure? Because I just got an idea for a new attack.
-
-MUGEN PUNCH! INTO THE MOON! 
-Anonymous Tue 23 Feb 2010 10:23:00 No.4579594 Report 
- Quoted By: >>4579624 
->>4579457
-Yeah, we haven't gotten any new weaponry yet, have we?
-
-When are those changes going to show up? 
-Anonymous Tue 23 Feb 2010 10:29:00 No.4579624 Report 
- Quoted By: >>4579663 
->>4579666 
->>4579671 
->>4580151 
->>4579594
-POSSIBLE NEW WEAPONS THANKS TO M.CELLS
-
-1.Mugen Punch/Kick
-2.Rocket Punch
-3.Scarf Sword (Behaves like Van's sword in GUNxSWORD)
-4.Growing extra arms to PUNCH THE FUCK OUT OF SHIT
-5.Gomu Gomu no.... 
-Rick Dominated Tue 23 Feb 2010 10:37:00 No.4579663 Report 
->>4579624
->3.Scarf Sword (Behaves like Van's sword in GUNxSWORD)
-Oh...My...God.
-This must happen, Sweet Jesus Yamato this has to happen.
-
-Anyway, boost forward, grab both Mirongas and smash them together! 
-Anonymous Tue 23 Feb 2010 10:37:00 No.4579666 Report 
- Quoted By: >>4580151 
->>4579624
-Also more Rider-esque powers. FORM CHANGES! 
-Anonymous Tue 23 Feb 2010 10:38:00 No.4579671 Report 
- Quoted By: >>4579693 
->>4579624
-Penis? Raioh grows a penis that is as long and big as the Kurogane and rams the opponent with said penis? 
-View SameGoogleiqdbSauceNAO awesomeface.png,  34KiB, 336x336 
- 
-Anonymous Tue 23 Feb 2010 10:41:00 No.4579693 Report 
->>4579671 
-Anonymous Tue 23 Feb 2010 12:12:00 No.4580090 Report 
- Quoted By: >>4580121 
->>4580124 
- GREAT! 
-Anonymous Tue 23 Feb 2010 12:15:00 No.4580098 Report 
- Quoted By: >>4580121 
->>4580124 
- I'll grab my stuff! 
-Anonymous Tue 23 Feb 2010 12:23:00 No.4580121 Report 
->>4580090
->>4580098
-... Goddamn it why did you have to go there...? 
-Anonymous Tue 23 Feb 2010 12:24:00 No.4580124 Report 
->>4580090
->>4580098
-...I don't get it. 
-Anonymous Tue 23 Feb 2010 12:27:00 No.4580131 Report 
- THERE IS NO TIME, YOUR SWORD IS ENOUGH. 
-Anonymous Tue 23 Feb 2010 12:33:00 No.4580151 Report 
- Quoted By: >>4580245 
->>4579624
->3.Scarf Sword (Behaves like Van's sword in GUNxSWORD)
->Transforming scarf
->>4579666
->FORM CHANGES!
-COVER ENTIRE MECHA IN TRANSFORMING SCARF THAT CAN BECOME DRILLS
-AdviceSimon.jpg
-BECOME KAMEN RIDER GURREN LAGANN 
-Anonymous Tue 23 Feb 2010 13:08:00 No.4580245 Report 
- Quoted By: >>4580249 
->>4580151
-You mean kamen rider G. 
-Anonymous Tue 23 Feb 2010 13:10:00 No.4580249 Report 
->>4580245
-That's only if we keep a large stock of wine in the cockpit.
-
-...Which we might just do. 
-Anonymous Tue 23 Feb 2010 13:16:00 No.4580259 Report 
- Quoted By: >>4580278 
->>4579437
->>4579384
-This. Since Dumi is a 1337 hack3r let him hack their AI so that they see us as friendlies so that we may loot the place without any fighting.
-
-Is there any way to get Juergens to our side? It seems that he is trying to get the scorpion sphere which is the power source of Ryuko-o. 
-Anonymous Tue 23 Feb 2010 13:22:00 No.4580278 Report 
->>4580259
-This. Having the SM-verse Ryukoo on our side would be awesome. 
-Stealthyboy !fchRKomfls Tue 23 Feb 2010 16:24:00 No.4580683 Report 
- I say we try to avoid fighting the Bartools if possible. Are there any Shadow Mirror codes we can broadcast as a sort of IFF? 
-Anonymous Tue 23 Feb 2010 18:42:00 No.4581110 Report 
- What are you doing on page 4 SRQ?
-
-...Unless you're autosagan. Again. 
-Sciencegar Sciencebolt Tue 23 Feb 2010 18:55:00 No.4581155 Report 
- Quoted By: >>4581170 
->>4581185 
- "Well, if they're AIs, does that mean you can hack them? Make it so they see us as friendlies?"
-
-Good idea. I'll just....Ugh....What...
+*Good idea. I'll just... Ugh... What...*
 
 "Dumi?"
 
 Rainbow lights suddenly appear on the foreheads of the drones, and they turn to face your hiding spot.
 
-There are hundreds of them, all linked together....And they're using my systems as a base. How? HOW?!?!
+*There are hundreds of them, all linked together... And they're using my systems as a base. How? HOW?!?!*
 
 "Dumi, what the hell is going on?!?!" you shout as the DGG-04 starts to spasm underneath your mech.
 
-Tis, Lalia, Despinis, help me!!! IN THE NAME OF THE CREATOR HELP ME!!!!
+*Tis, Lalia, Despinis, help me!!! IN THE NAME OF THE CREATOR HELP ME!!!!*
 
 The drones are flying towards you, arms outstretched, and its obvious they're going to grab Dumi. Your sensors indicate that more have just become active in the landing bay.
 
