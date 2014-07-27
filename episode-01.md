@@ -7,9 +7,11 @@ Back of Box Blurb:
 Spurred on by their victories against the DC and the Inspectors, the EFA military have taken more and more control of the Earth Sphere, crushing all dissent beneath their heels. Only the Earth's Liberation Front stood in their way, but even these brave soldiers could not stop the juggernaut. Now, the only remaining source of dissent are the ELFs financial backers, the Shadow Mirrors. And even now, the EFA Marshall their forces to stamp them out.
 The Shadow Mirrors no longer have a place in this world. It is time to find a new one.
 
-**MAIN CHARACTER SELECTED**
+    MAIN CHARACTER SELECTED
 
-From the Desk of Adler Koch, director of SCHOOL.
+---
+
+####From the Desk of Adler Koch, director of SCHOOL.
 
 >Re: Incident #09322
 
