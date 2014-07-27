@@ -1,4 +1,4 @@
-# Episode 20
+# Episode 24
 
 ## SHADOW MIRROR QUEST (AKA SRW Q)
 
@@ -64,7 +64,7 @@ Even the Star Team are having issues, barely getting into range to fire heavy mi
 
 Dumi rushes in to block a beam headed for you. *Katina, what exactly are you going to do now?*
 
-I'm gonna....show them all....MY POOOWWWEEEEERR!!!" In a burst of lighting, the entire panel is wrenched away from the satellite. You drag it out, turn it, and then boost at maximum, ramming the sharp end into the main lens, shattering it. 
+I'm gonna... show them all... MY POOOWWWEEEEERR!!!" In a burst of lighting, the entire panel is wrenched away from the satellite. You drag it out, turn it, and then boost at maximum, ramming the sharp end into the main lens, shattering it. 
 
 *Well... well done. That sho-*
 
@@ -188,7 +188,7 @@ The crewman nearest stares at you as you attack your plate. "Er, miss... Who exa
 
 "I'm Katina Tarask. Why?"
 
-"Well, um, Ms. Tarask, there are...rumors going around the ship....they say you were attacking an EFA satellite when we picked you up. Is...is that true?"
+"Well, um, Ms. Tarask, there are... rumors going around the ship... they say you were attacking an EFA satellite when we picked you up. Is... is that true?"
 
 "Sorry, above top secret, not on your clearance, if I told you I'd have to kill you, etc. etc.. Damn, this is good gravy."
 
@@ -198,119 +198,14 @@ You look up at the EFA commander, a pretty young woman in formal dress.
 
 "Commander Lefina Enfield, CO of this vessel. Forgive me if I'm prying, but I'm a little concerned about the captains reasons for letting you onto this vessel."
 
-WHAT IS KATINA REPSONSE TO LEFINA? 
-NuBackAnon !!z6ldXGL61Wm Mon 22 Feb 2010 19:56:00 No.4574581 Report 
- Quoted By: >>4574710 
->>4574566
-"I like you," she said, "Let's walk and talk somewhere "private" 
-
-USE SUBTLE MODE 
-Anonymous Mon 22 Feb 2010 20:11:00 No.4574613 Report 
- Quoted By: >>4574710 
->>4574566
-
-"Listen I can´t tell you about at front of these all people, but maybe when there are no extra ears..."
-
-"Meanwhile A tour around the ship would be nice, so I don't run to bathrooms if someone attacks the ship." 
-Haken Browning !zHe7DH816A Mon 22 Feb 2010 20:41:00 No.4574710 Report 
- Quoted By: >>4574834 
->>4574876 
->>4574613
->>4574581
-Some combination of these two. Express the need for privacy regarding the situation while implying the desire for privacy in...other regards. 
-Stealthyboy !fchRKomfls Mon 22 Feb 2010 21:00:00 No.4574834 Report 
->>4574710
-This. A little flirting never goes amiss. 
-Sanger Zombolt! Mon 22 Feb 2010 21:05:00 No.4574876 Report 
->>4574710
-This. Add sexual harassment into the plate. 
-Anonymous Mon 22 Feb 2010 21:09:00 No.4574897 Report 
->>4572953
-The pilots would be Irm for the Stealth Gust, Jonathan for the Drill Gust and Ring for the Gust Liner. 
-Sciencegar Sciencebolt Mon 22 Feb 2010 21:40:00 No.4575084 Report 
- Quoted By: >>4575109 
->>4575114 
->>4575135 
->>4575352 
- "Why I'd love to, Commander!" You grin. "We'll have to take this to a more secure location, however...Say my new quarters."
+"Why I'd love to, Commander!" You grin. "We'll have to take this to a more secure location, however... Say my new quarters."
 
 Lefina looks at you a little oddly. "...Fine."
 
 You amble off to the rear of the ship, where you've been given a room by Despinis. There's little to see on the way, the ship seems to be deliberately designed to be as bland and homogenous as possible, and what few portholes you pass show nothing but empty space.
 
-You enter the room and flop down on the bunk. Lefina looks increasingly concerned. "Ms. Tarask, the captain wouldn't say who you are or what your relationship with the EFA was. Given your....actions earlier, I have to ask...what exactly are you?"
+You enter the room and flop down on the bunk. Lefina looks increasingly concerned. "Ms. Tarask, the captain wouldn't say who you are or what your relationship with the EFA was. Given your... actions earlier, I have to ask... what exactly are you?"
 
-REPONSE TO LEFINA? 
-Stealthyboy !fchRKomfls Mon 22 Feb 2010 21:43:00 No.4575109 Report 
- Quoted By: >>4575126 
->>4575135 
->>4575352 
->>4575084
->Given your....actions earlier, I have to ask...what exactly are you?
-
-More than you can handle, baby. Rowr. 
-Haken Browning !zHe7DH816A Mon 22 Feb 2010 21:44:00 No.4575114 Report 
- Quoted By: >>4575138 
->>4575084
-PARAPHRASE ROBERT ZEMECKIS' BEOWULF
->advicedesu.jpg
-MAKE LEFINA SWOON INTO OUR ARMS 
-Anonymous Mon 22 Feb 2010 21:46:00 No.4575126 Report 
->>4575109
-Thisthisthis.....first. 
-Sanger Zombolt! Mon 22 Feb 2010 21:48:02 No.4575135  Report 
->>4575084
-
-Start with this 
-
->>4575109
-
-Then: "I pray you are aware of the current situation in the EFA." 
-Haken Browning !zHe7DH816A Mon 22 Feb 2010 21:49:00 No.4575138 Report 
->>4575114
-Clarification on this: I mean to say that we should give a Katina-themed version of the "I! AM! BEOWULF!" speech, and see whether she fears us from the enumeration of our brutalities or if our lustful adrenaline rubs off on her. 
-Sanger Zombolt! Mon 22 Feb 2010 21:53:00 No.4575162 Report 
- Quoted By: >>4575180 
->>4575194 
->>4575352 
- Disregard what I said, instead lets lie to her for the moment being.
-
-She won't believe that the EFA is currently run by aliens, so let's just tell a lie until we get to our base.
-
->Use our school training to lie to her. 
-Stealthyboy !fchRKomfls Mon 22 Feb 2010 21:56:00 No.4575180 Report 
- Quoted By: >>4575255 
->>4575162
-And by School training to lie to her, you mean sexual harrasment until she gets creeped out and runs away, right? 
-Sanger Zombolt! Mon 22 Feb 2010 21:58:00 No.4575189 Report 
- Quoted By: >>4575255 
->>4575331 
->>4576404 
- Say somethign along the lines of:
-
-The satelite's AI had gone berserk because of a deadly virus deployed by the rebels, in order to give the EFA even more trouble than it has.
-
-I was sent to quietly dispose of said array without the public noticing. 
-Anonymous Mon 22 Feb 2010 21:59:00 No.4575194 Report 
->>4575162
-
-Seconded... 
-Anonymous Mon 22 Feb 2010 22:10:00 No.4575255 Report 
->>4575189
-This. Then this:
->>4575180 
-View SameGoogleiqdbSauceNAO 1256153055709.png,  68KiB, 512x512 
- 
-Lord Guilford !UuMJgvNa0Y Mon 22 Feb 2010 22:25:00 No.4575331 Report 
- A mix of this
->>4575189
-And hitting on her. 
-Sciencegar Sciencebolt Mon 22 Feb 2010 22:27:00 No.4575347 Report 
- Quoted By: >>4575355 
->>4575359 
->>4575363 
->>4575369 
->>4575687 
  "I'm Katina Tarask. It's what I am."
 
 "I'm not sure I-"
@@ -952,26 +847,4 @@ Tis, Lalia, Despinis, help me!!! IN THE NAME OF THE CREATOR HELP ME!!!!
 
 The drones are flying towards you, arms outstretched, and its obvious they're going to grab Dumi. Your sensors indicate that more have just become active in the landing bay.
 
-IT'S A CLIFFHANGER!!! GET READY FOR THE NEXT THREAD!!! 
-Zeta Zaku Tue 23 Feb 2010 18:59:00 No.4581170 Report 
->>4581155
-Shit shit SHIT. DUMI, THIS IS WHAT HAPPENS WHEN YOU SEQUENCE BREAK. 
-Anonymous Tue 23 Feb 2010 19:03:00 No.4581185 Report 
->>4581155
->Tis, Lalia, Despinis, help me!!! IN THE NAME OF THE CREATOR HELP ME!!!!
-
-Daaaaaaaaaawwwwwww. 
-Sciencegar Sciencebolt Tue 23 Feb 2010 19:10:00 No.4581212 Report 
->>4581193
-
-New thread here. 
-
-Subject 
-Name 
-E-mail 
-Password 
- 
- 
-FoolFuuka Imageboard 2.0.0-dev-0 - Asagi Fetcher  Change Theme   
- Change Language   
-FAQ - Credits & Links - Network Status - Blog
+---
