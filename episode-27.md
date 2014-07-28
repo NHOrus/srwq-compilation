@@ -172,87 +172,23 @@ You grin slightly at the assembled crowd. "Its real possible. I mean, you guys'v
 
 Radhas eyes nearly pop out of her skull. "S-such madness! A war so great, over one mans lunacy?"
 
-"Er....Thing is, he might have had a point. We recently got some first-hand evidence of our own that things aren't totally earth-y up in Geneva. As in, the top PT teams seem to have a few too many tentacles to be Earth-made..."
+"Er... Thing is, he might have had a point. We recently got some first-hand evidence of our own that things aren't totally earth-y up in Geneva. As in, the top PT teams seem to have a few too many tentacles to be Earth-made..."
 
 "H-how? Who?"
 
-Patricia blinks "It can't be the Balmarians...Is it the Zuvorg Alliance?"
+Patricia blinks "It can't be the Balmarians... Is it the Zuvorg Alliance?"
 
 "All we know is that they call themselves the First and Only, they're butt-ugly, and they're kinda secretive about it, for now." 
-Sciencegar Sciencebolt Fri 26 Feb 2010 23:04:08 No.4601430 Report 
- Quoted By: >>4601471 
->>4601474 
->>4601488 
- The room is incredibly quiet. Radha shakes her head in disbeleif. Kar-Wai looks incredibly shaken. Tytti is enthralled.
 
-Patricia puts her hand under her chin pensively. "If the EFA really are compromised, th-then...Can there be peace between Balmar and Earth? Will this...different government allow the Balmarians to land and settle?"
+The room is incredibly quiet. Radha shakes her head in disbeleif. Kar-Wai looks incredibly shaken. Tytti is enthralled.
+
+Patricia puts her hand under her chin pensively. "If the EFA really are compromised, th-then... Can there be peace between Balmar and Earth? Will this... different government allow the Balmarians to land and settle?"
 
 You shrug. "Probably not. Hence why we'll need to convince the Balmarians to help us fight the EFA and topple those tentacled bastards!"
 
 Kar-Wai looks at you oddly. "Who exactly is this 'we' you keep mentioning?"
 
-HOW WILL KATINA DESCRIBE THE SHADOW MIRROR TO OUR FRIENDS? 
-Haken Browning !zHe7DH816A Fri 26 Feb 2010 23:05:08 No.4601434 Report 
- Quoted By: >>4601448 
->>4601416
->Aside from two major incidents
-I hope this is what you meant there. 
-Stealthyboy !fchRKomfls Fri 26 Feb 2010 23:05:08 No.4601435 Report 
- Quoted By: >>4601474 
->>4601416
-Question Patricia on what she knows of the Zuvorg. 
-Sciencegar Sciencebolt Fri 26 Feb 2010 23:08:08 No.4601448 Report 
->>4601434
-
-Yeah, it is, my bad.
-
-(Hope and Elpis, in case you're wondering) 
-Anonymous Fri 26 Feb 2010 23:09:08 No.4601457 Report 
- Quoted By: >>4601466 
->>4601474 
->>4601597 
- Go with Kai's motivation that all this secret divided arms building is bad and that Shadow Mirrors belief that an open conflict is the only way to settle out who and what is going on in the government. Leave the everlasting conflict stuff for waaaaaaaaay later. 
-Jerid Messa !!AbDOcayw4O/ Fri 26 Feb 2010 23:12:08 No.4601466 Report 
->>4601457
-
-Let's go with this for now. Hell the endless conflict idea may not even be there anymore once the Shadow Mirrors finish rebuilding themselves. 
-Anonymous Fri 26 Feb 2010 23:13:08 No.4601471 Report 
- Quoted By: >>4601568 
->>4601430
-"The Shadow Mirror is a resistance group dedicated to toppling the corrupt EFA and preparing humanity to defend itself from all possible aggressors." It's even technically true. The reason they start wars is that technology has a way of developing faster during war. That and it's the only real way to get ace pilots. 
-Haken Browning !zHe7DH816A Fri 26 Feb 2010 23:13:08 No.4601474 Report 
- Quoted By: >>4601615 
->>4601430
-Go with this: >>4601457
-Then press Patricia for Zuvorg intel per >>4601435 on our own time.
-
-But not in our usual interrogative manner; she's far too serious for our little games to work. 
-Stealthyboy !fchRKomfls Fri 26 Feb 2010 23:16:08 No.4601488 Report 
->>4601430
-The Shadow Mirror... Some call us freedom fighters, attempting to topple a corrupt government. Others label us as terrorists, spreading chaos and war wherever we travel.
-What do I believe? That we're the only people left in this world who truly have the strength to change things in this world. And change things we will, even if it takes us down to our last breaths! We are the Shadow Mirror, and we will reshape the stars themselves! 
-Anonymous Fri 26 Feb 2010 23:29:08 No.4601566 Report 
- "Well, basically, the Shadow-Mirrors are an organization that's trying to plunge the world into endless war, although since I joined and Vindel vanished we've kinda changed our priorities a bit. Maybe. I dunno. Personally, I think Vindel had a few screws loose or something...Kar-Wai, just so you know, Kai joined up because he's trying to get the two factions of the EFA, the aliens and the assholes, fighting each other or something. I wasn't really listening. I don't really care about what they're doing as long as I get to break some heads...ANYWAY. When I joined up they were planning to head over to another universe. Like, right then, except then the EFA..." and then go on and explain what we've been doing. 
-Anonymous Mk-II Fri 26 Feb 2010 23:30:08 No.4601568 Report 
->>4601471
-this. after that is settled ask pat what does she knows about the zuvorgs.
-also contact the axel and the rest of the task force. 
-Anonymous Fri 26 Feb 2010 23:37:08 No.4601597 Report 
->>4601457
-4'd. Then afterwards it is time for us to ask some questions. 
-Anonymous Fri 26 Feb 2010 23:41:08 No.4601615 Report 
->>4601474
-What about our OTHER usual manner?
-
-wilyeyebrows.gif
-
-...Well, that'll probably be a bad idea too. Lets just do it quietly and politely. 
-Sciencegar Sciencebolt Sat 27 Feb 2010 00:08:08 No.4601715 Report 
- Quoted By: >>4601752 
->>4601796 
->>4601810 
->>4601941 
- "The Shadow Mirrors are...a group that oversees and equips the resistance movements opposed to the EFA. We beleive that the internal strife in the EFA, the secret cold war between the aliens in Geneva and the other factions of the EFA, isn't good enough. The whole thing needs to dragged out into the open, and the people armed and prepared to take back their rights and their planet. We've been putting pressure on the EFA for years, and its finally paid off by getting the alien masters to show themselves, but at a high price. Our command structure was recently hit hard, and we've been looking for new oppurtunities, like this one."
+"The Shadow Mirrors are... a group that oversees and equips the resistance movements opposed to the EFA. We beleive that the internal strife in the EFA, the secret cold war between the aliens in Geneva and the other factions of the EFA, isn't good enough. The whole thing needs to dragged out into the open, and the people armed and prepared to take back their rights and their planet. We've been putting pressure on the EFA for years, and its finally paid off by getting the alien masters to show themselves, but at a high price. Our command structure was recently hit hard, and we've been looking for new oppurtunities, like this one."
 
 Radha is looking really worried. "S-so you work with these DC to keep the fighting going?!?"
 
@@ -262,216 +198,35 @@ Radha is looking really worried. "S-so you work with these DC to keep the fighti
 
 You shrug. "It's either that or become sex-toys for bored aliens. I choose to fight."
 
-Kar-Wai is shaking his head. "I just find it hard to beleive...What kind of evidence do you have?"
+Kar-Wai is shaking his head. "I just find it hard to beleive... What kind of evidence do you have?"
 
-"Er...I can get gun-cam images from the Rai-oh if you like. I got a good look at that Albero guy who I saved Kai from."
+"Er... I can get gun-cam images from the Rai-oh if you like. I got a good look at that Albero guy who I saved Kai from."
 
 "...Perhaps from the horses mouth would be better. Can I talk to Kai?"
 
-"Hmmm....Dumi, I think the EFA knows were we are by now, surely its safe to call home?"
+"Hmmm.... Dumi, I think the EFA knows were we are by now, surely its safe to call home?"
 
-The EFA fleet have gone to full alert and overboosted between us and Earth, and set up ECM. A direct line to Earth is impossible, our only hope would be to bounce it off the colonies, and for that to work, we'd need to use the DC channels. I've already promised Juergens a lot, a risky move like this may cost me more than I'd like."
+*The EFA fleet have gone to full alert and overboosted between us and Earth, and set up ECM. A direct line to Earth is impossible, our only hope would be to bounce it off the colonies, and for that to work, we'd need to use the DC channels. I've already promised Juergens a lot, a risky move like this may cost me more than I'd like.*
 
-SUGGESTIONS FROM KATINA? Or can we fob Kar-Wai off and skip to Patricia? Or shall we just prepare for battle? 
-Anonymous Sat 27 Feb 2010 00:14:08 No.4601752 Report 
- Quoted By: >>4601790 
->>4601836 
->>4601715
-Hmm...Maybe we should place a call through to our guys, see if they can't send over Shuu to pick us up. 
-SEED D Cagalli !!U5xc0wG3iH0 Sat 27 Feb 2010 00:19:08 No.4601790 Report 
->>4601752
+"Damned EFA and their damned jamming! Dumi, you've got to come up with a way to get around that shit, I'm sick of it!!"
 
-We should see if Toby and Setsuko are still in the area. 
-Anonymous Sat 27 Feb 2010 00:19:08 No.4601796 Report 
- Quoted By: >>4601825 
->>4601715
-"You'll have to wait till we get to earth then. Then you can see those aliens for yourself. But right now, the EFA has blocked any possibilities of communication with our allies, so the videos I am about to show you will have to suffice."
-
-Then try to find a way to skip a major battle with the EFA. We don't want to lose Juergen's alliance.
-
-After that, we head straight to earth with our forces. We have done enough dilly-daling in space. Sadly, this means that the Valstork will have to wait. 
-Stealthyboy !fchRKomfls Sat 27 Feb 2010 00:23:08 No.4601810 Report 
->>4601715
-Explain to Kar-Wai that it'll be next to impossible to get a signal through, with the EFA blocking the comms. He'll have to make do with the video footage. 
-Sanger Zombolt! Sat 27 Feb 2010 00:25:08 No.4601825 Report 
->>4601796
-This. I don't want to lose any of our newfound allies in the next battle. Let's try regrouping with all the other ships and try to circunvent the EFA's fleet. They will still send a few Rangzens and an assault ship, but that's better than an entire ship full of PTs. 
-Anonymous Sat 27 Feb 2010 00:27:08 No.4601836 Report 
- Quoted By: >>4601847 
->>4601752
-I'd have to second this. Getting Granzon to justs make us be somewhere else is so simple and elegant a solution, and if he can't/won't we can at least get backup. 
-Anonymous Sat 27 Feb 2010 00:29:08 No.4601847 Report 
- Quoted By: >>4601853 
->>4601836
-The EFA is blocking any possible communication with the surface. 
-Anonymous Sat 27 Feb 2010 00:29:08 No.4601853 Report 
- Quoted By: >>4601856 
->>4601861 
->>4601875 
->>4601847
->A direct line to Earth is impossible, our only hope would be to bounce it off the colonies, and for that to work, we'd need to use the DC channels. 
-Anonymous Sat 27 Feb 2010 00:30:08 No.4601856 Report 
->>4601853
-Hey, perhaps the Valstork is using those same channels... 
-Anonymous Sat 27 Feb 2010 00:31:42 No.4601861  Report 
->>4601853
-Oh. Read that wrong then. 
-Anonymous Sat 27 Feb 2010 00:33:08 No.4601875 Report 
- Quoted By: >>4601883 
->>4601853
->"I've already promised Juergens a lot, a risky move like this may cost me more than I'd like."
-
-We can't risk losing Juergen's trust. Or would you rather have every single Bartoll we have go to waste? 
-Anonymous Sat 27 Feb 2010 00:34:08 No.4601883 Report 
- Quoted By: >>4601893 
->>4601875
-Well we can just tell him its either that or the EFA come down on us like the hammer of god. 
-Anonymous Sat 27 Feb 2010 00:36:08 No.4601893 Report 
- Quoted By: >>4601960 
->>4601883
-I am pretty sure the risks are higher than that. Otherwise, Juergen would not have an issue with communicating with the colonies. 
-Anonymous Mk-II Sat 27 Feb 2010 00:44:08 No.4601941 Report 
->>4601715
-lets show kar-wai our evidence. we cant afford to keep in doubt one of our aces, and put him in the gespesnt S.
-right now the best thing to do is prepare for the battle and try to coordinate us with laodicea and the other balmar guys for a joint operation. 
-Anonymous Sat 27 Feb 2010 00:46:08 No.4601960 Report 
->>4601893
-Well, there's probably nobody he can actually ask for help. Remember that the DC is highly factionalized. In any case, its probably best to learn any issues with this from the man himself. 
-Sciencegar Sciencebolt Sat 27 Feb 2010 00:51:08 No.4601980 Report 
- Quoted By: >>4601998 
->>4602030 
->>4602036 
->>4602042 
- "Damned EFA and their damned jamming! Dumi, you've got to come up with a way to get around that shit, I'm sick of it!!"
-
-....I do have a method, actually, but it would be a little...hard to implement.
+*...I do have a method, actually, but it would be a little... hard to implement.*
 
 "Huh?"
 
-My Hyperwave communicator is uneffected by electromagnetic jamming, so I can contact my Homonculi at will. If you haven't guessed already, Cynthia, or rather, Tis, is one of them.
+*My Hyperwave communicator is uneffected by electromagnetic jamming, so I can contact my Homonculi at will. If you haven't guessed already, Cynthia, or rather, Tis, is one of them.*
 
-"Huh? I thought....oh wait, you mentioned about the machine cells."
+"Huh? I thought... oh wait, you mentioned about the machine cells."
 
-I had to have Tis disguise herself, because I couldn't risk the Irregulars recognising her. I have my suspicions they're looking for me.
+*I had to have Tis disguise herself, because I couldn't risk the Irregulars recognising her. I have my suspicions they're looking for me.*
 
 "So you can get a message to our guys, but you can't hook Kar-Wai up with Kai?"
 
-Well...that depends on who will listen to 'Cynthia' and beleive her when she says she has a message from me that no-one else can get. Its a risk, particularly if the Irregulars are nearby at the time.
+*Well... that depends on who will listen to 'Cynthia' and beleive her when she says she has a message from me that no-one else can get. Its a risk, particularly if the Irregulars are nearby at the time.*
 
-TAKE A CHANCE ON USING TIS? AND IF SO, WHO SHOULD SHE TALK TO? Or should we just go back to another of our many issues? I have an elsewhere waiting in the wings. 
-Anonymous Sat 27 Feb 2010 00:54:08 No.4601998 Report 
- Quoted By: >>4602031 
->>4602038 
->>4602051 
->>4601980
-Do it.
+---
 
-Get the message to...I dunno, Shuu. Or Kai. Keep her the fuck away from the Irregulars. Tell whats-his-name the Balmarian that if anyone asks, we used their comms to send the message. Then the comms they used broke and fell into space or something. Get Granzon to show up and save our asses.
-
-THEN ELSEWHERE TIEM NAO 
-Anonymous Sat 27 Feb 2010 01:01:08 No.4602030 Report 
- Quoted By: >>4602055 
->>4602062 
->>4601980
-Who was Cynthia again? Can someone at least tell me where she is in the archives so I don't have to dig through 27 threads? 
-Anonymous Sat 27 Feb 2010 01:01:08 No.4602031 Report 
- Quoted By: >>4602055 
->>4601998
-Yeah, talk to Kai. And if he asks how the hell we're managing this, come up with some bullshit answer about Dumi figuring out how to successfully align the machine cells in the Raioh with the machine cells in Cynthia to harmonate on some frequency that allows communication. 
-Stealthyboy !fchRKomfls Sat 27 Feb 2010 01:02:08 No.4602036 Report 
->>4601980
-CYNTHIA IS TIS!
-
-WHAT A TWEEEEEEST!
-
-Although I probably should have seen this coming, I didn't. 
-Anonymous Mk-II Sat 27 Feb 2010 01:02:08 No.4602038 Report 
->>4601998
-pretty much this. the odds are stacked againts us but fuck the odds we have plot armor! 
-Anonymous Sat 27 Feb 2010 01:03:08 No.4602042 Report 
- Quoted By: >>4602051 
->>4601980
-Seems pretty diffucult to do, but it could work if we give her some sort of "password" that our friends will recognize, so they know that girl is telling the truth.
-
-Maybe we can make her say something along the lines of:
-
- KAI, THIS GIRL WHO SPOKE TO ME SAYS THAT YOU STILL OWE HER AN AUTOGRAPH CARVED IN HER SKIN! 
-Anonymous Sat 27 Feb 2010 01:04:08 No.4602051 Report 
->>4601998
-This, and use this too as a way to make sure they believe her:
->>4602042 
-Stealthyboy !fchRKomfls Sat 27 Feb 2010 01:05:08 No.4602055 Report 
- Quoted By: >>4602068 
->>4602031
-This sounds like a good explanation for Kai.
-
->>4602030
-Cynthia was the pilot of the Bergelmir that was on Wodan's Thrudgelmir's shoulder. 
-Sciencegar Sciencebolt Sat 27 Feb 2010 01:06:08 No.4602062 Report 
- Quoted By: >>4602100 
->>4602030
-
-The girl who was piloting the Bergelmir when we saved Sophia Nate from the Earth Cradle (Thread 20-ish?).
-
-I wanted to give a portrait shot of her, but I couldn't get the OGG headshots of her to color machine-cell grey properly. So I just left it vague, when I meant it to be semi-obvious. 
-Anonymous Sat 27 Feb 2010 01:07:08 No.4602068 Report 
- Quoted By: >>4602085 
->>4602055
->Cynthia was the pilot of the Bergelmir that was on Wodan's Thrudgelmir's shoulder.
-Oh, her.
-
-Then we can just blame Machine Cells. Like, I dunno, some of the Cells used in RaiOh had contact with the ones in Bergelmir or something. 
-Sciencegar Sciencebolt Sat 27 Feb 2010 01:08:08 No.4602071 Report 
- Quoted By: >>4602087 
->>4602092 
- So, let me get this straight: You want Tis to talk to Kai, and then Kai to convince Shuu to warp to you? 
-Anonymous Sat 27 Feb 2010 01:10:08 No.4602085 Report 
->>4602068
-Yeah, message went directly from RaiOh to Bergie or something.
-
-...We should probably get Sophia to play along. Then figure out a way to make it work with all machine cells so nobody calls us out on it. 
-Anonymous Mk-II Sat 27 Feb 2010 01:10:08 No.4602087 Report 
- Quoted By: >>4602124 
->>4602071
-well no one will trust kai. we can send the message to lamia or axel, probably irm as well 
-Anonymous Sat 27 Feb 2010 01:11:08 No.4602092 Report 
->>4602071
-Basically. And we're going to blame it on the Machine Cells.
-
-If possible, we get Cynth to talk to Sophia first, get to to go along with our story. 
-View SameGoogleiqdbSauceNAO Cynthia.jpg,  17KiB, 833x491 
- 
-Anonymous Sat 27 Feb 2010 01:12:08 No.4602100 Report 
- Quoted By: >>4602117 
->>4602118 
->>4602062
-Here is her official portrait. 
-Anonymous Sat 27 Feb 2010 01:15:08 No.4602117 Report 
->>4602100
-Truly a legendary work of art that shall be fondly remembered throughout the ages. 
-Anonymous Sat 27 Feb 2010 01:15:08 No.4602118 Report 
- Quoted By: >>4602128 
->>4602306 
->>4602100
-I am actually thinking about doing a portrait about her. 
-
-Should I? 
-Anonymous Sat 27 Feb 2010 01:16:08 No.4602124 Report 
->>4602087
->well no one will trust kai.
-All Shuu has to do is use his OMGFUCKWIN sensors to find us. Trust is not an issue here. 
-Sciencegar Sciencebolt Sat 27 Feb 2010 01:17:08 No.4602128 Report 
- Quoted By: >>4602135 
->>4602118
-
-It's Tis from OGG, crossed with the Machinery Children from OG2. Nothing too complex. I just can't shop that with my limited skills. 
-Anonymous Sat 27 Feb 2010 01:18:08 No.4602135 Report 
->>4602128
-Very well, I am on it. 
-Sciencegar Sciencebolt Sat 27 Feb 2010 01:38:08 No.4602263 Report 
- Quoted By: >>4602276 
->>4602306 
- "Mr. Kitamura?"
+"Mr. Kitamura?"
 
 Kai turns from where he's working on his Gespenst, and faces the grey-skinned girl. "Oh, hello. Haven't had a chance to talk to you yet, was sorta curious about the medical functions of those wierd cells of yours."
 
@@ -480,15 +235,18 @@ Kai turns from where he's working on his Gespenst, and faces the grey-skinned gi
 Kai frowns. "What exactly might that be?"
 
 "Would you like to meet someone called Kar-Wai Lau?"
+
+---
+
 Shuu looks up as Kai storms into the Tausendfuessler. The ex-EFA soldier looks at Ryuune and Masaki out of the corner of his eye, and begins to whisper to the mysterious scientist. 
 
 "Dr. Shirakawa, I need a favor."
 
 "And that might be?"
 
-"I need you to take your Granzon and take us to space, to help Katina and Dumi. They've had some...interesting developments happen, but they need help. And not the sort that the others can give them."
+"I need you to take your Granzon and take us to space, to help Katina and Dumi. They've had some... interesting developments happen, but they need help. And not the sort that the others can give them."
 
-"Something only the Granzon can accomplish....It's understandable. But if I end up damaging the space-time continuum, it's on your head."
+"Something only the Granzon can accomplish... It's understandable. But if I end up damaging the space-time continuum, it's on your head."
 
 Kai grins. "Sure." 
 Anonymous Sat 27 Feb 2010 01:40:08 No.4602276 Report 
