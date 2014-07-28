@@ -1,22 +1,10 @@
-Archives: [ a / biz / c / co / diy / gd / int / jp / m / out / po / q / sci / sp / tg / tv / vg / vp / vr / wsg ] Boards: [ dev / foolz / neet ]
- /m/ - Mecha  
-4chan 
-Index
- 
-Ghost
-Gallery
-Stats
- 
- 
- 4KiB, 264x388, Ep28.gif 
-View SameGoogleiqdbSauceNAO 
-SRWQ Mission 28: You got sum 'splainin' to do, missy! Sciencegar Sciencebolt Sat 27 Feb 2010 04:52:44 No.4603468 ViewReplyOriginalReport 
- Quoted By: >>4603482 
- (and thats all you're getting until it comes up in the plot, dammit)
+# Episode 28
 
- Previous threads listed here: http://teamphantomtiger.blogspot.com/2010/02/srw-quest-sciencegar-sciencebolt-joint.html#more
+## SHADOW MIRROR QUEST (AKA SRW Q)
 
- Last time, our heroine had a more responsible role, as she directed Dumi to help organise a refugee fleet, negiotiate with the newly awakened Balmarians, and call in support from Earth in the form of the Granzon. But now she faces her most terrifying challenge yet: Explaining exactly what the fuck is happening to her colleagues. Anonymous Sat 27 Feb 2010 04:54:44 No.4603472 Report 
+###SRWQ Mission 28: You got sum 'splainin' to do, missy!
+
+Last time, our heroine had a more responsible role, as she directed Dumi to help organise a refugee fleet, negiotiate with the newly awakened Balmarians, and call in support from Earth in the form of the Granzon. But now she faces her most terrifying challenge yet: Explaining exactly what the fuck is happening to her colleagues. Anonymous Sat 27 Feb 2010 04:54:44 No.4603472 Report 
 >Better than Gunranger thread. 
 Anonymous Sat 27 Feb 2010 04:56:44 No.4603478 Report 
 >Explaining exactly what the fuck is happening to her colleagues.
