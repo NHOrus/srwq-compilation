@@ -249,43 +249,10 @@ Shuu looks up as Kai storms into the Tausendfuessler. The ex-EFA soldier looks a
 "Something only the Granzon can accomplish... It's understandable. But if I end up damaging the space-time continuum, it's on your head."
 
 Kai grins. "Sure." 
-Anonymous Sat 27 Feb 2010 01:40:08 No.4602276 Report 
->>4602263
-VICTORY!
 
-And goddamn the Granzon is more useful as a transport than an actual mech. Not saying it isn't powerful but dayum it has a ton of noncombat applications. 
-Stealthyboy !fchRKomfls Sat 27 Feb 2010 01:45:08 No.4602306 Report 
->>4602263
-everythingwentbetterthanexpected.jpg
+---
 
->>4602118
-Heheh, I was about to try doing this myself, but you beat me to it. 
-Anonymous Sat 27 Feb 2010 01:46:08 No.4602312 Report 
- Quoted By: >>4602316 
->>4602326 
- Finishing touches on Cynthia's portrait.
-
-What was the color of the Machinery Children's clothes again? 
-Anonymous Mk-II Sat 27 Feb 2010 01:47:08 No.4602316 Report 
->>4602312
-black or grey. 
-View SameGoogleiqdbSauceNAO Egret.jpg,  75KiB, 512x512 
- 
-Stealthyboy !fchRKomfls Sat 27 Feb 2010 01:49:08 No.4602326 Report 
->>4602312 
-View SameGoogleiqdbSauceNAO CynthiaFOR REAL22222.png,  5KiB, 286x197 
- 
-Anonymous Sat 27 Feb 2010 01:54:08 No.4602354 Report 
- Quoted By: >>4602367 
->>4602377 
->>4602394 
- Here it is. 
-Sciencegar Sciencebolt Sat 27 Feb 2010 01:55:08 No.4602359 Report 
- Quoted By: >>4602392 
->>4602399 
->>4602415 
->>4602448 
- Laodicea rests his chin on his folded hands and looks at the clone before him. "What is the status of the Barshem Series?"
+Laodicea rests his chin on his folded hands and looks at the clone before him. "What is the status of the Barshem Series?"
 
 Bet Barshem nods at her commander. "Alef Barsham was lost in the initial contact with Entity-02, we are preparing another. We had to decant most of the series to make room for more Native Balmarians, so we only have half a dozen currently. We can begin mass-producti-"
 
@@ -311,70 +278,15 @@ Baran grunts and steps next to Laodiceas desk. "Commander, we don't have time to
 
 "Your ambition is lauded, Baran Doban, but I fear it may take more than that. I'll give you 5 cycles to secure our position in this system, otherwise, I'll have to activate Zehirut, and begin Adjudication."
 
-Baran blinks, and then nods and turns to leave. "Zehirut...no way to fight a war, I say..." 
-Stealthyboy !fchRKomfls Sat 27 Feb 2010 01:57:08 No.4602367 Report 
->>4602354
-A true masterpiece 
-Sanger Zombolt! Sat 27 Feb 2010 01:59:08 No.4602377 Report 
->>4602354
-I can now not imagine Cynthia like this. 
-Anonymous Sat 27 Feb 2010 02:01:08 No.4602392 Report 
->>4602359
->Baran Doban
-YEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEESSSS
+Baran blinks, and then nods and turns to leave. "Zehirut... no way to fight a war, I say..." 
 
->Still planning to take over Earth
-NOOOOOOOOOOOOOOOOOOOOOOOOOOOOO
+---
 
-Well still. Baran Doban. Potential ally. Awesome.
-
-And they should appreciate the HEROIC POWER OF JUSTICE GRANZON. 
-Sciencegar Sciencebolt Sat 27 Feb 2010 02:01:08 No.4602394 Report 
->>4602354
-
-This is not what Tis meant when she said she wanted a more mature body... 
-Stealthyboy !fchRKomfls Sat 27 Feb 2010 02:02:08 No.4602399 Report 
->>4602359
-Goddamnit Laodicea, we're offering a bloody olive branch here.
-Katina, the fucking Thunderous Fury, the most bloodthirsty ace the Shadow Mirror has, is offering you an olive branch. That's not the kind of offer you refuse, you fool. 
-Anonymous Sat 27 Feb 2010 02:05:08 No.4602415 Report 
- Quoted By: >>4602434 
->>4602359
->Bet Barshem
-Oh shit that's Viletta!
-
->Baran Doban
-Oh shWARE KOSO WA!
-WARE KOSO WA!
-BARAN DOBAN! 
-Anonymous Sat 27 Feb 2010 02:08:08 No.4602434 Report 
->>4602415
->Oh shit that's Viletta!
-OH YES
-
-Now we must get her to meet OGverse Viletta! FOR GREATEST JUSTICE! 
-Anonymous Mk-II Sat 27 Feb 2010 02:11:08 No.4602448 Report 
- Quoted By: >>4602460 
->>4602359
-HAH your forces are in ruins you depend on us to ...>zehirut
-fucking cheaters ... 
-Anonymous Sat 27 Feb 2010 02:13:08 No.4602460 Report 
- Quoted By: >>4602474 
->>4602448
-Well we have the OGnumbers running around, so if they pull out Zehirut they pull out Sanger and Ratsel. 
-Anonymous Mk-II Sat 27 Feb 2010 02:15:08 No.4602474 Report 
->>4602460
-the point is that we dont want those guys running around either. but if worst comes the best thing to do is let them kill each other. 
-Sciencegar Sciencebolt Sat 27 Feb 2010 02:16:08 No.4602479 Report 
- Quoted By: >>4602488 
->>4602493 
->>4602518 
->>4602525 
- "The Eurydice is still refusing hails. They keep sending coded laser signals claiming special circumstances, but no codes to back that up, Captain."
+"The Eurydice is still refusing hails. They keep sending coded laser signals claiming special circumstances, but no codes to back that up, Captain."
 
 "Understood. How long to targets?"
 
-"22 minutes to the group of capital ships. Positive ID on a DC vessel, negative on the spherical object. The Asteroid is emitting noticable energy readings now, theres definitely something in th...Gravitational Distortion dead ahead!! I'm picking up 2 PTs, one a Gespenst, the other ...unknown."
+"22 minutes to the group of capital ships. Positive ID on a DC vessel, negative on the spherical object. The Asteroid is emitting noticable energy readings now, theres definitely something in th... Gravitational Distortion dead ahead!! I'm picking up 2 PTs, one a Gespenst, the other ...unknown."
 
 "Yellow alert! Minimise jamming and give me a commlink."
 
@@ -384,81 +296,15 @@ Sciencegar Sciencebolt Sat 27 Feb 2010 02:16:08 No.4602479 Report
 
 "In the name of Justice and Freedom, I beg you not to force my hand. This can be solved peacefully, if you simply retreat and let my superior intellect handle things."
 
-"Superior...Doctor, I'm giving you one minute to surrender your mech or my fleet will open fire."
+"Superior... Doctor, I'm giving you one minute to surrender your mech or my fleet will open fire."
 
 "I feared as much. I hope you share what happens next with as many people as possible, it'll save pointless battles in the future."
 
 The Granzons chest opens. 
-Anonymous Sat 27 Feb 2010 02:17:08 No.4602488 Report 
->>4602479
->The Granzons chest opens.
-This will be good. 
-Anonymous Sat 27 Feb 2010 02:18:08 No.4602493 Report 
->>4602479
->"I feared as much. I hope you share what happens next with as many people as possible, it'll save pointless battles in the future."
-I was kinda hoping he'd just warp us out BUT THIS WORKS TOO 
-Anonymous Sat 27 Feb 2010 02:21:08 No.4602518 Report 
->>4602479
->fleet
->The Granzons chest opens.
 
-Oh shit? Graviton Cannon MAP attack incoming? 
-Anonymous Sat 27 Feb 2010 02:22:08 No.4602525 Report 
- Quoted By: >>4602544 
->>4602479
-I cannot wait to see how the Balmarians react to THIS. 
-Anonymous Sat 27 Feb 2010 02:25:08 No.4602544 Report 
->>4602525
-Same way they reacted when the Granzon used this same attack on them.
+---
 
-HOLY SHIT, IT'S THE GRANZON!
-
-CLOSE THE POOLS, SHUT DOWN EVERYTHING, GET IN THE CAR AND SEND AS MANY ROBOTS AS WE CAN!
-
-FFFFFFFFFFFFFFFFFFFFFFFFFFFFFFF 
-View SameGoogleiqdbSauceNAO Cynthia Tis.png,  61KiB, 277x255 
- 
-Stealthyboy !fchRKomfls Sat 27 Feb 2010 02:27:08 No.4602553 Report 
- Quoted By: >>4602567 
->>4602647 
- I'll give you my attempt at Tis then. 
-Jerid Messa !!AbDOcayw4O/ Sat 27 Feb 2010 02:29:08 No.4602567 Report 
- Quoted By: >>4602578 
->>4602580 
->>4602617 
->>4602553
-
-That actually seems pretty accurate. Though I think eventually we're gonna have to have a mass battle against the OG land pilots. As unbelievably awesome and not evil we're being, we sure have alot of their former enemies on our side. 
-Anonymous Sat 27 Feb 2010 02:31:08 No.4602578 Report 
- Quoted By: >>4602631 
->>4602567
-You mean my attempt it's less accurate? 
-Anonymous Sat 27 Feb 2010 02:31:08 No.4602580 Report 
- Quoted By: >>4602591 
->>4602595 
->>4602597 
->>4602608 
->>4602567
-Oh shit, you're right. ARE WE ACTUALLY ON THE EVIL ROUTE? 
-Stealthyboy !fchRKomfls Sat 27 Feb 2010 02:33:08 No.4602591 Report 
->>4602580
-Would it actually surprise you if we were? 
-Anonymous Sat 27 Feb 2010 02:33:08 No.4602595 Report 
- Quoted By: >>4602617 
->>4602580
-Not evil, just that the heroes have their heads waaaaayyyy inside their asses to realize that the villains are not irredeemable. Or not evil. 
-Haken Browning !zHe7DH816A Sat 27 Feb 2010 02:34:08 No.4602597 Report 
- Quoted By: >>4602631 
->>4602580
-I was starting to see this as more of a Dynasty Warriors-type factional division.
-
-And we've just jumped ship from Shu to Wu. 
-Anonymous Sat 27 Feb 2010 02:35:08 No.4602608 Report 
->>4602580
-Evil? No, more like rival route 
-Sciencegar Sciencebolt Sat 27 Feb 2010 02:35:08 No.4602614 Report 
- Quoted By: >>4602626 
- Lefina Enfield gulps and tries to remain calm. "Lt., I know you're confused and angry at this situation, but I don't think pointing a gun at the Captain will solve things."
+Lefina Enfield gulps and tries to remain calm. "Lt., I know you're confused and angry at this situation, but I don't think pointing a gun at the Captain will solve things."
 
 Despinis looks down the barrel of the pistol with the same indifferent expression she has while filing paperwork. "Lt. Gunther, if you want to relieve me of command, there are formal procedures to follow. Holding me at gunpoint is not one of them."
 
@@ -468,25 +314,16 @@ Despinis looks down the barrel of the pistol with the same indifferent expressio
 
 "SHUT UP!! There is no mission, is there?!?! You're just making sure your alien buddies kill as many of our friends as possible! Well fuck you! Get out of that chair, and maybe we'll see if they leave you alive long enough to be dissected!"
 
-You're being incredibly rash, Ramon Gunther. If you truly beleive Despinis is an alien, why threaten her with a weapon that can only harm humans?
+*You're being incredibly rash, Ramon Gunther. If you truly beleive Despinis is an alien, why threaten her with a weapon that can only harm humans?*
 
 Gunther jerks his head around to see where the voice is coming from. The half-second distraction is all that it takes for Despinis to leap up, chop him in the neck to stun him, and crush the pistol in her hands. 
-Anonymous Sat 27 Feb 2010 02:35:08 No.4602617 Report 
- Quoted By: >>4602661 
->>4602567
->>4602595
 
-These men speak the truth. There are no good or evil factions here. Just factions. 
-Sciencegar Sciencebolt Sat 27 Feb 2010 02:37:08 No.4602625 Report 
- Quoted By: >>4602633 
->>4602643 
->>4602650 
- "So...we're abandoning the charade?"
+"So... we're abandoning the charade?"
 
-I never liked the charade to begin with. And don't pretend you did either.
+*I never liked the charade to begin with. And don't pretend you did either.*
 
 Despinis twitches, in what could almost be called a shrug. "If any of you wish to remain loyal to the EFA, you should get to the lifepods. Take Gunther with you. Those who stay are declaring their allegiance to a new order, where Humanity will be cleansed of its corrupt bureacracy and secret overlords, and returned to its true nature.
 
-One by one, the frightened crew exit the bridge. Gunther is dragged out, still cursing the captain. The door shuts behind them.
+*One by one, the frightened crew exit the bridge. Gunther is dragged out, still cursing the captain. The door shuts behind them.*
 
 Despinis turns to the only other person left in the room. Her face twitches into something that could almost be a smile.
