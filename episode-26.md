@@ -282,7 +282,7 @@ You sit back in the Raioh's control harness and smile. "Yeah... Shame about the 
 
 "Wait, you still haven't gotten ahold of the Balmar command yet? Dammit Dumi, you're supposed to be able to conquer planets and buttfuck dimensions, and you can't make a phonecall?"
 
-Aside from the technical issues with the Balmar technology, I was more referring to the response of the other factions on Earth. Most notably, the two sides of the EFA. Given that one is an alien force itself, and another is a unit designed to combat aliens, I find it unlikely they'll be negotiating with the same platform we will.
+*Aside from the technical issues with the Balmar technology, I was more referring to the response of the other factions on Earth. Most notably, the two sides of the EFA. Given that one is an alien force itself, and another is a unit designed to combat aliens, I find it unlikely they'll be negotiating with the same platform we will.*
 
 "Then... I guess we'll just have to keep them a secret, won't we?"
 
