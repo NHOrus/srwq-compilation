@@ -204,7 +204,7 @@ The blow sends the Raioh spinning 1080 degrees and careening into the mech with 
 
 "I know, but then this PTX bitch got in my way! I need to show her up!!"
 
-* ***Sigh*** Katina, the machine cells are a hodge-podge stopgap I had Tis put together using the remnants of the Earth Cradle experiment and some Dark Brain technology, in order to fix Sophia Nate and Wodan Ymir. They're nowhere near as powerful as we've been pretending they are, not without major energy input. Energy input you've been sucking up with all the repairs you've needed recently.*
+*__Sigh__ Katina, the machine cells are a hodge-podge stopgap I had Tis put together using the remnants of the Earth Cradle experiment and some Dark Brain technology, in order to fix Sophia Nate and Wodan Ymir. They're nowhere near as powerful as we've been pretending they are, not without major energy input. Energy input you've been sucking up with all the repairs you've needed recently.*
 
 You fend off the glowing Slash Rippers and block another kick. "What... what kind of energy? Can I plug myself into the mains here?"
 
