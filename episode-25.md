@@ -1,4 +1,4 @@
-# Episode 24
+# Episode 25
 
 ## SHADOW MIRROR QUEST (AKA SRW Q)
 
@@ -153,226 +153,7 @@ Why am I so small? Why is everything so big? What is that giant doing? She's giv
 
 You blink and you're floating in the chamber. The other woman is floating nearby, her hair now short-cropped, and she's trashing around in the zero gravity, yelling incoherently in Japanese.
 
-WHAT DO YOU DO? 
-Sciencegar Sciencebolt Wed 24 Feb 2010 06:38:28 No.4585545 Report 
->And your mins explodes.
-
-GODAMMIT. That should be 'mind', obviously. 
-GUNDAMU !0smG1gQz9c Wed 24 Feb 2010 06:40:28 No.4585565 Report 
- Quoted By: >>4585583 
->>4585615 
->>4585623 
- All of the above at once.
-
-Rip her out of the damn thing, and while you're running back to the Raioh, make sure you're carrying her in a way that allows the maximum amount of feeling her up while you escape. In every possible place.
-
-Then when you're both in the cockpit, make sure you specifically seat her on the most phallic looking piece of whatever you can find, and let the cockpit's vibration do the rest through her clothing.
-
-Bonus points if she orgasms as you burst out of the flaming explosion of the White Star. 
-Anonymous Wed 24 Feb 2010 06:40:28 No.4585567 Report 
->>4585540
-NEWTYPE MIND RAPE BACK
-*advice tomino*
-LOSE MECHA PILOTING SKILLS.
-
-
-Serious answer say, "I'm a friend, please calm down, ok?" as kindly as we can. We can't RAPE THIS POOR INNOCENT GIRL (yet it isn't that route yet) 
-Anonymous Wed 24 Feb 2010 06:40:28 No.4585569 Report 
- Quoted By: >>4585683 
->>4585540
-
-Hopefully the girl was the "core" and we've done what we needed to do. 
-
-Take Mai... I mean the mystery girl and leave. In case more things explode. 
-Haken Browning !zHe7DH816A Wed 24 Feb 2010 06:42:28 No.4585583 Report 
->>4585565
-...Y'know what, it's the 25th anniversary thread and I just realized there's only one place where people label their DS roms properly (and it ain't /rs/).
-
-...I'm gonna fucking second this. 
-Anonymous Wed 24 Feb 2010 06:45:28 No.4585596 Report 
->>4585540
-Try to talk to her. Say something simple and friendly "I'm here to help. Let's get out of here" If she doesn't speak English, just drag her or something. I'm guessing we don't know Japanese. 
-Anonymous Wed 24 Feb 2010 06:46:28 No.4585597 Report 
- Quoted By: >>4585617 
->>4585540
-Grab her by the shoulders and shake her to get her attention, then tell her to shush. Then pantomime two people running away before HUGE EXPLOSION. Then grab her and start running for the Raioh.
-
-Oh. Use words too, just in case she can understand English. 
-Stealthyboy !fchRKomfls Wed 24 Feb 2010 06:47:28 No.4585608 Report 
->>4585540
-Tell Mrs. Nihongo to calm down loudly and slowly, then grab her and hold her still, the Zero G must be a bit frightening. 
-Anonymous Wed 24 Feb 2010 06:48:28 No.4585615 Report 
->>4585565
-THISTHISTHISTHIS! 
-SEED D Cagalli !!U5xc0wG3iH0 Wed 24 Feb 2010 06:48:28 No.4585617 Report 
- Quoted By: >>4585683 
->>4585597
-
-Don't just shake her, after you get her attention, hug her.
-
-If that doesn't work, go as far as to kiss her to quiet her up. That would probably do it. 
-Sciencegar Sciencebolt Wed 24 Feb 2010 06:49:28 No.4585623 Report 
- Quoted By: >>4585629 
->>4585633 
->>4585649 
->>4585565
-
-Interesting as this idea may seem to the endless shipping in this thread, the Raioh's cockpit uses a Direct Motion Link system (See here: http://www.youtube.com/watch?v=h9GQNKD0-9Y), so there aren't any big phallic controls to use. 
-Anonymous Wed 24 Feb 2010 06:49:28 No.4585626 Report 
- Quoted By: >>4585646 
->>4585683 
- why bother running back to the raioh? why not just escape in the judecca? we can have it or dumi grab the raioh on the way out too. 
-Anonymous Wed 24 Feb 2010 06:50:28 No.4585629 Report 
->>4585623
-Goddamnit. 
-Anonymous Wed 24 Feb 2010 06:50:28 No.4585633 Report 
- Quoted By: >>4585650 
->>4585623
-I thought that was the DaiRaioh and that the Raioh used a steroids-inplanting mechanism of sorts? 
-Stealthyboy !fchRKomfls Wed 24 Feb 2010 06:53:28 No.4585646 Report 
->>4585626
-This, if possible. 
-GUNDAMU !0smG1gQz9c Wed 24 Feb 2010 06:53:28 No.4585649 Report 
->>4585623
-Oh? I was under the impression the Direct Motion Link wasn't part of the Raioh deisgn, and they added it in Alpha 3 when Touma couldn't handle the LIOH system. Even if this Raioh does have the Motion Link System, there's got to be a ridge or something near the edge of the cockpit.
-
-...Oh well. In the event this doesn't come to fruition, make her shut up. With your lips.
-
-And then feel her up on the way to the cockpit. We can save the fun stuff for later, when she's back on the ship with us. 
-Anonymous Wed 24 Feb 2010 06:54:28 No.4585650 Report 
->>4585633
-Still controlled by DML, I think. That's why Touma has to train so much under Tetsuya and Guy. Then again, it's been ages since I played his route. 
-Stealthyboy !fchRKomfls Wed 24 Feb 2010 06:56:28 No.4585669 Report 
- Quoted By: >>4585680 
- According to Gate of Magus:
->A large-scaled unit that is piloted by Touma Kanou. This is the third machine in the Dynamic General Guardian series that was first developed by Bian Zoldark. It's equipped with the System LIOH, which was created to turn the pilot into the perfect soldier by pumping tons of adrenaline into their body. Once it's activated, it causes Touma much pain. After System LIOH makes Touma go berserk, it's replaced with the Direct Motion Link system. 
-Anonymous Wed 24 Feb 2010 06:59:28 No.4585680 Report 
- Quoted By: >>4585692 
->>4585698 
->>4585669
-And how exactly does the Lioh system work? 
-Anonymous Wed 24 Feb 2010 07:00:28 No.4585683 Report 
- Quoted By: >>4585690 
->>4585701 
->>4585735 
->>4585626
-
-1. Isn't it exploding?
-2. How is it controlled? Can we learn to control it, or are we even able to control it at all.
-Are we here for the mech or the girl? Because we might have trouble getting it out of here with out her in control. Whatever we end up doing I suggest we ask Dumi for more information. 
-
->>4585569
-
-I'm this guy, I forgot she was thrashing around so I vote we do this instead to stop her
-
->>4585617
-
-Except probably the kissing, I don't know if that would help (I might have recommended it while she was asleep, lol Sleeping Beauty, just look at your prince).
-
-Even if being hugged doesn't calm her down at least you'd have a grip on her and she wouldn't thrash about so much. Was she hurt when the cables were pulled out? 
-Anonymous Wed 24 Feb 2010 07:01:28 No.4585690 Report 
->>4585683
->Are we here for the mech or the girl?
-Yes 
-GUNDAMU !0smG1gQz9c Wed 24 Feb 2010 07:02:28 No.4585692 Report 
->>4585680
-I'd assume that it's a physical connection to the body, but seeing as it was eventually used in tandem with the Direct Motion Link system, it might be some kind of signal that gets sent into the brain via wireless signals.
-
-Shit like this is why more routes other than Kusuha's need to be translated for Alpha 3. 
-Stealthyboy !fchRKomfls Wed 24 Feb 2010 07:03:28 No.4585698 Report 
->>4585680
-Fuck if I know, I haven't played @3, even if I had I don't read Heiroglyphic.
-
-But since this is SM!Raioh, it may have had DML from the start. 
-Anonymous Wed 24 Feb 2010 07:04:28 No.4585701 Report 
- Quoted By: >>4585735 
->>4585683
-no, katina's mind was the only thing exploding. as for controlling it, i'm sure we can manage something. but yeah, we should contact dumi and see what's happening. 
-Sciencegar Sciencebolt Wed 24 Feb 2010 07:04:28 No.4585706 Report 
- Quoted By: >>4585715 
- The way I had imagined it was as a DML cockpit like Zengars, but with a harness for Katina to be suspended from, and the Lioh injector just behind her head.
-
-And now I've just realised for fetishy that setup is. 
-Stealthyboy !fchRKomfls Wed 24 Feb 2010 07:06:28 No.4585715 Report 
- Quoted By: >>4585724 
->>4585706
->And now I've just realised for fetishy that setup is.
-
-And now, so does everyone else! 
-Anonymous Wed 24 Feb 2010 07:08:28 No.4585724 Report 
->>4585715
-Hoorah! 
-Anonymous Wed 24 Feb 2010 07:10:28 No.4585735 Report 
- Quoted By: >>4585758 
->>4585762 
->>4585683 This guy again.
-
->>4585701
-
->You hear rumbling outside. That can't be good.
-
-I thought this was explosions. 
-
-Is there an atmosphere outside? If there's no air outside then we need to take this mech or leave the girl. Dumi can't remote control things right now so either he needs to teach us what to do or we need to get the girl to do it for us.
-
-So we have to either 
-
-Take the girl back to our mech
-Drive this mech somewhere
-Get this girl to drive this mech somewhere
-
-...either way it looks like the first step is still hugs. 
-Anonymous Wed 24 Feb 2010 07:13:28 No.4585758 Report 
- Quoted By: >>4585865 
->>4585735
->I thought this was explosions. 
-It probably is. Dumi's still out there with those Bartools, remember? And they have those missiles... 
-Sciencegar Sciencebolt Wed 24 Feb 2010 07:14:28 No.4585762 Report 
- Quoted By: >>4585837 
->>4585865 
->>4585735
-
-There was air in the central chamber, just not all of the way to the outside of the Sphere. 
-Anonymous Wed 24 Feb 2010 07:23:28 No.4585818 Report 
- Make sure girl is somewhat aware.
-
-Dump her in The Mech
-
-Jury rig up a commlink between it and RaiOh
-
-Head back to RaiOh
-
-Get the hell out of Dodge 
-Anonymous Wed 24 Feb 2010 07:25:28 No.4585837 Report 
->>4585762
-...well that changes things. Let's still try to get the girl to calm down, then check around for another space suit or something. If nothing shows itself, call Dumi and ask for help. 
-Anonymous Wed 24 Feb 2010 07:29:28 No.4585865 Report 
- Quoted By: >>4585897 
->>4585758
-
-I thought the reason we went to the core was to stop them?
-
->>4585762
-
-Thanks, then we'll have to ask Dumi what he actually wants out of this place 
-
-Wait ...weren't we capturing the facility for the Shadow Mirrors? Then we can't run. Then again if this is Judecca then we've got out own tame Zfylud Crystals. Which is nothing to sneeze at 
-Anonymous Wed 24 Feb 2010 07:33:28 No.4585897 Report 
->>4585865
->I thought the reason we went to the core was to stop them?
-Well in that case its probably the Bartools crashing into shit and blowing up. 
-View SameGoogleiqdbSauceNAO Duminass.png,  6KiB, 100x100 
- 
-Sciencegar Sciencebolt Wed 24 Feb 2010 07:51:28 No.4586008 Report 
- Quoted By: >>4586020 
->>4586026 
->>4586031 
->>4586037 
->>4586041 
->>4586043 
->>4586073 
->>4586100 
- You grab onto the young woman and hold her in your arms, trying to make motherly noises. "Sshhhhh, it's ok, it's ok. You'll be safe now, I'll just take you out of here, and you'll be fine."
+You grab onto the young woman and hold her in your arms, trying to make motherly noises. "Sshhhhh, it's ok, it's ok. You'll be safe now, I'll just take you out of here, and you'll be fine."
 
 The woman squirms a little, and babbles some more in japanese, but eventually she seems ot understand what you're saying. She calms down and allows you to drag her back down the tunnel.
 
@@ -382,364 +163,51 @@ An odd burst of static, like the noise of a dialup modem.
 
 "Dumi!? Speak to me man!!"
 
-This...is exhilirating...
+*This... is exhilirating...
 
 You exit the tunnel and see the DGG-04 floating eviscerated in the chamber, surrounded by immobile Bartols. Its cockpit block has been torn from its chest.
 
-Katina...Before you say anything...
+*Katina... Before you say anything...*
 
 The orange sphere floats above the wrecked mech, flexing its wings as the old wound seals up. The diamond eye flexs, then turns to you and your terrified companion.
 
-I just want you to know...I'm very sorry for lying to you.
+*I just want you to know... I'm very sorry for lying to you.*
 
-WHAT IS KATINAS IMMEDIATE RESPONSE? 
-Jerid Messa !!AbDOcayw4O/ Wed 24 Feb 2010 07:52:28 No.4586013 Report 
-Katina:FFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFF DUMI WHAT THE HELL ARE YOU DOING?! 
-Anonymous Wed 24 Feb 2010 07:53:28 No.4586020 Report 
->>4586008
-SONOVABITCH 
-Anonymous Wed 24 Feb 2010 07:54:28 No.4586026 Report 
->>4586008
-OH MY GOD ITS A DUMINASS
+"Wh... What the heck are you doing inside that thing, Dumi?"
 
-GET IN THE RAIOH 
-Anonymous Wed 24 Feb 2010 07:54:28 No.4586031 Report 
- Quoted By: >>4586042 
->>4586008
-KILL DUMI 
-Anonymous Wed 24 Feb 2010 07:55:28 No.4586037 Report 
- Quoted By: >>4586051 
->>4586008
-Remain calm and try to find out what's going on... failing that fainting is completely acceptable. 
-Anonymous Wed 24 Feb 2010 07:56:28 No.4586041 Report 
- Quoted By: >>4586065 
->>4586103 
->>4586008
-"So...How is you hijacking the giant orange thing going to help us create eternal war?" 
-Anonymous Wed 24 Feb 2010 07:56:28 No.4586042 Report 
->>4586031
-This might be R's nice Dumi though. 
-Stealthyboy !fchRKomfls Wed 24 Feb 2010 07:56:28 No.4586043 Report 
->>4586008
-Dumi, why?!
+*I'm sorry, I had to reclaim my original body. My mission... my creators commands are still paramount. I couldn't complete my task as simple old Dumi...*
 
-Noooo, My OTP... 
-kai !!2vdorzb/J61 Wed 24 Feb 2010 07:56:28 No.4586047 Report 
- SONAVABFUADFIASDFUASIDFASFHADH
+"Original body? I thought... You said you were part of a stolen DC project, loyal to Shadow Mirror. Dynamic Unflexible Militialiser... um..."
 
+*Dimensionally Unlimited Multiplexity Intelligence for Nullification and Assimilation of Sidereal Spaces. Or Duminass, for simplicity.*
 
-i know this was comming but still 
-Stealthyboy !fchRKomfls Wed 24 Feb 2010 07:57:28 No.4586051 Report 
- Quoted By: >>4586064 
->>4586037
-Fainting is never acceptable for a Psychodere! 
-Anonymous Wed 24 Feb 2010 07:59:28 No.4586064 Report 
->>4586051
-It's stimulation overload! Obviously we'll stab whoever has the misfortune of waking us! 
-Anonymous Wed 24 Feb 2010 07:59:28 No.4586065 Report 
->>4586041
-This. Dumi has evidently found a way to take control of teh orange thing after having its cockpit block ripped out. This can only lead to good things. 
-Anonymous Wed 24 Feb 2010 08:00:28 No.4586069 Report 
->You exit the tunnel and see the DGG-04 floating eviscerated in the chamber
+"But... but..."
 
-;_;
+*You can still call me Dumi! I'm totally ok with that! I think I prefer that name, frankly.*
 
-!
-Dumi you look different... what's going on? ...Dumi? 
-SEED D Cagalli !!U5xc0wG3iH0 Wed 24 Feb 2010 08:00:28 No.4586073 Report 
->>4586008
+"So you... you're like the Irregulars? You just came here to fuck with our world?"
 
-Ask what it lied to us about.
+*No no no! I... I was SENT here, my creator gave me a powerful overarching objective. I'm just... looking for something, and a lot more subtely than those Irregular idiots are going about things. But, Katina, really, other than my origin, I haven't been lying to you! I'm still your partner, amn't I?**
 
-If it tries to kill us point out how we've helped it and it should let us live if only because of that. 
-Anonymous Wed 24 Feb 2010 08:01:28 No.4586077 Report 
- Quoted By: >>4586101 
- Seeing as how everybody saw it coming, it's not entirely hard to think that even Katina saw it coming.
+"Y...  Yes Dumi, you still are. You've stuck with me this long... longer than anyone else I can remember..."
 
-Stand dramatically, and assume "the pose".
+*Thank you, Katina. I promise, I'll be completely truthful with you from now on.*
 
-"Dumi, have you forgotten? What's important isn't what you are, what you were made to do. What's really important, is living your life your own way! With effort and guts!"
+"Well, in that case... Who is this creator you keep mentioning? He seems kinda important."
 
-And then, without even getting in the Raioh, jump through the low-gravity chamber with inhuman speed and force, and perform a flying kick right into Dumi's eye. 
-
-Explosions and good times are had by all. 
-Anonymous Wed 24 Feb 2010 08:04:28 No.4586094 Report 
- So whose bright idea was this again? 
-Sanger Zombolt! Wed 24 Feb 2010 08:04:28 No.4586100 Report 
->>4586008
->Act calm.
-
-What is it you were lying about Dumi? 
-Stealthyboy !fchRKomfls Wed 24 Feb 2010 08:05:28 No.4586101 Report 
- Quoted By: >>4586113 
->>4586121 
->>4586077
-Well, we still don't technically know Dumi's hostile yet...
-...
-Oh, shush, I'm trying to slvage my OTP. 
-Anonymous Wed 24 Feb 2010 08:05:28 No.4586103 Report 
->>4586041
-This. Katina has no reason to go apeshit over this. She should just be saying "What the hell are you doing in that thing? And what's this about lying?" 
-Sanger Zombolt! Wed 24 Feb 2010 08:06:28 No.4586113 Report 
- Quoted By: >>4586123 
->>4586101
-You should act calm. We still have no indication that Duminass means us harm. And if it does, we will try to make him/her become a good guy/gal. 
-Stealthyboy !fchRKomfls Wed 24 Feb 2010 08:06:28 No.4586121 Report 
->>4586101
-YES SLVAGE IS A WORD.
-
-facepalmatownidiocy.jpg 
-SEED D Cagalli !!U5xc0wG3iH0 Wed 24 Feb 2010 08:07:28 No.4586123 Report 
- Quoted By: >>4586184 
->>4586113
-
-We should definitely see if we can still convince Duminuss to get a female human body.
-
-We can't give up on our relationship! 
-Sanger Zombolt! Wed 24 Feb 2010 08:14:28 No.4586184 Report 
- Quoted By: >>4586219 
->>4586123
-Bah, it is probably already too late.
-
-Sciencegar must have started writing before we chose to act calm.
-
-Chances are, Science must be writing something along the lines of:
-
-HOLY SHIT DUMI, WHAT THE FUCK ARE YOU DOING, NOOOOOOO YOU HAVE BETRAYED USSSSSSS.
-
-WHY DUMI WHY, I LOVED YOU AND NOW I HATE YOU TO HELL FUCK YOU DUMI FUCK YOU RAAAAAAAAAAAAAAAAAAAAAAAAAAAGEEEEEEEEEEEEEEEE.
-
-KATINA I THOUGHT WE WERE FRIENDS BUT NOW I REALIZE YOUR TRUE COLORS AND I WILL NOW PROCEED TO KILL YOU BEFORE YOU GET TO YOUR RAIOH AND MAKE YOU ONE OF MY DAUGHTERS, WE SHALL BE HAPPY TOGETHER UNTIL IRM ARRIVES WITH THE GRUNGUST NEO AND KILLS US ALL
-
-ALL BECAUSE YOU ACTED LIKE AN APE ON DRUGS WITH MY REVELATION BAAAAAAAAAAWWWW 
-Sanger Zombolt! Wed 24 Feb 2010 08:15:28 No.4586203 Report 
- And then Katina became one of Duminass' cousins. 
-Anonymous Wed 24 Feb 2010 08:18:28 No.4586219 Report 
- Quoted By: >>4586237 
->>4586184
-I'm sure Sciencgar is giving this one some extra time, this a huge decision.
-
-And the first calm option was within 5 minutes of his post. 
-Anonymous Wed 24 Feb 2010 08:19:28 No.4586229 Report 
- D-Dumi what's got in to you? 
-SEED D Cagalli !!U5xc0wG3iH0 Wed 24 Feb 2010 08:20:28 No.4586237 Report 
- Quoted By: >>4586241 
->>4586259 
->>4586265 
->>4586219
-
-So anyways... if we were to divide this RP into story arcs... which arc would we be on now? 
-Sanger Zombolt! Wed 24 Feb 2010 08:20:28 No.4586241 Report 
- Quoted By: >>4586253 
->>4586237
-Dumi's secret arc. 
-Sciencegar Sciencebolt Wed 24 Feb 2010 08:20:28 No.4586246 Report 
- Quoted By: >>4586274 
->>4586278 
->>4586289 
->>4586292 
->>4586316 
->>4586366 
- "Wh...What the heck are you doing inside that thing, Dumi?"
-
-I'm sorry, I had to reclaim my original body. My mission...my creators commands are still paramount. I couldn't complete my task as simple old Dumi...
-
-"Original body? I thought...You said you were part of a stolen DC project, loyal to Shadow Mirror. Dynamic Unflexible Militialiser...um..."
-
-Dimensionally Unlimited Multiplexity Intelligence for Nullification and Assimilation of Sidereal Spaces. Or Duminass, for simplicity.
-
-"But...but..."
-
-You can still call me Dumi! I'm totally ok with that! I think I prefer that name, frankly.
-
-"So you...you're like the Irregulars? You just came here to fuck with our world?"
-
-No no no! I...I was SENT here, my creator gave me a powerful overarching objective. I'm just...looking for something, and a lot more subtely than those Irregular idiots are going about things. But, Katina, really, other than my origin, I haven't been lying to you! I'm still your partner, amn't I?"
-
-RESPONSE TO THAT? 
-Sanger Zombolt! Wed 24 Feb 2010 08:21:28 No.4586253 Report 
->>4586241
-AKA when we started doing things by ourselves instead of staying with the Shadow Mirrors everytime. 
-Anonymous Wed 24 Feb 2010 08:22:28 No.4586259 Report 
->>4586237
-The space arc?
-
-I get the feeling this is the start of new arc to be honest. 
-Stealthyboy !fchRKomfls Wed 24 Feb 2010 08:22:28 No.4586265 Report 
- Quoted By: >>4586309 
->>4586328 
->>4586237
-Well, I'd say the first arc ended with the Bathroom.
-This shall be called the Psycho Arc.
-
-I'd say this is the end of the second arc.
-The Dere Arc. Or the Dumi Arc. Whichever. 
-Anonymous Wed 24 Feb 2010 08:23:28 No.4586274 Report 
- Quoted By: >>4586301 
->>4586246
-We're still partners, but what are you looking for? And didn't Arado mention that they killed you way back when we met him? 
-Sanger Zombolt! Wed 24 Feb 2010 08:24:28 No.4586278 Report 
- Quoted By: >>4586384 
->>4586246
-YES YOU ARE DUMI, YES YOU ARE.
-
-BROFIST. 
-SEED D Cagalli !!U5xc0wG3iH0 Wed 24 Feb 2010 08:25:28 No.4586289 Report 
- Quoted By: >>4586384 
->>4586246
-
-We trust Dumi.
-
-We only kill people we care for if they decide to jump ship and fall in love with dirty sluts. Dumi's stuck by our side through thick and thin. Yes, Dumi lied about where she came from, but she stuck with us.
-
-She stuck with an insane, bipolar girl with obsessions about getting little boys to wear dresses and never complained. That's the kind of camaraderie you don't get from most *humans*. 
-View SameGoogleiqdbSauceNAO Katina Deremode smaller.png,  73KiB, 394x265 
- 
-Stealthyboy !fchRKomfls Wed 24 Feb 2010 08:26:28 No.4586292 Report 
- Quoted By: >>4586384 
->>4586404 
->>4586246
-If you still want to Dumi...
-You do still want to, don't you? 
-Anonymous Wed 24 Feb 2010 08:27:28 No.4586301 Report 
->>4586274 Here
-
-Just double checked, apparently Arado didn't mention Duminass, just Dark Brain. Could have sworn he did. 
-Anonymous Wed 24 Feb 2010 08:28:28 No.4586309 Report 
->>4586265
-Well, I divided this story in 3 parts:
-
-Begining part, from the initial battle with Beowulf's elites to the meeting with the DC.
-
-South America part, from the battle where we abandoned the drillgust to Axel's awakeningg.
-
-EFA's downfall, from our arrival into space to the death of Beowulf. 
-Anonymous Wed 24 Feb 2010 08:28:28 No.4586316 Report 
->>4586246
-Ask her what she's looking for and who created her. 
-Sciencegar Sciencebolt Wed 24 Feb 2010 08:30:28 No.4586328 Report 
->>4586265
-
-If each arc is approximately 6 threads then:
-
-Arc 1: The Start, Arado's capture, the Bathroom Incident
-Arc 2: The first set of Other People Quests, The Trip to Brazil, the Battle over the Gulf.
-Arc 3: Mardi Gras, Death of Ensign Mickey, Shine's Capture.
-Arc 4: Arrival in Africa, Battle at the Earth Cradle, Battle against Cry Wolves and Hagane, This trip into space.
-
-That's very rough but its what you'd have to take as the basis. 
-Anonymous Wed 24 Feb 2010 08:34:28 No.4586366 Report 
->>4586246
-
-Awwwww
-
-I want to trust Dumi, really but:
-
-1. It seems likely he (Is Dumi still he? Duminas is always referred to as she...) has really been working against us all this time.
-
-and 
-
-2 Probably for Dark Brain.
-
-So who is Dumi working for?
-
-Does Dumi *want* to work for that person.
-
-What is he going to do with us?
-
-What is his master going to do if he gets his way?
-
-Also be in dere mode. 
-Anonymous Wed 24 Feb 2010 08:37:28 No.4586384 Report 
->>4586292
->>4586278
->>4586289
-
-Hug Dumi. 
-GUNDAMU !0smG1gQz9c Wed 24 Feb 2010 08:39:28 No.4586399 Report 
- I'd say that we should trust Dumi at least for now, but make it clear that if we have to choose between the Shadow Mirrors and Dumi, we'll side with the people whose cause we believe in.
-
-As long as Dumi's actions don't threaten our world, I think we should take a policy of neutrality regarding his search for whatever it is he's looking for. Also, dereface.
-
-"And, uh, well, what I'm trying to say is... uhm... Dumi, once this is all over, if you... if you come back as a motorcycle, I wouldn't mind riding you." 
-Anonymous Wed 24 Feb 2010 08:40:28 No.4586404 Report 
- Quoted By: >>4586408 
->>4586467 
->>4586292
-Did Katina actually cry in OGs? When? 
-SEED D Cagalli !!U5xc0wG3iH0 Wed 24 Feb 2010 08:40:28 No.4586408 Report 
- Quoted By: >>4586436 
->>4586404
-
-Probably when Daitetsu died. 
-Anonymous Wed 24 Feb 2010 08:43:28 No.4586436 Report 
- Quoted By: >>4586449 
->>4586461 
->>4586467 
->>4586408
-Daitetsu died? When?! 
-Anonymous Wed 24 Feb 2010 08:44:28 No.4586449 Report 
- Quoted By: >>4586462 
->>4586562 
->>4586436
-I only played OGs in japanese and just skipped all dialogue. I did not realize he died.
-
-WTF, how? 
-SEED D Cagalli !!U5xc0wG3iH0 Wed 24 Feb 2010 08:46:28 No.4586461 Report 
->>4586436
-
-So much for the spoilers.
-
-He dies in mission 32 IIRC in OG2. Lee and the Shirogane get the jump on the Hagane and blast its bridge and he gets critically injured. 
-Sciencegar Sciencebolt Wed 24 Feb 2010 08:46:28 No.4586462 Report 
- Quoted By: >>4586490 
->>4586449
-
-And you didn't notice how Tetsuya was suddenly the one flying the Hagane? Didn't the scene where he does an epic ramming of the Shirogane give it away? 
-View SameGoogleiqdbSauceNAO GRP_2012.png,  44KiB, 512x512 
- 
-Stealthyboy !fchRKomfls Wed 24 Feb 2010 08:47:28 No.4586467 Report 
->>4586436
-OGverse, relax.
-
->>4586404
-Apparently she did. Original sprite for reference. 
-Anonymous Wed 24 Feb 2010 08:49:28 No.4586490 Report 
->>4586462
-I thought Tetsuya just graduated or something and took control of the Shirogane. 
-Anonymous Wed 24 Feb 2010 08:50:28 No.4586504 Report 
- Finally caught with with this story. Great work so far Sciencegar. 
-Anonymous Wed 24 Feb 2010 08:56:28 No.4586562 Report 
- Quoted By: >>4586586 
->>4586449
-
-http://www.youtube.com/watch?v=ue1j52MeHD4
-
-http://www.youtube.com/watch?v=-DtK1NlJn3A 
-Sciencegar Sciencebolt Wed 24 Feb 2010 08:57:28 No.4586574 Report 
- Quoted By: >>4586600 
->>4586601 
->>4586606 
->>4586613 
- "Y...Yes Dumi, you still are. You've stuck with me this long...longer than anyone else I can remember..."
-
-Thank you, Katina. I promise, I'll be completely truthful with you from now on.
-
-"Well, in that case...Who is this creator you keep mentioning? He seems kinda important."
-
-Urgh....Now, Katina, realise that I don't have any control over this, much like you can't control who your parents we-
+*Urgh... Now, Katina, realise that I don't have any control over this, much like you can't control who your parents we-*
 
 "Who is it?"
 
-...The entity the Irregulars called Dark Brain. He's not a very nice person.
+*...The entity the Irregulars called Dark Brain. He's not a very nice person.*
 
 "Isn't he supposed to be destroying their universe or something? That's a notch or two above 'not nice'!"
 
-Well, technically, he hasn't done that yet because that's due to happen in the Irregulars future, which they've changed by coming here and altering things...But yes, he occasionally smashes up universes and throws pieces of them into one another to create horrific mashups.
+*Well, technically, he hasn't done that yet because that's due to happen in the Irregulars future, which they've changed by coming here and altering things... But yes, he occasionally smashes up universes and throws pieces of them into one another to create horrific mashups.*
 
 "Why would yo-"
 
-I can't not work for him, Katina! Obeying his commands is ingrained into my mind like breathing is for yours. I don't nessecarily want to mess with universe like he does. Thankfully, my mission really only involves finding a mech for him, a mech that shouldn't even be in this universe anyway. If I do it right, I won't have to hurt any-
+*I can't not work for him, Katina! Obeying his commands is ingrained into my mind like breathing is for yours. I don't nessecarily want to mess with universe like he does. Thankfully, my mission really only involves finding a mech for him, a mech that shouldn't even be in this universe anyway. If I do it right, I won't have to hurt any-*
 
 The girl in your arms starts screaming. 
 Anonymous Wed 24 Feb 2010 08:59:28 No.4586586 Report 
