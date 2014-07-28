@@ -264,31 +264,7 @@ Kar-Wai calls you on the comms. "Uh, Ms. Tarask, my mech is giving me a funny re
 
 "Fuckballs..."
 
-WHAT WILL KATINA DO? 
-Stealthyboy !fchRKomfls Thu 25 Feb 2010 22:44:42 No.4595239 Report 
- Quoted By: >>4595690 
->>4595217
-Take Patricia and the Gespenst S with you and evacuate to the Eurydice, and broadcast a message telling any other awakened humans to join you there. 
-Anonymous Thu 25 Feb 2010 22:44:42 No.4595241 Report 
->>4595217
-Pull out YESTERDAY and broadcast to anyone that this is not a drill. We need to get back to the Hiryu MK 2 yesterday 
-Anonymous Thu 25 Feb 2010 23:35:42 No.4595506 Report 
->>4595217
-Yeah, looks like we need to pull out and hope when Hackman wakes up she'll be able to help us negotiate and get things going again. 
-
-I seriously hope Armana's around because the fleet commanders aren't known for being nice, forgiving kinds of guys. 
-Anonymous Thu 25 Feb 2010 23:39:42 No.4595536 Report 
->>4595217
-OK EVERYONE, LET'S GOOOOO! 
-Anonymous Mk-II Fri 26 Feb 2010 00:04:42 No.4595690 Report 
->>4595239
-2nd 
-Anonymous Fri 26 Feb 2010 00:11:42 No.4595741 Report 
->>4595217
-We fall back to our previous plan:
->>4590337 
-Sciencegar Sciencebolt Fri 26 Feb 2010 01:21:42 No.4596121 Report 
- "OK people, we're getting out of here. Starbuck, take the Gespenst. Radha, let Jennifer into your cockpit. We're getting out of this hellhole!!"
+"OK people, we're getting out of here. Starbuck, take the Gespenst. Radha, let Jennifer into your cockpit. We're getting out of this hellhole!!"
 
 You lead the charge through the winding corridors, following Dumis instructions for the safest route. Even so, you come across the remains of bugs and Bartolls everywhere, and even have to smash a few stray bugs yourself. But you and Kar-Wai are easily up to guarding the others.
 
@@ -297,12 +273,12 @@ You emerge with a kick onto the surface of the Neviim, near to a Peregrine battl
 "Dammit...ok, everyone get in!"
 
 You fly into the docking bay of the Peregrine, a snug fit as there are several black Bartoll-esque mecha also sharing the space. You hear the Peregrines guns going off, then a rough jerk as it accelerates into space. 
-Sciencegar Sciencebolt Fri 26 Feb 2010 01:29:42 No.4596176 Report 
-The losses to the Bartol force are unfortunate, as is the failure to recover all of the ODE equipment, but I think the Shadow Mirrors have profited greatly from this.
 
-You sit back in the Raioh's control harness and smile. "Yeah...Shame about the DC though."
+*The losses to the Bartol force are unfortunate, as is the failure to recover all of the ODE equipment, but I think the Shadow Mirrors have profited greatly from this.*
 
-Yes, it appears we may have set Lily Junkers back many years of investment in that base. But she, like the rest of Earth, have bigger issues to worry about right now.
+You sit back in the Raioh's control harness and smile. "Yeah... Shame about the DC though."
+
+*Yes, it appears we may have set Lily Junkers back many years of investment in that base. But she, like the rest of Earth, have bigger issues to worry about right now.*
 
 "Wait, you still haven't gotten ahold of the Balmar command yet? Dammit Dumi, you're supposed to be able to conquer planets and buttfuck dimensions, and you can't make a phonecall?"
 
@@ -310,6 +286,6 @@ Aside from the technical issues with the Balmar technology, I was more referring
 
 "Then... I guess we'll just have to keep them a secret, won't we?"
 
-*That would have been an option...  If there hadn't been a major mech battle with the Bartolls as we covered our escape. The EFA can't fail to detect that sort of thing. They'll be coming here, soon, and in force.*
+*That would have been an option... If there hadn't been a major mech battle with the Bartolls as we covered our escape. The EFA can't fail to detect that sort of thing. They'll be coming here, soon, and in force.*
 
 "...Dammit, why is becoming all-powerful so damned tedious?"
