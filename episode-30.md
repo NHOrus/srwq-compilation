@@ -1,19 +1,8 @@
+# Episode 30
 
-Archives: [ a / biz / c / co / diy / gd / int / jp / m / out / po / q / sci / sp / tg / tv / vg / vp / vr / wsg ] Boards: [ dev / foolz / neet ]
+## SHADOW MIRROR QUEST (AKA SRW Q)
 
-    /m/ - Mecha
-
-    4chan
-    Index
-    Ghost
-    Gallery
-    Stats
-
-6KiB, 127x99, SMKatina.png
-View SameGoogleiqdbSauceNAO
-SRWQ Mission 30: Goddammit guys, we don't even need trolls anymore!
-Sciencegar Sciencebolt Sun 28 Feb 2010 17:50:09 No.4614064 ViewReplyOriginalReport
-Previous threads listed here: http://teamphantomtiger.blogspot.com/2010/02/srw-quest-sciencegar-sciencebolt-joint.html#more
+###SRWQ Mission 30: Goddammit guys, we don't even need trolls anymore!
 
 In our last, relatively content-light thread (seriously, what have I spawned that causes so much discussion?), Katina and company arrived back on Earth, at a secret location in China where the Junkers Faction and the Earth' Liberation Front were meeting. Most of the team began paying their blood-money to the DC for destroying their space base, while Katina wandered off to help a construction worker called Rand to pull an ancient lion-shaped mechanoid out of the ground. Unfortunately, it turned out the thing was infested with Einst tentacles, so Katina bravely electrocuted it (and Rand) in the middle of the DC camp, then ran screaming at the next mechanoid. This caused a bit of confusion.
 
@@ -1430,103 +1419,3 @@ Shine is in one of the Trilobites. These two objectives are mutually incompatibl
 >Also, how strong are Tronium explosions?
 
 Too strong. Also, if you lose any tronium, Yuuki might as well slit his own throat now rather than go back to base (Only 6 pieces in existence, remember? Maybe even less in this universe.)
-Sanger Zombolt! Mon 01 Mar 2010 04:33:09 No.4617357 Report
-Quoted By: >>4617366
->>4617339
-But the SRX team doesn't. I am playing in-character here.
-
-Also, I want to see Katina's face once she sees the base in pieces.
-Anonymous Mon 01 Mar 2010 04:34:09 No.4617366 Report
->>4617357
-I'd rather see SRX vs. SRX, myself...
-Anonymous Mon 01 Mar 2010 04:37:09 No.4617393 Report
-Quoted By: >>4617412
->>4617383
-What are the chances of Katina ariving during the middle of this and Deus ex Machina-ing?
-Sanger Zombolt! Mon 01 Mar 2010 04:38:09 No.4617402 Report
-Quoted By: >>4617415 >>4617478
->>4617383
->>4617354
-If that's the case, have the shock trooper team investigate in which trillobite Shine is being held in. Then have 3 guys use their Solid Snake skills to capture her and bring her out.
-
-Save her and then get the fuck out of there in the Vysaga, the Thrud and the Huckebein.
-
-THEN we use the HTB cannon to blow up stuff before the guys can react to the mechs being stolen.
-
-Then plan keeps being the same. Use the confusion to steal the DGGs with seven other shock troopers.
-Sanger Zombolt! Mon 01 Mar 2010 04:40:09 No.4617412 Report
-Quoted By: >>4617419
->>4617393
-This would actually be a great moment for the DEFENDER OF JUSTICE to shine.
-Anonymous Mon 01 Mar 2010 04:40:09 No.4617414 Report
->>4617354
-
-How about >>4617229
-
-Ot might spread the forces a bit thin, But i think it is still viable.
-Anonymous Mon 01 Mar 2010 04:40:09 No.4617415 Report
->>4617402
-You seem to be forgetting that going SRX is a weapon of last resort.
-Sanger Zombolt! Mon 01 Mar 2010 04:41:09 No.4617419 Report
-Quoted By: >>4617426
->>4617412
-Seriously, I am not expecting my plan to work. Something will go incredibly wrong.
-Anonymous Mon 01 Mar 2010 04:41:09 No.4617426 Report
-Quoted By: >>4617429 >>4617433
->>4617419
-Like sudden Vysaga from nowhere?
-Sanger Zombolt! Mon 01 Mar 2010 04:42:09 No.4617429 Report
->>4617426
-Maybe. Maybe the DEFENDER OF EARTH will show up. Maybe Yuuki ends up killing himself for realz. Who knows?
-Anonymous Mon 01 Mar 2010 04:43:09 No.4617433 Report
-Quoted By: >>4617434
->>4617426
->Vysaga
-Whoops, meant Zweizergain. My brain isn't working right now. How close are we to new thread?
-Sanger Zombolt! Mon 01 Mar 2010 04:43:09 No.4617434 Report
-Quoted By: >>4617440
->>4617433
-More than 270 posts.
-
-We are already dead.
-Anonymous Mon 01 Mar 2010 04:44:09 No.4617440 Report
->>4617434
-Hope that Sciencegar hurries, then.
-Sciencegar Sciencebolt Mon 01 Mar 2010 04:48:09 No.4617463 Report
-Quoted By: >>4617467
-The suggestions are still coming in, I'd like to hear a few more before I start the next thread. I'm hoping to put it in a someway interactive format, rather than just narrate the battles.
-Anonymous Mon 01 Mar 2010 04:49:09 No.4617467 Report
->>4617463
-Fair enough.
-Anonymous Mon 01 Mar 2010 04:51:09 No.4617478 Report
->>4617402
->>4617309
-
-This as long as Shuu saves us.
-Sciencegar Sciencebolt Mon 01 Mar 2010 04:55:09 No.4617491 Report
-Quoted By: >>4617512
-Also, I notice everyone's forgotten you have the Kurogane for backup as well. I might not have made that entirely clear.
-Sanger Zombolt! Mon 01 Mar 2010 04:58:09 No.4617512 Report
-Quoted By: >>4617533
->>4617491
-Leeave it as a back-up plan then.
-
-If everything else fails, have the Kurogane show up mid-battle by suddenly drilling it's way to the surface in the middle of the base, which we then use to evacuate the battlefield. Then the Kurogane drills it's way into the ground again and makes it impossible for the enemies to follow us effectively without leaving their wounded alone.
-Anonymous Mon 01 Mar 2010 05:01:09 No.4617533 Report
-Quoted By: >>4617635
->>4617512
-As long as the SRX team fails to kill any important characters (except maybe Echidna) and to rescue Shine, I support Sanger's plan
-Anonymous Mon 01 Mar 2010 05:14:09 No.4617609 Report
-I think we need new topic. This one is dead.
-Anonymous Mon 01 Mar 2010 05:23:09 No.4617635 Report
->>4617533
-
-As long as Yuuki is a Mashymere anything is fine by me.
-Subject
-Name
-E-mail
-Password
-FoolFuuka Imageboard 2.0.1 - Asagi Fetcher
-Change Theme
-Change Language
-FAQ - Credits & Links - Network Status - Blog
