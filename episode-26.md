@@ -244,112 +244,23 @@ You have a sudden flashback of Kai holding you back from Arado as you rant about
 
 "Only a few ships made it away, only about 20,000 people altogether. The only place to store them was here, on the storage deck. We put them in stasis pods and tried to plan a way to resettle them somewhere safe. The other ships went out, trying to find a safe place, but none of them came back. Laocidea said the only option was to negotiate with Earth, so we flew in...a nd then, there was a battle... People said it was another entity like the one from Balmar... We were on full battle alert, they said it was breaching the core. I was about to head out when... something happened... I remember being frozen... Then the new battle started..."
 
-RESPONSE TO THIS? 
-Anonymous Thu 25 Feb 2010 08:21:42 No.4593378 Report 
- Quoted By: >>4593400 
->>4593401 
- Fight time is over, talking time is now. Inform the woman that we have no intention of killing people unless they attack first. And before she asks we assumed she was with the bug things that shot at us, not our fault (even if it is).
-
-See if she can get us to the leader of whoever's waking up. 
-Anonymous Thu 25 Feb 2010 08:22:42 No.4593381 Report 
- Quoted By: >>4593387 
->>4593365
-"We have a gigantic cosmic eyeball created by a being stitched to the very fabrics of time as space as our partner. 
-
-Your story does not surprise or amuse me." 
-Anonymous Thu 25 Feb 2010 08:22:42 No.4593387 Report 
->>4593381
-So this means we will offer our help to the Balmarians in trade for soldiers and mechs. 
-Rick Dominated Thu 25 Feb 2010 08:23:42 No.4593392 Report 
- Oh...Shit. 
-Anonymous Thu 25 Feb 2010 08:23:42 No.4593395 Report 
- Quoted By: >>4593444 
->>4595093 
->>4593365
-Oh hey, Dark Brain ate her people. Inform her that we're not here to kill anybody. We do happen to have the creepy alien thing with us, but he's a good guy. His name is Dumi. Now can we please talk to your leaders before those bug things decide to attack us again and we have to knock you out so you don't interfere with that fight? 
-Anonymous Thu 25 Feb 2010 08:24:42 No.4593400 Report 
- Quoted By: >>4595093 
->>4593378
-Do this. Find Mr Laodecea and have a chat. 
-Anonymous Thu 25 Feb 2010 08:25:42 No.4593401 Report 
- Quoted By: >>4593406 
->>4593378
-This, also tell Dumi to try to look non-threatening. 
-Anonymous Thu 25 Feb 2010 08:26:42 No.4593406 Report 
->>4593401
-Someone said something along the lines of letting Dumi take the shape of a little crinsom girl. Maybe we could do that? 
-Stealthyboy !fchRKomfls Thu 25 Feb 2010 08:26:42 No.4593407 Report 
- Quoted By: >>4593416 
->>4593365
-I think we'd better inform her of the situation down on Earth. There's no way the Balmar will be doing any negotiation with the EFA. 
-Anonymous Thu 25 Feb 2010 08:28:42 No.4593416 Report 
- Quoted By: >>4593441 
->>4593466 
->>4593407
-And who's saying they will negotiate with those corrupt bastards? DC and SM baby. 
-Anonymous Thu 25 Feb 2010 08:32:42 No.4593441 Report 
- Quoted By: >>4593457 
->>4593416
-I'm certain their natural inclination for diplomacy would be the legitimate unified government, which is sadly the EFA. 
-Anonymous Thu 25 Feb 2010 08:32:42 No.4593444 Report 
->>4593395
-Honestly, that description sounds a lot more like Keisar Ephes. I'm guessing Shiva just decided to screw waiting for an awakened psychodriver, he was taking Ruach out now, with the small side effect of waking up Keisar Ephes. Everything then went to hell. 
-Anonymous Thu 25 Feb 2010 08:33:42 No.4593457 Report 
->>4593441
-They just have to realize that the EFA is ruled by monsters that seek to erase all humanoid life in the universe to realize that the DC and SM are more reliable choices. 
-Stealthyboy !fchRKomfls Thu 25 Feb 2010 08:35:42 No.4593466 Report 
->>4593416
-Which is why I'm saying that we should explain the situation down on Earth, so that the Balmar will negotiate with us instead.
-
-But also remember what the DC is there for. We may have some trouble convincing them not to attack the Balmarians... 
-Anonymous Thu 25 Feb 2010 10:00:42 No.4593958 Report 
- GA GA GA GA GAAAAOOOOOGAIGAR! 
-Anonymous Thu 25 Feb 2010 11:16:42 No.4594301 Report 
- Quoted By: >>4594308 
->>4593365
-Well. Either she's lying or decieved, Dumi saw the White Moon and instantly thought 'Oh god this will be Alpha all over again' and went all preemptive self-defence. Hell, it probably WOULD have been Alpha all over again if Balmar hadn't gotten their shit ruined by Kaiser Ephes.
-
-Worst case scenario - Dumi was working with Dark Brain. It was not Kaiser who fucked up Balmar.
-
-But I really hope it was Kaiser. Because that would mean we'd get to join up with the OG Numbers to wreck his shit, and that's always fun. 
-Anonymous Thu 25 Feb 2010 11:17:42 No.4594308 Report 
->>4594301
->Either she's lying or decieved, OR Dumi saw the White Moon
-...gah, fixed. 
-Anonymous Thu 25 Feb 2010 15:33:42 No.4595093 Report 
->>4593395
->>4593400
-Thirded, lets talk to them. 
-SEED D Cagalli !!U5xc0wG3iH0 Thu 25 Feb 2010 15:45:42 No.4595114 Report 
- I say we trust her.
-
-And besides, this falls into the plan we SHOULD be gunning for; getting everyone at Hellgate or wherever the hell this is working together and helping out the Shadow Mirrors. 
-Anonymous Mk-II Thu 25 Feb 2010 22:24:42 No.4595161 Report 
->>4593365
-tell her that we arent with the EFA and dont want to kill her alien lovers unless they give us a reason to do it. 
-Sciencegar Sciencebolt Thu 25 Feb 2010 22:39:42 No.4595217 Report 
- Quoted By: >>4595239 
->>4595241 
->>4595506 
->>4595536 
->>4595741 
- You set your face glumly. "Ok, ok, maybe we got off on the wrong foot here. We'll go to see the alien boss, and try to talk this out. We might be able to get this figured out without killing everything."
+You set your face glumly. "Ok, ok, maybe we got off on the wrong foot here. We'll go to see the alien boss, and try to talk this out. We might be able to get this figured out without killing everything."
 
 Hackman is still silent. 
 
-Kar-Wai calls you on the comms. "Uh, Ms. Tarask, my mech is giving me a funny readout from hers. I think....she's fainted."
+Kar-Wai calls you on the comms. "Uh, Ms. Tarask, my mech is giving me a funny readout from hers. I think... she's fainted."
 
 "OH FOR FUCKS SAKE!!!"
 
-Calm down, Katina, we can still negotiate with the Balmar. I'll just need a little while to assimilate their language and comms protocols from the Judecca, and I should be able to...Hrrmm.
+*Calm down, Katina, we can still negotiate with the Balmar. I'll just need a little while to assimilate their language and comms protocols from the Judecca, and I should be able to... Hrrmm.*
 
 "Hrrm what!!? Dumi, stop being so damned vague!"
 
-Several groups of Bartolls are being engaged by the enemy drones. My computing power is being used up trying to hack the Judecca, I can't replicate the ODE learning system like the DC Hivemind could. And they have problems of their own.
+*Several groups of Bartolls are being engaged by the enemy drones. My computing power is being used up trying to hack the Judecca, I can't replicate the ODE learning system like the DC Hivemind could. And they have problems of their own.*
 
 "Dammit, what the heck do we do?"
 
-This whole situation is escalating rapidly, Katina. I think the negotiations will have to wait until we're clear of the Neviim and can talk over the intervening distance. If we stay here and keep trying, the risk of the Balmar acting rashly will be very great.
+*This whole situation is escalating rapidly, Katina. I think the negotiations will have to wait until we're clear of the Neviim and can talk over the intervening distance. If we stay here and keep trying, the risk of the Balmar acting rashly will be very great.*
 
 "Fuckballs..."
 
