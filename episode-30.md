@@ -1,1446 +1,1532 @@
+
 Archives: [ a / biz / c / co / diy / gd / int / jp / m / out / po / q / sci / sp / tg / tv / vg / vp / vr / wsg ] Boards: [ dev / foolz / neet ]
- /m/ - Mecha  
-4chan 
-Index
- 
-Ghost
-Gallery
-Stats
- 
- 
- 157KiB, 741x592, 1265653028556.png 
-View SameGoogleiqdbSauceNAO 
-SRWQ Mission 29: We need someone to update that picture... Sciencegar Sciencebolt Sun 28 Feb 2010 02:48:44 No.4608904 ViewReplyOriginalReport 
- Previous threads listed here: http://teamphantomtiger.blogspot.com/2010/02/srw-quest-sciencegar-sciencebolt-joint.html#more
 
- In our last thread, our heroes finally finished up with the Balmarian refugees in the Neviim, while Dumi converted himself into DaiDumi. Shuu then teleported them all back to earth, to return the DC troops, and the ODE system and Bartols. Little do they know that not only are they closer to their original objectives than ever before, but a dangerous new threat awaits them in the pit below... View SameGoogleiqdbSauceNAO Gundigger.jpg,  32KiB, 400x400 
- 
-Sciencegar Sciencebolt Sun 28 Feb 2010 02:57:44 No.4608972 Report 
- Quoted By: >>4608994 
->>4609040 
->>4609176 
- You bring the Raioh to a rest on a hilltop overlooking the dig site. A series of massive craters greets you, a level plain of nearly a square mile, dotted not only with craters, but with massive bulk transports, their radar signature even now almost undetectable. To have gotten enough transport power to fit the Bartols this quickly, the Junkers faction certainly lives up to their reputation as the go-to people for going-to.
+    /m/ - Mecha
 
-But other elements of the digsite stand out to you, in particular, one of the dearest trenches seems to have hit paydirt. This massive construction mech, proudly displaying "Beater Excavation" on its shoulder, are taking away the last scraps of dirt around something...very odd. An excited crowd is gathering around the trench.
+    4chan
+    Index
+    Ghost
+    Gallery
+    Stats
 
-WILL KATINA INVESTIGATE, OR LOOK ELSEWHERE? 
-NuBlackAnon !!z6ldXGL61Wm Sun 28 Feb 2010 02:59:44 No.4608994 Report 
- Quoted By: >>4609035 
->>4608972
-Investigate. It might be one of the SUPER DEFENDERS OF THE EARTH 
-Anonymous Sun 28 Feb 2010 02:59:44 No.4608995 Report 
- Quoted By: >>4609003 
->>4609176 
- Fuck, we're investigating. It's the motherfucking Gunleon. 
-Anonymous Sun 28 Feb 2010 03:00:44 No.4609003 Report 
- Quoted By: >>4609176 
->>4608995
-And by that I mean that the excavation team has it around SOMEWHERE. Besides which, Chokijin. Do want 
-Ratsel Feinschmecker !VFYL66iWMA Sun 28 Feb 2010 03:03:44 No.4609035 Report 
- Quoted By: >>4609086 
->>4608994
+6KiB, 127x99, SMKatina.png
+View SameGoogleiqdbSauceNAO
+SRWQ Mission 30: Goddammit guys, we don't even need trolls anymore!
+Sciencegar Sciencebolt Sun 28 Feb 2010 17:50:09 No.4614064 ViewReplyOriginalReport
+Previous threads listed here: http://teamphantomtiger.blogspot.com/2010/02/srw-quest-sciencegar-sciencebolt-joint.html#more
 
-Captain Gordon? LOL, kidding. 
+In our last, relatively content-light thread (seriously, what have I spawned that causes so much discussion?), Katina and company arrived back on Earth, at a secret location in China where the Junkers Faction and the Earth' Liberation Front were meeting. Most of the team began paying their blood-money to the DC for destroying their space base, while Katina wandered off to help a construction worker called Rand to pull an ancient lion-shaped mechanoid out of the ground. Unfortunately, it turned out the thing was infested with Einst tentacles, so Katina bravely electrocuted it (and Rand) in the middle of the DC camp, then ran screaming at the next mechanoid. This caused a bit of confusion.
 
-I think she should investigate! 
-Anonymous Sun 28 Feb 2010 03:04:44 No.4609040 Report 
->>4608972
-Lets check it out, not like theres anything interesting around here. 
-View SameGoogleiqdbSauceNAO Invincible Earth Liberation Warr (...).jpg,  66KiB, 561x455 
- 
-Haken Browning !zHe7DH816A Sun 28 Feb 2010 03:08:44 No.4609086 Report 
- Quoted By: >>4609139 
->>4609035
-Welcome to almost 20 threads ago, when we first met SHUU SHIRAKAWA, SCIENTIFIC SAVIOUR OF EARTH!.
+While the other factions finally realise that somethings up other than Katina, she is wrestling a giant snake-thing, which threatens to crush her in its coils. Meanwhile, Dumi, in his new ship form, heads for the Zweizergain, the cause of and solution to most of the Shadow Mirrors problems.
+Anonymous Sun 28 Feb 2010 17:53:09 No.4614071 Report
+Repostan
 
-And this is his pimpin' ride. 
-Anonymous Sun 28 Feb 2010 03:09:07 No.4609091  Report 
->>4608901
-STOP SPAMMING WWW. añＯＮＴＡ|ｋ .COM IMMEDIATELY AND REMOVE ALL CLONES AND LIES AND PAY BACK THE MONEY YOU OWE SYSOP 
-BSRaven !!pZhu/eJf6iW Sun 28 Feb 2010 03:10:44 No.4609108 Report 
- INVESTIGATE DIG SITE
-advicebaldrick.jpg
-FIND AWESOME STUFF.
-
-tl;dr: GET DIGGING. 
-Ratsel Feinschmecker !VFYL66iWMA Sun 28 Feb 2010 03:13:44 No.4609139 Report 
- Quoted By: >>4609155 
->>4609086
-
-
-What exactly are you trying to say here? I've been keeping track of these threads form the beginning. Just not always as a Tripper. Interesting Picture BTW. *saves* 
-Haken Browning !zHe7DH816A Sun 28 Feb 2010 03:15:44 No.4609155 Report 
- Quoted By: >>4609184 
->>4609139
-I'd been making Captain Gordon jokes from the very beginning. They just hadn't stuck as well as expected.
-
-inb4 Sciencegar implements my "Wyrm Smasher Gordon Blitz" idea from waaaay back 
-Anonymous Sun 28 Feb 2010 03:17:44 No.4609176 Report 
- Quoted By: >>4609185 
->>4608972
->Gundigger
->>4608995
->>4609003
->Gunleon SOMEWHERE
-GUN GUN DIGGER, GUNDIGGER 
-Ratsel Feinschmecker !VFYL66iWMA Sun 28 Feb 2010 03:18:44 No.4609184 Report 
->>4609155
-
-Ah, sorry for taking your joke. 
-Haken Browning !zHe7DH816A Sun 28 Feb 2010 03:18:44 No.4609185 Report 
- Quoted By: >>4609194 
->>4609600 
->>4609176
->GUN GUN DIGGER, GUNDIGGER
-I sang this to the tune of the Shinkenger opening. Is something wrong with me? Like, wrong-er than usual? 
-Ratsel Feinschmecker !VFYL66iWMA Sun 28 Feb 2010 03:19:44 No.4609194 Report 
- Quoted By: >>4609214 
->>4609185
-
-*ahem*
-
-Dai Dai Trombe, DaiTrombe! 
-Haken Browning !zHe7DH816A Sun 28 Feb 2010 03:22:44 No.4609214 Report 
- Quoted By: >>4609221 
->>4609242 
->>4609194
-Doesn't work as well. "Trombe" on its own is already three kana (Tor-om-bu/be). Limit on the "Bara" is two.
-
-Thus, DAI DAI-ZENGAR, DAI-ZENGAR 
-Brave Exkaiser will Never Die Sun 28 Feb 2010 03:23:44 No.4609221 Report 
->>4609214
-It's four. To-Ro-N-Be. 
-Ratsel Feinschmecker !VFYL66iWMA Sun 28 Feb 2010 03:25:44 No.4609242 Report 
- Quoted By: >>4609253 
->>4609214
-
-Clearly you didnt see the original flash video.... it was taking the english pronunciation of Trombe, which was only two sylabals.... 
-
-You can pronounce it either way. The second chorus of that song was Daitrombe, rather then daizengar. 
-Ratsel Feinschmecker !VFYL66iWMA Sun 28 Feb 2010 03:27:44 No.4609253 Report 
->>4609242
-
-But... meh. Bad joke was bad. Moving on.... 
-Anonymous Sun 28 Feb 2010 03:32:44 No.4609306 Report 
- At any rate, we can't go wrong with the Gun-digger/Gunleon. Might let Ryoto get his wish :V 
-Sciencegar Sciencebolt Sun 28 Feb 2010 04:14:44 No.4609592 Report 
- Quoted By: >>4609599 
->>4609609 
->>4609627 
->>4609644 
->>4609645 
- You hover down to the pit, placing your feet in two of the few spots where people and equipment aren't. "Hey, Mister, nice robot. Does it need a hand?"
-
-"Well...Gun-Diggers only got one...Tell ya what, grab ahold of that far cable trolley, and see if we can't yank this sucker straight out!"
-
-"Ok!" The two giant mechs grab opposites of the earth-covered shape, and pull on the carefully placed steel cables. A small mountain of earth is dislodged as the thing, easily the size of either mech, comes free, to swing comfortably underneath the Gundiggers oversized work arm.
-
-"Well, he is a beaut and a half, isn't he?"
-
-The thing is definitely feline in form, and made of some kind of....furred metal. You recall your encounter with the Tiger-Grungust, back at TLI, only a week ago but it feels like months.
-
-"Travis to Anzai, Travis to Anzai, the Lion is free. He's completely intact. Get on over here, doc!"
-
-But what draws your attention the most is whats holding the ancient metal device together. The plates of fur-metal seem to be connected by a series of glowing blue pseudopods. Blue, and a few green. Actually, a lot of green, more than there were a second ago. Green, rubbery...and terribly familiar.
-
-INITIAL REACTIONS FROM KATINA? 
-Anonymous Sun 28 Feb 2010 04:15:44 No.4609599 Report 
- Quoted By: >>4609618 
->>4609592
-Touch it, see if it will combine with your unit 
-Anonymous Sun 28 Feb 2010 04:15:44 No.4609600 Report 
->>4609185
-Sounds fine to me... 
-Stealthyboy !fchRKomfls Sun 28 Feb 2010 04:17:44 No.4609609 Report 
->>4609592
-FUCK EINST RUN. 
-Anonymous Sun 28 Feb 2010 04:18:44 No.4609618 Report 
->>4609599
-This seems like a terrible idea.
-
-Lets do it. 
-Anonymous Sun 28 Feb 2010 04:19:44 No.4609627 Report 
->>4609592
-If not Einst, touch.
-
-If Einst, kill. 
-Anonymous Sun 28 Feb 2010 04:23:44 No.4609644 Report 
->>4609592
-Have someone cover you and approach slowly. Never hurts to be careful. 
-Anonymous Sun 28 Feb 2010 04:23:44 No.4609645 Report 
->>4609592
-Sound the warning. We may have company soon. Beowulves, Cry Wolves...Either way, very bad news. 
-Anonymous Sun 28 Feb 2010 04:32:44 No.4609692 Report 
- Quoted By: >>4609699 
->>4609706 
- Was it ever said how the Irregulars changing the past of the Shadow Mirror world effected the versions of Axel and Alfimi from the original timeline? 
-Anonymous Sun 28 Feb 2010 04:34:44 No.4609699 Report 
- Quoted By: >>4609706 
->>4609716 
->>4609692
-Not sure interdimensional time-travel works like that... 
-Anonymous Sun 28 Feb 2010 04:35:44 No.4609706 Report 
->>4609699
->>4609692
-Although the longer the Irregulars put off their return, the earlier they'll arrive in their world. 
-Anonymous Sun 28 Feb 2010 04:36:44 No.4609716 Report 
- Quoted By: >>4609725 
->>4609699
-Well, it's kinda of interest. Alfimi would be massively useful under the circumstances, and I'd like to see Timeline1!Axel beat the shit out of our current Axel. Who deserves it. 
-Anonymous Sun 28 Feb 2010 04:38:44 No.4609725 Report 
- Quoted By: >>4609739 
->>4609716
-Honestly, I'd be surprised if they didn't come through along with the OGnumbers. Since according to the Drama CD they're just wandering OGverse, not the multverse. Unless, of course, they're in Endless Frontier, which also explains where Fighter Roa went to... 
-Haken Browning !zHe7DH816A Sun 28 Feb 2010 04:40:44 No.4609739 Report 
- Quoted By: >>4609744 
->>4609763 
->>4609725
-Except we "know" Roa's already here, in the Irregulars' employ.
-
-So either he got back from the EF early, or more System XN time-shunt shenanigans ensued with Roa and Axfimi's departures from the EF, or Sciencegar is conveniently forgetting anything EXCEED-related to prevent inadvertent spoilers. 
-Anonymous Sun 28 Feb 2010 04:41:44 No.4609744 Report 
->>4609739
-...Or that Roa is an earlier/this universes version. 
-Ratsel Feinschmecker !VFYL66iWMA Sun 28 Feb 2010 04:43:44 No.4609763 Report 
- Quoted By: >>4609776 
->>4609778 
->>4609790 
->>4609739
-
-*Backhands* I do not count Mugen Frontier as being Canon to the OG verse. 
-NuBlackAnon !!z6ldXGL61Wm Sun 28 Feb 2010 04:45:44 No.4609776 Report 
- Quoted By: >>4609785 
->>4609763
-but it is, bro. Now stop roleplaying you terrible tripfriend. 
-Anonymous Sun 28 Feb 2010 04:45:44 No.4609778 Report 
- Quoted By: >>4609785 
->>4609793 
->>4609763
-Were you not here when the Drama CD summaries were posted, Ratsel? 
-Anonymous Sun 28 Feb 2010 04:46:44 No.4609785 Report 
->>4609776
->>4609778
-Itscanonmind 
-Haken Browning !zHe7DH816A Sun 28 Feb 2010 04:47:44 No.4609790 Report 
- Quoted By: >>4609808 
->>4609763
-Yeah, well, Bamco apparently does. Quit bellyaching and enjoy the ride.
-
-*brainy specs*
-
-Right then, where were we? Ah, yes...Barcelo-I mean, Einst KouOhKi! Don't touch that, Katina, especially since you know where it's been. 
-Ratsel Feinschmecker !VFYL66iWMA Sun 28 Feb 2010 04:47:44 No.4609793 Report 
- Quoted By: >>4609811 
->>4609778
-
-Even considering that, I still consider it somewhat iffy. 
-Ratsel Feinschmecker !VFYL66iWMA Sun 28 Feb 2010 04:49:44 No.4609808 Report 
- Quoted By: >>4609822 
->>4609790
-
-.... meh, I guess. I still have my opinions.
-
-Now.... where were we?
-
-..... This seems like a rather bad situation.... 
-Anonymous Sun 28 Feb 2010 04:49:44 No.4609811 Report 
- Quoted By: >>4609835 
->>4609793
-You're only saying that because EXCEEDs only in japanese. 
-Anonymous Sun 28 Feb 2010 04:51:44 No.4609822 Report 
- Quoted By: >>4609828 
->>4609838 
->>4609808
-Yes it is. Best case scenario? There's an Einst hiding inside KohOhKi and will attack us from inside, using the beast as a sheild.
-
-Worst case? Two actually.
-
-One: EINSTED GAN EDEN
-
-Two: GAN EDEN CREATED EINST 
-Anonymous Sun 28 Feb 2010 04:51:44 No.4609828 Report 
- Quoted By: >>4609836 
->>4609822
-I thought the Fury created the Einst... Or am I misremembering? 
-Ratsel Feinschmecker !VFYL66iWMA Sun 28 Feb 2010 04:52:44 No.4609835 Report 
->>4609811
-
-No.... its just too different for me, I wont lie. The game is interesting, but.... it really seems way too different from the many other SRW games out there. Yes, im petty, I admit it. But its just my opinion. You guys dont have to take it as Divine Truth. 
-Anonymous Sun 28 Feb 2010 04:53:44 No.4609836 Report 
- Quoted By: >>4609854 
->>4609828
-They probably did, but remember: Alternate universe. And Excellen said that these aren't your usual breed of Einst... 
-Haken Browning !zHe7DH816A Sun 28 Feb 2010 04:53:44 No.4609838 Report 
- Quoted By: >>4609845 
->>4612643 
->>4609822
-Suddenly, all those HCGs of Busty!Irui cavorting with tentacles have taken a horrifying new twist...
-
-fapfapfap 
-View SameGoogleiqdbSauceNAO Kotetsushin Jeeg.jpg,  53KiB, 843x470 
- 
-Anonymous Sun 28 Feb 2010 04:54:44 No.4609844 Report 
- Quoted By: >>4609853 
- If KouRyuOh isn't entirely fucked and we can fuse it with with RaiOh...
-
-Will it look vaguely like Kotetsushin Jeeg? (Pic Related) 
-Anonymous Sun 28 Feb 2010 04:54:44 No.4609845 Report 
- Quoted By: >>4609861 
->>4609838
-OH GOD I'VE GIVEN HAKEN FAPFIC IDEAS! WHAT HAVE I DONE!?!?
-
-...
-
-fapfapfapfap 
-Anonymous Sun 28 Feb 2010 04:55:44 No.4609853 Report 
- Quoted By: >>4610124 
->>4609844
-Probably.
-
-We'd also try to grab Latooni for alternate mode. And since there's only one cockpit...wilyeyebrows.gif 
-Anonymous Sun 28 Feb 2010 04:55:44 No.4609854 Report 
- Quoted By: >>4609869 
->>4609836
-Isn't it currently Alfimi's job to kill offshoot varients of the Einst? 
-Haken Browning !zHe7DH816A Sun 28 Feb 2010 04:56:44 No.4609861 Report 
->>4609845
-TBH, the usual.
-
-I'm finding this MUCH more profitable than making my own threads, really. 
-Anonymous Sun 28 Feb 2010 04:57:44 No.4609869 Report 
->>4609854
-Thats the thing. These might not actually BE Einst, just look and act like them. Sorta like someone saw them in action and tried to replicate them or something.
-
-...And that someone is an insane planetary defence system. 
-Anonymous Sun 28 Feb 2010 04:59:44 No.4609889 Report 
->>460986
-
-I don't think so. Juergen would have been aware under those circumstances. And assumedly freeing Duminuss would have killed all of them under those circumstances. 
-Anonymous Sun 28 Feb 2010 05:01:44 No.4609898 Report 
- Er, whoops, cut off the end of the post number accidentally. Thought I'd fixed it. Twould appear not. 
-Anonymous Sun 28 Feb 2010 05:34:44 No.4610124 Report 
->>4609853
-You, sir, are a genius, but won't Duminuss get jealous? 
-Sciencegar Sciencebolt Sun 28 Feb 2010 05:39:44 No.4610167 Report 
- Quoted By: >>4610188 
- "D-dumi! I-I got something I think you should scan..."
-
-There are a lot of things in this base I should scan, Katina. It's a veritable hive of conspiracy, some of it affecting us directly.
-
-"Directly like a tentacle raping??"
-
-....Ah, I see what you're talking about now.
-
-"Is it the same stuff? Is it one of those aliens?"
-
-....Yes and no. It looks like a hybrid of some kind, like two similar sets of bio-technology were spliced together somehow. One the things we saw before, the other...more earthly.
-
-"Ok...has it warned the other aliens?"
-
-No.
-
-"Phew!"
-
-But the snake-like one in the next pit over just did.
-
-"Shit!!"
-
-This probably isn't a great time to tell you that I've detected the Zweizergain, is it? 
-
-"SHIT SHIT SHIT!!!"
-
-WHAT WILL KATINA DO? 
-Stealthyboy !fchRKomfls Sun 28 Feb 2010 05:42:44 No.4610188 Report 
->>4610167
-Start trashing stuff.
-It's the only real option. 
-Anonymous Sun 28 Feb 2010 05:45:44 No.4610215 Report 
- Well damn. See if we can shut the damn Einst up. Preferably by frying it with lightning. And, um... Well shit. Hopefully the Zweizergain will teleport out of here and take the situation off our hands. Aside from that, I vote we take everyone on hand hostage until they can be accounted for. 
-Anonymous Sun 28 Feb 2010 06:02:44 No.4610341 Report 
- Quoted By: >>4610376 
- Activate Plasma Leaders.
-
-Gather the lightning between our hands, until it glows with the power of a thousand suns.
-
-HADOUKEN! "PLASMA BUSTAH!" 
-Anonymous Sun 28 Feb 2010 06:07:44 No.4610376 Report 
- Quoted By: >>4610381 
->>4610341
-might as well imitate a shining finger while you're at it. 
-Anonymous Sun 28 Feb 2010 06:08:44 No.4610381 Report 
- Quoted By: >>4610521 
->>4610376
-Naw, thats for GUN-Oh. 
-Anonymous Sun 28 Feb 2010 06:27:44 No.4610521 Report 
- Quoted By: >>4610529 
->>4610381
-The Gun-Oh must be built. And soon. 
-Anonymous Sun 28 Feb 2010 06:28:44 No.4610529 Report 
- Quoted By: >>4610539 
->>4610521
-Neo Grungust.
-
-Gun-Oh.
-
-Bird and Turtle choukijin
-
-Anymore mechs we need to build or find? 
-Anonymous Sun 28 Feb 2010 06:30:44 No.4610539 Report 
- Quoted By: >>4610614 
->>4610529
-Hmmm. Maybe a Vysaga upgrade, given how much ASS SM!Bullet has been kicking 
-Anonymous Sun 28 Feb 2010 06:40:44 No.4610614 Report 
- Quoted By: >>4610631 
->>4610671 
->>4610539
-As in complete machine overhaul or simply adding parts that would improve it's performance? 
-Anonymous Sun 28 Feb 2010 06:42:44 No.4610631 Report 
- Quoted By: >>4610649 
->>4610665 
->>4610614
-Added parts. Perhaps a Machine Cell cape like our scarf? 
-Anonymous Sun 28 Feb 2010 06:44:44 No.4610649 Report 
- Quoted By: >>4610665 
->>4610631
-A Shishioh blade. Clearly. 
-Anonymous Sun 28 Feb 2010 06:47:44 No.4610665 Report 
->>4610631
->>4610649
-Yes to both of these. 
-Anonymous Sun 28 Feb 2010 06:48:44 No.4610671 Report 
- Quoted By: >>4610691 
->>4610614
-Well, the Vysaga is one of the very best machines we have because of the fact that it is crazy fast. So fast that it actually seems like it is teleporting when it activates it's high-speed system. So, because of that, it is hard to hit and hard to dodge, not to mention that because of said insane speed, physiscs say that it's sword can cut anything when he dashes at it's opponents, making him also incredibly strong.
-
-So....how the hell do we improve a mech that's almost perfect in every way? 
-Anonymous Sun 28 Feb 2010 06:51:44 No.4610691 Report 
- Quoted By: >>4610696 
->>4610705 
->>4610671
-SWORD FUNNELS 
-Anonymous Sun 28 Feb 2010 06:51:44 No.4610696 Report 
->>4610691
-THAT CAN CREATE ILLUSIONS 
-Anonymous Sun 28 Feb 2010 06:52:44 No.4610705 Report 
- Quoted By: >>4610713 
->>4610722 
->>4610691
-This sounds great. What else? 
-Sciencegar Sciencebolt Sun 28 Feb 2010 06:53:44 No.4610710 Report 
- Quoted By: >>4610719 
->>4610720 
->>4610736 
->>4610743 
->>4610754 
->>4610786 
- "It's an impressive for something that's thousands of years old, ain't it Dr. Anzai?"
-
-"Sure is Rand...Wait, what's that other mech-"
-
-Yelling obscenities, you grab the Lion-thing by the green ropy tendrils, and start pumping energy into it. Lightning arcs through the thing, along the steel cables holding it, and into the Gundigger itself. You hear Rand screaming in shock and pain, and Eri Anzai yelling at you to stop, but you can't, you've seen what it takes to kill these things.
-
-The Green tendrils spasm, turn black, and turn to ash. The Blue Tendrils begin to glow brightly, and then the thing explodes. The forces knock the Raioh onto its back, crushing several large pieces of industrial equipment as you fall. 
-
-You shake your head to recover from the impact, as Dumi's voice sounds in your ear.
-
-That was...ill-timed.
-
-"Shut up! Those things are going to kill us! Get your otherworldly ass in gear!"
-
-And do what exactly? Try to stop the ODE system I just handed the keys of to Juergen? Pick up the Zweizergain? Or secure our allies, assuming we still have any you wouldn't like to electrocute.
-
-You lift the Raiohs head. The Lion is currently wrapping itself around the Gundigger, the last of the green biomatter being expelled by a blue energy thats soaking into the construction mech. And all around you, Bartols are turning, and activating their weapons systems. Your seismic sensors are going off, and the comm is ablaze with noise.
-
-WHAT SHOULD KATINA DO, AND WHAT WILL SHE TELL DUMI TO DO? 
-Anonymous Sun 28 Feb 2010 06:53:44 No.4610713 Report 
->>4610705
-A miniature version of the Zweizergain's machinery that lets it create copies of itself. 
-Sanger Zombolt! Sun 28 Feb 2010 06:55:44 No.4610719 Report 
->>4610710
-....did we seriously attack a mech without a warning while being sorrounded by bunch of enemies without inmediate help? 
-NuBlackAnon !!z6ldXGL61Wm Sun 28 Feb 2010 06:55:44 No.4610720 Report 
->>4610710
-FINAL COMBINATIATION WITH THIS UNIT AND DUMI
-FORM GORAIOH, THE GREAT 
-Anonymous Sun 28 Feb 2010 06:55:44 No.4610722 Report 
->>4610705
-As stated above, machine cell cape and a second sword. Or at least a better sword. Maybe.
-
-And adding combination capability with Soulgain to form Super Soulgain? 
-Anonymous Sun 28 Feb 2010 06:57:44 No.4610736 Report 
->>4610710
-Secure the other one, damnit! The snake! And try to tell everyone that Beowulf may be making a special guest appearance! 
-Anonymous Sun 28 Feb 2010 06:59:44 No.4610743 Report 
- Quoted By: >>4610775 
->>4610710
-I think we just became the reason Rand took action and went to battlefields with his mech in this universe.
-
-Now we just got us a Hot-Blooded Super Robot pilot that will constantly be biting our asses for the rest of the quest. 
-Sanger Zombolt! Sun 28 Feb 2010 07:01:44 No.4610754 Report 
- Quoted By: >>4610762 
->>4610770 
->>4610803 
->>4610860 
->>4610894 
->>4610903 
->>4610710
-EXPLAIN THE SITUATION, DAMNIT!
-
-SAY THAT YOU HAVE FOUGHT MONSTERS LIKE THESE ONES BEFORE, AND THAT NOT TAKING ACTION RIGHT NOW MAY MEAN THE DEATH OF EVERY SINGLE PERSON HERE.
-
-SAY THIS IN A WAY FULL OF DESPAIR AND FEAR, SO THAT THEY WILL KNOW THAT YOU ARE NOT SHITTING THEM AND BE FORCED TO COMPLY AND HELP YOU DESTROY THAT GREEN STUFF. 
-Ratsel Feinschmecker !VFYL66iWMA Sun 28 Feb 2010 07:01:44 No.4610762 Report 
- Quoted By: >>4610784 
->>4610754
-
-What are YOU doing here, Zengar? 
-Anonymous Sun 28 Feb 2010 07:03:44 No.4610770 Report 
->>4610754
-Make sure to mention WHERE we've fought them before.
-
-Specifically MOTHERFUCKING BEOWULF 
-Anonymous Sun 28 Feb 2010 07:03:44 No.4610775 Report 
->>4610743
-Not really. I'm sure the Tiger Lord thats currently fusing with his mech will explain that we saved it from evil aliens. 
-Anonymous Sun 28 Feb 2010 07:04:44 No.4610780 Report 
- I suggest we make some sort of appology to Rand after this is over. Meanwhile, NEED BACKUP! 
-Sanger Zombolt! Sun 28 Feb 2010 07:05:44 No.4610784 Report 
->>4610762
-Waiting to put my trobbing cock inside your ass. 
-Anonymous Sun 28 Feb 2010 07:05:44 No.4610786 Report 
->>4610710
-Whatever you do, don't piss off rand.
-
-although it's probably too late for that. 
-Anonymous Sun 28 Feb 2010 07:06:44 No.4610791 Report 
- Also, get the Zweizergain OUT of here. I don't care how, but we DON'T want it to be here when Beowulf shows up. 
-Shas'El Sun 28 Feb 2010 07:08:44 No.4610803 Report 
- Quoted By: >>4610816 
->>4610754
-THHISTHISTHISTHIS.
-
-This is a an emergency, and everyone should get the fuck out of here.
-
-And yes, let's bring the Zweizergain and at least the Bird and Turtle mechs. 
-Anonymous Sun 28 Feb 2010 07:08:44 No.4610805 Report 
- Isn't Shuu and co still hanging around? Maybe we should warn them that BEOWULF IS COMING 
-Anonymous Sun 28 Feb 2010 07:09:44 No.4610816 Report 
- Quoted By: >>4610822 
->>4610831 
->>4610803
-...Actually, I think it might be Lion and Serpent.
-
-And the Lion is fusing with the Gundigg-...
-
-...
-
-OH GOD DAMNIT SCIENCEGAR. THATS A REALLY REALLY BAD...GAH. 
-Anonymous Sun 28 Feb 2010 07:10:44 No.4610822 Report 
- Quoted By: >>4610836 
->>4610850 
->>4610816
-I thought the Choukijin were the four beasts of the four cardinal points? 
-Shas'El Sun 28 Feb 2010 07:11:44 No.4610831 Report 
- Quoted By: >>4610846 
->>4610850 
->>4610816
-Aren't they the tiger, the dragon, the turtle and the bird only? Or are we talking about the beasts of the zodiac here? 
-View SameGoogleiqdbSauceNAO 1266795664642.jpg,  112KiB, 600x600 
- 
-GUNDAMU !0smG1gQz9c Sun 28 Feb 2010 07:11:44 No.4610834 Report 
- There's only one thing to do in this situation.
-
-GUN GUN LEON, GUN LEON! 
-Anonymous Sun 28 Feb 2010 07:12:44 No.4610836 Report 
- Quoted By: >>4610856 
->>4610866 
->>4610822
-This could be one of the other sets of Choukijin. There's a freaking BEE Choukijin in the manga 
-Zeta Zaku Sun 28 Feb 2010 07:12:44 No.4610846 Report 
->>4610831
-Four sets of four, I think. Shin Ryouohki was at least two levels above RyuKohOh. 
-Anonymous Sun 28 Feb 2010 07:13:44 No.4610850 Report 
->>4610831
->>4610822
-Don't forget that the Four Gods were the last survivors of the Chokijin, and legends sprung up about them. This is another universe, so the Tiger Lord and Dragon Lord may have died instead of these Serpent and Lion Lords.
-
-Perhaps the legends are different here...? 
-Shas'El Sun 28 Feb 2010 07:14:44 No.4610856 Report 
->>4610836
-Covered in BEEEEEEEEEEEEEES! 
-Anonymous Sun 28 Feb 2010 07:14:44 No.4610860 Report 
->>4610754
-AND DON'T FORGET TO TELL THEM THAT THEY'VE ALREADY GOTTEN A BLOODY SIGNAL OFF AND THEIR BUDDIES ARE RELATIVELY NEARBY 
-Anonymous Sun 28 Feb 2010 07:15:44 No.4610861 Report 
-http://srwog.velv.net/og_mecha/bunbun.html
-
-BEE CHOKIJIN!
-
-My god. 
-View SameGoogleiqdbSauceNAO Beeees.jpg,  43KiB, 222x229 
- 
-Sanger Zombolt! Sun 28 Feb 2010 07:16:44 No.4610866 Report 
->>4610836 
-Anonymous Sun 28 Feb 2010 07:16:44 No.4610867 Report 
- Quoted By: >>4610884 
- Weren't Gan Edens protectors also a breed of Chojokin? 
-Anonymous Sun 28 Feb 2010 07:17:44 No.4610876 Report 
- I REALLY hope we get the Bee Chokijin at some point. That would be AWESOME. 
-Anonymous Sun 28 Feb 2010 07:17:44 No.4610877 Report 
- Quoted By: >>4610891 
- I liked the chokijin better when RKO/KRO was the unique machine of it's kind 
-Anonymous Sun 28 Feb 2010 07:18:44 No.4610884 Report 
- Quoted By: >>4610893 
->>4610902 
->>4610867
-I don't think the Custos are Choukijin, no. 
-Anonymous Sun 28 Feb 2010 07:20:44 No.4610891 Report 
->>4610877
-Except they never were. RyuKoOh was always part of a larger series of mecha indirectly created by the Fury. 
-GUNDAMU !0smG1gQz9c Sun 28 Feb 2010 07:20:44 No.4610893 Report 
- Quoted By: >>4610897 
->>4610902 
->>4610920 
->>4610884
-Actually, wasn't it revealed at the end of Alpha 2 that the Choukijin were a creation of the Gun Eden, and that they were basically extremely powerful kinds of Custos?
-
-I seem to remember that from somewhere. 
-Anonymous Sun 28 Feb 2010 07:21:44 No.4610894 Report 
->>4610754
-Yes. Now is the time to be dere. 
-Anonymous Sun 28 Feb 2010 07:22:44 No.4610897 Report 
->>4610893
-No. They are part of the Garden of Baral, but not Custos, from what I understand. 
-Anonymous Sun 28 Feb 2010 07:23:44 No.4610902 Report 
->>4610884
->>4610893
-The Custos are creations of Gun Eden, just like the Chokijin. They're at least tangenically related. 
-Anonymous Sun 28 Feb 2010 07:23:44 No.4610903 Report 
->>4610754
-Yeah, this. And ask about the other mech that alerted the Einst or whatever. 
-Anonymous Sun 28 Feb 2010 07:26:44 No.4610920 Report 
- Quoted By: >>4610933 
->>4610942 
->>4610964 
->>4610893
-The Chokijin are under the authority of Ganeden, yes. Until RyuOhKi decided the Ganeden system wasn't doing it right and bailed. I don't think they have anything to do with the Fury, unless someone's making crap up. 
-
-So basically, we need to find a little blonde loli and find her now. With any luck she'll wipe Geneva off the map with her giant laser cannon and take care of Euzeth for us before we have to kill her. 
-Anonymous Sun 28 Feb 2010 07:28:44 No.4610933 Report 
- Quoted By: >>4610969 
->>4610920
->I don't think they have anything to do with the Fury, unless someone's making crap up. 
-Two points to consider...
-1) Isn't Ephes one of the Fury? Or at least extremely likely to be?
-2) Wasn't Ephes involved in the creation of the Ganeden Systems? 
-Anonymous Sun 28 Feb 2010 07:28:44 No.4610942 Report 
- Quoted By: >>4610958 
->>4610920
-I believe Ganedan is supposed to be related to the Fury in some way, so technically they're not 100% wrong.
-
-Also, can we get a Kreuz Wahrheit? 
-Zeta Zaku Sun 28 Feb 2010 07:30:44 No.4610958 Report 
- Quoted By: >>4610966 
->>4610942
-Assuming the Fury are the ancestor race, then yes. But there's not really anything to support that yet besides tangential evidence. 
-Anonymous Sun 28 Feb 2010 07:31:44 No.4610964 Report 
->>4610920
-That's assuming Irui is the avatar of Nashim Ganedan in this reality. 
-Anonymous Sun 28 Feb 2010 07:32:44 No.4610966 Report 
->>4610958
-Don't they claim to be the source of life in the universe or something in J?
-
-In any case, we'll know for sure once the patch is done.
-
-...
-
-HURRY THE HELL UP YOU FUCKS AND RELEASE IT DAMNIT! 
-Anonymous Sun 28 Feb 2010 07:32:44 No.4610969 Report 
- Quoted By: >>4611001 
->>4610933
-Are you saying Augustus was a Fury? That's incredibly tangential evidence. We don't know if that's going to be true in OG yet or not, so we can't say it is true for sure. It sure as hell isn't true in Alpha. 
-Anonymous Sun 28 Feb 2010 07:37:44 No.4611001 Report 
->>4610969
-If Augustus IS a Fury he must have changed his name somewhere, because that sure as hell isn't a Fury name. Then again, Fury have really bizzare names. 
-Anonymous Sun 28 Feb 2010 07:38:44 No.4611003 Report 
- Quoted By: >>4611009 
- KADASTA KOBUSHIWA BOGIDA! 
-Anonymous Sun 28 Feb 2010 07:38:44 No.4611009 Report 
- Quoted By: >>4611010 
->>4611003
-Huh? 
-Anonymous Sun 28 Feb 2010 07:39:44 No.4611010 Report 
- Quoted By: >>4611015 
->>4611017 
->>4611018 
->>4611009
-KURUGINAKI TAKAWA BOTAKAETA! 
-Anonymous Sun 28 Feb 2010 07:40:44 No.4611015 Report 
->>4611010
-Wha...? 
-Anonymous Sun 28 Feb 2010 07:40:44 No.4611017 Report 
->>4611010
-LET'S FIND DURATION! 
-Anonymous Sun 28 Feb 2010 07:40:44 No.4611018 Report 
- Quoted By: >>4611022 
->>4611010
->edges away slowly
-
-Yeah, whatever, man. 
-Anonymous Sun 28 Feb 2010 07:41:44 No.4611022 Report 
- Quoted By: >>4611028 
->>4611018
-NO ME PUEDES DEJAR TU HIJODEPUTAMALNACIDONKBDFHSDBKFDBSKFDJSBDFSHJDSFDS 
-Anonymous Sun 28 Feb 2010 07:42:44 No.4611028 Report 
->>4611022
-He's gonNA BLOOOOOW! 
-Anonymous Sun 28 Feb 2010 07:43:44 No.4611034 Report 
- Quoted By: >>4611046 
->>4611056 
- Anyways, less discussion of Ganedan and the Fury, more discussion of what to do.
-
-Also, scary thought, what if Vindel is one of The Edel Bernal's alternate selves? 
-Anonymous Sun 28 Feb 2010 07:45:44 No.4611046 Report 
->>4611034
-What if Vindel is SM! Masaki?
-
-You can't tell me you did not think this the first time you saw him and read the alternate-universe explanation. 
-Anonymous Sun 28 Feb 2010 07:46:44 No.4611049 Report 
- Someone please restore some small amount of sanity here, please? 
-Anonymous Sun 28 Feb 2010 07:47:44 No.4611056 Report 
- Quoted By: >>4611064 
->>4611072 
->>4611034
-Well, we're mainly waiting for Sciencegar right now.
-
-Our actions basically amount to
-1)Warning everyone about the First and Only and how BEOWULF IS COMING
-2)Combining with Dumi
-3)Hotlegging it over to the Snake and plasmaing it too 
-Anonymous Sun 28 Feb 2010 07:48:44 No.4611064 Report 
- Quoted By: >>4611076 
->>4611082 
->>4611056
-Don't forget finding and recovering the Zweigain.
-
-Also, who will combine with the Snake? 
-Anonymous Sun 28 Feb 2010 07:49:44 No.4611072 Report 
- Quoted By: >>4611089 
->>4611056
-They all sound allright to me. Anyone have any objections/anything valuable to add?
-
-And I wonder if the Choukijin might be able to free Duminuss from Dark Brain... Or if Irui could... 
-Anonymous Sun 28 Feb 2010 07:50:44 No.4611076 Report 
->>4611064
-Maybe we try to fuse it with Duminuss? If Duminuss accepts, that is. Otherwise, Latooni. 
-Anonymous Sun 28 Feb 2010 07:51:44 No.4611082 Report 
->>4611064
->Who should combine with the Snake?
-Granzon. 
-Sanger Zombolt! Sun 28 Feb 2010 07:52:44 No.4611089 Report 
- Quoted By: >>4611098 
->>4611108 
->>4611072
-Irui is nothing more than a planetary defense system in the shape of a goddess.
-
-Dark Brain is a being directly stitched with the fabric of reality.
-
-Gameplay mechanics out of the window, Dark Brain is probably the most powerful being in the OG-verse. 
-Anonymous Sun 28 Feb 2010 07:52:44 No.4611096 Report 
- I'm wondering what's up with the snake. Are there four different sacred animals over here or something? That's a really weird change. (Reminder: the four sacred animals are the tiger, dragon, turtle, and phoenix. No snakes.) 
-Sanger Zombolt! Sun 28 Feb 2010 07:52:44 No.4611098 Report 
- Quoted By: >>4611114 
->>4611089
-Meaning: Irui can't probably save Dumi. 
-Anonymous Sun 28 Feb 2010 07:53:44 No.4611108 Report 
- Quoted By: >>4611126 
->>4611089
-Irui is also the strongest psychodriver on earth, if I remember my @2 
-Anonymous Sun 28 Feb 2010 07:54:44 No.4611114 Report 
- Quoted By: >>4611161 
->>4611098
-I dunno, Dark Brain's control can't be as powerful as the full might of Ganedens defences...I mean DB himself could probably break it with a bit of work, but Dumi's just a servitor. 
-Sanger Zombolt! Sun 28 Feb 2010 07:56:44 No.4611126 Report 
->>4611108
-Sure, but that's not comparable to a being that destroys an entire universe in one of it's attacks. 
-Anonymous Sun 28 Feb 2010 08:00:44 No.4611161 Report 
->>4611114
-Yeah, since Dark Brain assumedly isn't directly controlling Duminuss (Dumi wouldn't care about our safety if Dark Brain was in charge, unless it turns out we're the Shadow Mirror universe's equivalent of Irui or something). Therefor, it should at least theoretically be possible to remove Dark Brain's control. 
-View SameGoogleiqdbSauceNAO krdk-cb-venosnaker.jpg,  36KiB, 330x200 
- 
-Sciencegar Sciencebolt Sun 28 Feb 2010 08:00:44 No.4611162 Report 
- Quoted By: >>4611177 
->>4611183 
->>4611239 
- "Dumi, get the Zweizergain. HEY EVERYONE!!! GET OUT OF HERE, THE EFA ARE COMING!!! THEY'LL BE SENDING THE CRY WOLVES AND BEOWULF!!!" You leap up and head towards the other trench, the source of the siesmic disturbance. Bartols start to blaze away at you, but not all of them: It seems the ODE system lacks coordination. You ignore the minor damage and charge up your Plasma Leaders and the Lightning Fall system. 
-
-Suddenly the thing bursts from the ground. It's bigger than you expected, easily a hundred meters long. For a second it looks more like a lizard than a snake, then the clawed legs fall away as green tentacles solidify into purple armor, and the thing lashes out.
-
-"THE THINGS YOU'RE DIGGING UP WORK FOR THE EFA!! GET THE FUCK OUT!"
-
-The thing looks like its trying to encircle you. 
-
-WHAT WILL KATINA DO? 
-Anonymous Sun 28 Feb 2010 08:00:44 No.4611169 Report 
- Quoted By: >>4611349 
- For reference on how Dumi sounds like.
-
-Skip to :54
-
-http://www.youtube.com/watch?v=fpOXDbGJg7g&feature=related
-
-Sounds like a girl or a little boy to me. 
-Anonymous Sun 28 Feb 2010 08:01:44 No.4611177 Report 
- Quoted By: >>4611206 
->>4611162
-FORM
-
-BLAZING
-
-SCARFSWORD 
-Sanger Zombolt! Sun 28 Feb 2010 08:01:44 No.4611183 Report 
- Quoted By: >>4611195 
->>4611206 
->>4611162
-Jump and drop kick it in the face.
-
-That's such a dumb attack. 
-Anonymous Sun 28 Feb 2010 08:02:44 No.4611188 Report 
- Quoted By: >>4611223 
- Hit the darn thing into the air and then zap it. It's probably grounding itself right now. Try not to destroy the Choukijin, just the Einst. We want the Choukijin. 
-Ratsel Feinschmecker !VFYL66iWMA Sun 28 Feb 2010 08:03:44 No.4611195 Report 
- Quoted By: >>4611214 
->>4611183
-
-..... I would think you would be more creative, my friend. 
-Anonymous Sun 28 Feb 2010 08:03:44 No.4611199 Report 
- Quoted By: >>4611208 
- Please tell me Rand's ok. 
-Anonymous Sun 28 Feb 2010 08:03:44 No.4611206 Report 
- Quoted By: >>4611211 
->>4611177
->>4611183
-This, except replace kicking with stabbity 
-Anonymous Sun 28 Feb 2010 08:04:44 No.4611208 Report 
->>4611199
-The Lion's got him. He should be fine. 
-Anonymous Sun 28 Feb 2010 08:04:44 No.4611211 Report 
- Quoted By: >>4611228 
->>4611206
-Whatever you like, just try to avoid killing the Choukijin part, just kill the Einst! 
-Sanger Zombolt! Sun 28 Feb 2010 08:05:44 No.4611214 Report 
- Quoted By: >>4611289 
->>4611195
-Sure, not creative, but it is much more practical. 
-Anonymous Sun 28 Feb 2010 08:05:44 No.4611223 Report 
->>4611188
-This. It seems our lightning can purify the Guardians... 
-Sanger Zombolt! Sun 28 Feb 2010 08:06:44 No.4611228 Report 
->>4611211
-This too. Don't damage the Choukijin. Just neutralize the Einst parts. 
-Anonymous Sun 28 Feb 2010 08:06:44 No.4611231 Report 
- Kill Einst and grab the Choukijin and Zweizergain
-AdviceDuminuss.jpg
-Get out of here! 
-Anonymous Sun 28 Feb 2010 08:07:44 No.4611236 Report 
- Quoted By: >>4611244 
- Punch, electrocute. It killed the ones on the tiger, at least. 
-NuBlackAnon !!z6ldXGL61Wm Sun 28 Feb 2010 08:07:44 No.4611239 Report 
- Quoted By: >>4611247 
->>4611162
-Tell Dumi to form a Projector
-
-Then slam a net of pure plasma foe.
-
-THEN pull out the pure Guardian
-Then slam the netdown, squishing it with electromagnetic power. 
-Anonymous Sun 28 Feb 2010 08:08:44 No.4611244 Report 
->>4611236
-Probably grounded, as I pointed out earlier. Get it off the ground, first 
-Anonymous Sun 28 Feb 2010 08:09:44 No.4611247 Report 
- Quoted By: >>4611252 
->>4611271 
->>4611285 
->>4611239
-Perhaps this would work, using the plasma to tear the Guardian out of the Einst itself... 
-NuBlackAnon !!z6ldXGL61Wm Sun 28 Feb 2010 08:10:44 No.4611252 Report 
->>4611247
-Chodenji Spinnnnnnn 
-Anonymous Sun 28 Feb 2010 08:11:44 No.4611257 Report 
- Quoted By: >>4611263 
->>4611349 
- Where the HELL is Shuu? Did he leave already? 
-Anonymous Sun 28 Feb 2010 08:12:44 No.4611263 Report 
->>4611257
-He is currently wooing Lefina. 
-Anonymous Sun 28 Feb 2010 08:13:44 No.4611271 Report 
->>4611247
-JEEG BREAKER! 
-Anonymous Sun 28 Feb 2010 08:16:44 No.4611285 Report 
->>4611247
-HELL! AND! HEAVEN! 
-Ratsel Feinschmecker !VFYL66iWMA Sun 28 Feb 2010 08:17:44 No.4611289 Report 
- Quoted By: >>4611306 
->>4611326 
->>4611214
-
-You pose a decent point..... 
-Anonymous Sun 28 Feb 2010 08:18:44 No.4611306 Report 
->>4611289
-As long as the job gets done, it doesn't matter. The question is, will it get the job done? 
-Anonymous Sun 28 Feb 2010 08:21:44 No.4611326 Report 
- Quoted By: >>4611334 
->>4611355 
->>4611289
-Besides, you are speaking to the guy who made glorified jumping and cutting opponents with an overhead swing an art form. 
-
-Sometimes, simplicity is better than complexity. Just look at Folka's ultimate attack. 
-Anonymous Sun 28 Feb 2010 08:22:44 No.4611334 Report 
->>4611326
-Speaking of Folka, I wonder if Dumi can emulate the Apotheosized Ialdabaoth 
-Sciencegar Sciencebolt Sun 28 Feb 2010 08:24:44 No.4611349 Report 
->>4611169
-
-That's Duminass-3, the one Dark Brain sent to OG-verse. It's not the same Duminuss as was sent to SM-verse. This Duminass sounds more like a man in his twenties, with a bit of otherworldly subwoofer.
-
->>4611257
-
-All this has taken maybe a minute, Shuu's barely had time to turn around. Also, surrounded by Bartols. 
-Shas'El Sun 28 Feb 2010 08:24:44 No.4611355 Report 
->>4611326
-That's kind of true. Sanger spends more time narrating exactly how he is going to cleave people and which attack he is going to use against said guys than actually cleaving them. 
-Anonymous Sun 28 Feb 2010 08:27:44 No.4611373 Report 
- Quoted By: >>4611381 
->>4611397 
- Damnit, Trust Juergen and his Bartolls to ruin EVERYTHING. EVERYTHING IS WORSE WITH SYSTEM ODE. FIRST THE SHIT OVA, THEN (almost) KILLING LAMIA, AND NOW THIS! 
-Anonymous Sun 28 Feb 2010 08:28:44 No.4611381 Report 
->>4611373
-SYSTEM ODE IS WHY WE CAN'T HAVE NICE THINGS! 
-View SameGoogleiqdbSauceNAO ZebraGirl-ze20040813b-turn.jpg,  33KiB, 183x263 
- 
-Sanger Zombolt! Sun 28 Feb 2010 08:30:44 No.4611397 Report 
- Quoted By: >>4611427 
->>4611373
-If he won't behave himself and switch sides, then we make him do it by force.
-
-We are not exactly opposed to making people help us against their will. 
-Anonymous Sun 28 Feb 2010 08:30:44 No.4611403 Report 
- Quoted By: >>4611411 
- Man, that's why I told you guys to virus it down back then. Give Jurgens a cold hard lesson as to the value of diversity. 
-Anonymous Sun 28 Feb 2010 08:31:44 No.4611411 Report 
->>4611403
-Eh, we'll give him a damn lesson now, assuming we can avoid being turned into swiss cheese 
-Anonymous Sun 28 Feb 2010 08:33:44 No.4611427 Report 
- Quoted By: >>4611442 
->>4611397
-This.
-
-We are not forced to use our years of experience in physical and psychological torture as comic relief and against little kids only. Let's, for once, use it on a major villain. 
-Anonymous Sun 28 Feb 2010 08:35:44 No.4611442 Report 
- Quoted By: >>4611482 
->>4611509 
->>4611427
-The Bartolls are all linked, right? And presumably, given what they run off, they can feel pain. So... We capture one on our way out, and then kill it. Slowly. Painfully. Possibly by filling its inside with water and then boiling it. 
-Anonymous Sun 28 Feb 2010 08:39:44 No.4611482 Report 
- Quoted By: >>4611493 
->>4611509 
->>4611523 
->>4611442
-That's... a little creepy... 
-Anonymous Sun 28 Feb 2010 08:40:44 No.4611493 Report 
- Quoted By: >>4611504 
->>4611482
-But necessary if we are to finally have something good come out of that damned ODE system. 
-Anonymous Sun 28 Feb 2010 08:42:44 No.4611504 Report 
- Quoted By: >>4611530 
->>4611493
-We can get some good out of it by kicking Jeurgen off the project. He's brilliant, yes, but also a fucking moron. 
-Sciencegar Sciencebolt Sun 28 Feb 2010 08:42:44 No.4611509 Report 
- Quoted By: >>4611549 
->>4611576 
->>4611442
->>4611482
-
-Also, if it did work, you'd be torturing everyone in the ODE system, not just Juergens. 
-Anonymous Sun 28 Feb 2010 08:43:44 No.4611523 Report 
->>4611482
-Well we ARE morally ambiguous anti-heroes 
-Anonymous Sun 28 Feb 2010 08:44:44 No.4611530 Report 
->>4611504
-But then we won't have the one guy who understands the full worth of the system. I say we keep him, but "tamed".
-
-Tamed as in physicaly and psychologicaly scarred for life. As in dead but we won't just let him go. As in he will be nothing but an empty shell of the once moronic man he was. 
-Anonymous Sun 28 Feb 2010 08:45:44 No.4611549 Report 
- Quoted By: >>4611573 
->>4611655 
->>4611509
-Necessary sacrifices etc etc etc. Those guys aren't even "humans" anymore. 
-Sanger Zombolt! Sun 28 Feb 2010 08:48:44 No.4611573 Report 
->>4611549
-Maybe they won't remember a thing of what we did to them when they get out of the system. 
-Anonymous Sun 28 Feb 2010 08:48:44 No.4611576 Report 
- Quoted By: >>4611605 
->>4611655 
->>4611509
-We only know that the ODE system is a hivemind.
-
-If we knew what was really inside it we'd probably just kill Jeurgen. Slowly. Painfully. 
-Anonymous Sun 28 Feb 2010 08:50:44 No.4611605 Report 
- Quoted By: >>4611628 
->>4611576
-Well, at any rate, let's see if we can overload it! 
-Anonymous Sun 28 Feb 2010 08:53:44 No.4611628 Report 
- Quoted By: >>4611672 
->>4611605
-AFTER we take care of the Snake. 
-Sciencegar Sciencebolt Sun 28 Feb 2010 08:54:44 No.4611655 Report 
- Quoted By: >>4611664 
->>4611670 
->>4611673 
->>4611684 
->>4611576
->>4611549
-
-You never actually asked what the ODE system was like, did you? The answers may surprise you. 
-Anonymous Sun 28 Feb 2010 08:55:44 No.4611664 Report 
->>4611655
-Naked humans captured by juergen? 
-Anonymous Sun 28 Feb 2010 08:56:44 No.4611670 Report 
->>4611655
-Ohkay.
-
-Mental note: Do that ASAP 
-Anonymous Sun 28 Feb 2010 08:56:44 No.4611672 Report 
->>4611628
-Well, naturally. Einst are more of a threat than the Bartolls. Or at least Katina would think so. Of course, in reality...
-
-Fucking Bartolls. 
-Shas'El Sun 28 Feb 2010 08:56:44 No.4611673 Report 
- Quoted By: >>4611680 
->>4611696 
->>4611655
-Lots of naked ladies with huge hips and boobs? 
-Anonymous Sun 28 Feb 2010 08:57:44 No.4611680 Report 
->>4611673
-We wish. 
-Anonymous Sun 28 Feb 2010 08:58:44 No.4611684 Report 
- Quoted By: >>4611696 
->>4611700 
->>4611655
-Yeah, aren't they just DC soldiers in this version? 
-Anonymous Sun 28 Feb 2010 08:59:44 No.4611693 Report 
- Take care of Snake, try to explain actions, check on Rand. 
-Anonymous Sun 28 Feb 2010 09:00:44 No.4611696 Report 
- Quoted By: >>4611736 
->>4611684
-See:
->>4611673
-
-It's obviously lots of naked ladies with huge hips and boobs. 
-Anonymous Sun 28 Feb 2010 09:00:44 No.4611700 Report 
->>4611684
-We'll find out. At any rate, it's the Snake we have to worry about. 
-Anonymous Sun 28 Feb 2010 09:04:44 No.4611736 Report 
- Quoted By: >>4611761 
->>4611696
-*facepalm* 
-Anonymous Sun 28 Feb 2010 09:07:44 No.4611761 Report 
->>4611736
-What? It's true. Zenka is probably part of those girls. 
-Sciencegar Sciencebolt Sun 28 Feb 2010 09:10:44 No.4611787 Report 
- Quoted By: >>4611816 
->>4611820 
->>4611843 
->>4611845 
->>4611897 
- "WITH LIGHTNING YE SHALL BE PURIFIED!!!" With a wrenching 360 backflip kick, you boot the snake upside the chin and thump it several meters into the air. Then you grab ahold of it and start pouring on power again.
-
-You realise its taking some time to burn through the things new armor a second too late. Its tail punches through the Raioh's back, and damage sensors in that area go nuts. You think you can smell rotten eggs in the cockpit. 
-
-At least the Bartols have stopped shooting at you. Though that may have to do with the second seismic disturbance you're detecting.
-
-IT WILL TAKE A FEW SECONDS FOR THE PLASMA LEADERS TO BURN INTO THE THINGS FLESHY INNARDS. YOU'RE FAIRLY SURE IT'LL TAKE IT A FEW SECONDS TO BURROW INTO YOUR FLESHY INNARDS. WHAT SHALL YOU DO? 
-Anonymous Sun 28 Feb 2010 09:13:44 No.4611816 Report 
->>4611787
-Is anyone around to pull the tail out of our back? 
-Anonymous Sun 28 Feb 2010 09:13:44 No.4611820 Report 
- Quoted By: >>4611851 
->>4611870 
->>4611787
-SEND OUT SECOND PLASMA LEADER TO A BARTOLL AND FRY IT!
-
-Remember...We can use negative emotions to fuel our Machine Cells! The Bartolls are a hivemind - If one of them suffers they all do! That should give us enough juice to
-
-HEN
-
-SHIN 
-Anonymous Sun 28 Feb 2010 09:14:44 No.4611833 Report 
- Uh... Fuck... We still need to work on the not getting hit part... Can we bodyslam the damn thing into a Bartol? Or the ground? 
-Anonymous Sun 28 Feb 2010 09:16:44 No.4611843 Report 
->>4611787
-Where are Shu, Kai, and Kar Wai when we need them?!
-
-Well since the puncture is in the back there's a decent chance we can't reach it any way so... Dive forward while using the Plasma leaders. If we're lucky it will wrench the tail free while still burning through the armor. 
-Sanger Zombolt! Sun 28 Feb 2010 09:16:44 No.4611845 Report 
- Quoted By: >>4611868 
->>4611905 
->>4611787
-Super choice: FRY THE THING BEFORE IT KILLS US! PLASMA LEADERS! FUUUUUULL POWER....HACHA!
-
-Real choice: boost-jump out of the damn thing's grip and then attempt to drop kick it in the fucking face with a lightning fall. 
-Anonymous Sun 28 Feb 2010 09:17:44 No.4611851 Report 
- Quoted By: >>4611870 
->>4611820
-This. Damnit, with all the confusion and anger (likely at us) floating around we should have energy to spare! 
-Anonymous Sun 28 Feb 2010 09:19:44 No.4611868 Report 
->>4611845
-I believe the Real choice makes mor sense now. I don't want to screw up and have our Raioh more damaged than it should, or risk having Katina killed. 
-Anonymous Sun 28 Feb 2010 09:19:44 No.4611870 Report 
- Quoted By: >>4611878 
->>4611893 
->>4611945 
->>4611820
->>4611851
-Does it even work that way? Can we hijack someone's emotion for our own use? 
-Anonymous Sun 28 Feb 2010 09:20:44 No.4611878 Report 
- Quoted By: >>4611893 
->>4611945 
->>4611870
-The machine cell can even do that? 
-Shas'El Sun 28 Feb 2010 09:21:44 No.4611882 Report 
- Let's free ourselves from that snake and attack it with some other attack. 
-Anonymous Sun 28 Feb 2010 09:23:44 No.4611893 Report 
- Quoted By: >>4611907 
->>4611870
->>4611878
-Well, we could always drag it over to us and suck the pain out from it... 
-Anonymous Sun 28 Feb 2010 09:23:44 No.4611897 Report 
->>4611787
-Let's show that bitch that you don't fuck around with a Kamen mech.
-
-RAIOH KIIIIIICK! 
-Sanger Zombolt! Sun 28 Feb 2010 09:24:44 No.4611905 Report 
->>4611845
-Whoops, btw I choose jumping and kicking. 
-Anonymous Sun 28 Feb 2010 09:24:44 No.4611907 Report 
->>4611893
-I don't think we have enough time to experiment at the moment. 
-Anonymous Sun 28 Feb 2010 09:26:44 No.4611922 Report 
- Quoted By: >>4611934 
->>4611953 
- We need to break the damn thing's armor! 
-Anonymous Sun 28 Feb 2010 09:26:44 No.4611929 Report 
- Activate the LIOH system. 
-Anonymous Sun 28 Feb 2010 09:26:44 No.4611930 Report 
- PULL AWAY.
-
-Get the tail out of the head, then fry it in a way that keeps it from killing us 
-Anonymous Sun 28 Feb 2010 09:27:44 No.4611934 Report 
->>4611922
-Perhaps if we punch or kick it hard enough, we can break through and then attack its vulnerable insides 
-Sciencegar Sciencebolt Sun 28 Feb 2010 09:28:44 No.4611945 Report 
- Quoted By: >>4611961 
->Where are Shu, Kai, and Kar Wai when we need them?!
-
-They're still going 'WTF??? Did Katina just electrocute that guy?'
-
-You only consulted Dumi on the Einstified Choukijins, no-one else. Thus everyone was equally taken by surprise.
-
-Also you're assuming they were all in their mechs and battle-ready. They were negotiating with the DC over the handover of the Bartols and ODE system, thats not a situations where you react quickly to your teammates beating up passersby and shouting incoherently.
-
->>4611870
->>4611878
-
-Dumi said it did, but you didn't ask him the details. You have no idea whether it'd just happen, or if you'd need to do a week-long ritual of blood-sacrifice and naked warpaint dancing. 
-Sanger Zombolt! Sun 28 Feb 2010 09:29:44 No.4611953 Report 
- Quoted By: >>4611963 
->>4611979 
->>4611922
-This gave me an interesting idea.
-
-http://www.youtube.com/watch?v=zpOlVv7Zwsk&feature=related
-
-3:20 onwards.
-
-See the final part of that attack where the enemy mech is broken in dozens of little pieces?
-
-Why not use a weakened version of the armour-piercing kick to break that armour and add some heat to burn up the Einst parts for good measure? 
-Anonymous Sun 28 Feb 2010 09:30:44 No.4611961 Report 
->>4611945
->Dumi said it did, but you didn't ask him the details.
-We could always do it now. After all, talking is a free action...
-
-Seriously, though, break off and retreat. Ask Dumi if he's told everyone whats going on yet! 
-Sanger Zombolt! Sun 28 Feb 2010 09:31:44 No.4611963 Report 
->>4611953
-That's after we get out of that grip, of course. 
-Anonymous Sun 28 Feb 2010 09:32:44 No.4611976 Report 
- If we have radio contact with our cohorts, make sure to tell them something along the lines of"SHU! KAI! WE HAVE EINST HERE! TELL THE DC PEOPLE WE'LL PROBABLY HAVE THE GODDAMNED ATX TEAM OR CRY WOLVES BEARING DOWN ON OUR ASSES IF WE DON'T HURRY" 
-Anonymous Sun 28 Feb 2010 09:32:44 No.4611979 Report 
->>4611953
-GRAB THE FUCKING THING BY IT'S TAIL, SEND IT FLYING AND THEN RISING KICK IT INTO OBLIVION!
-
-HOLY SHIT THAT'S BRILLIANT! 
-Anonymous Sun 28 Feb 2010 09:34:44 No.4611999 Report 
- Quoted By: >>4612031 
- What I hope happens...
-
-GUN GUN LEON GUN LEON
-*dadadah*
-GUN GUN LEON GUN LEON 
-View SameGoogleiqdbSauceNAO DON'T TALK SHIT ABOUT GETTER!.png,  45KiB, 881x620 
- 
-Anonymous Sun 28 Feb 2010 09:38:44 No.4612031 Report 
- Quoted By: >>4612038 
->>4612059 
->>4611999
-Sadly, it won't exactly be gunleon. It won't have the amazing power source that makes it the third most powerfull mech in mecha history. 
-Anonymous Sun 28 Feb 2010 09:39:44 No.4612038 Report 
->>4612031
-It'll still have a Chokijin perpetual energy reactor powering it. 
-Sanger Zombolt! Sun 28 Feb 2010 09:41:44 No.4612059 Report 
- Quoted By: >>4612071 
->>4612078 
->>4612079 
->>4612031
-Wait, what? Since when is Gunleon so powerfull?
-
-What makes it so? 
-Anonymous Sun 28 Feb 2010 09:43:44 No.4612071 Report 
- Quoted By: >>4612085 
->>4612059
-1) Its powered by the same thing as the SRX and Dis Astranagant (KEY/Orb or whatever, only about 12 or so in the entire multiverse, CompatiKaizer is one too)
-2) Rand is a hotblooded badass
-3) GUN GUN LEON GUN LEON (Theme song powerup) 
-View SameGoogleiqdbSauceNAO BEST FRIENDS FOREVER.jpg,  117KiB, 543x451 
- 
-Sanger Zombolt! Sun 28 Feb 2010 09:43:44 No.4612078 Report 
- Quoted By: >>4612082 
->>4612059
-Seriously, what? 
-Anonymous Sun 28 Feb 2010 09:43:44 No.4612079 Report 
- Quoted By: >>4612088 
->>4612100 
->>4612059
-Yeah. Sorry, what? For that matter, likewise with a bunch of those. That list is ENTIRELY out of wack. I know that Gaiking is powerful, for instance. It's not THAT powerful 
-Anonymous Sun 28 Feb 2010 09:44:44 No.4612082 Report 
- Quoted By: >>4612088 
->>4612078
-It's a joke list. Old as hell. 
-Sanger Zombolt! Sun 28 Feb 2010 09:45:44 No.4612085 Report 
- Quoted By: >>4612089 
->>4612071
-Then why aren't those guys just clumped together if they have the same power source?
-
-Just look at Fighter Roa and how far down the list he is compared to the other 3. 
-Sanger Zombolt! Sun 28 Feb 2010 09:45:44 No.4612088 Report 
->>4612079
->>4612082
-Oh. OK. 
-Anonymous Sun 28 Feb 2010 09:45:44 No.4612089 Report 
- Quoted By: >>4612121 
->>4612085
-CompatiKaiser's broken, remember? 
-Anonymous Sun 28 Feb 2010 09:47:44 No.4612100 Report 
- Quoted By: >>4612147 
->>4612079
-Also look how low on the list Mazinkaiser is! Goddamn, its even below GUNDAMS 
-Sanger Zombolt! Sun 28 Feb 2010 09:49:44 No.4612121 Report 
->>4612089
-The only thing I understood about Gaiden's plot was:
-
-何を読むのですか？ 
-Anonymous Sun 28 Feb 2010 09:53:44 No.4612147 Report 
- Quoted By: >>4612160 
->>4612180 
->>4612100
-Well, Turn A IS horrifically broken, if you read into its background. It can regenerate itself and its pilot. It can teleport its shots into cockpits. At full power the Moonlight Butterfly can extend as far as Jupiter. Oh, and it runs off of a black hole 
-Anonymous Sun 28 Feb 2010 09:54:44 No.4612160 Report 
->>4612147
-ITS BENEATH THE FREAKING ZETA AND ORIGINAL GUNDAMS! 
-Sanger Zombolt! Sun 28 Feb 2010 09:58:44 No.4612180 Report 
- Quoted By: >>4612186 
->>4612205 
->>4612147
-If they can run off that thing on a black-hole while also having those broken attacks and abilities, then we have no excuse for not having a mech like that.
-
-NEW QUEST: make a Huckebein that has all the abilities the Turn A has.
-
-The teleporting shots into cockpits can be done with the Granzon's Worm Hole attack and the butterfly + the restorative abilities with the machine cells. 
-Anonymous Sun 28 Feb 2010 09:59:44 No.4612186 Report 
- Quoted By: >>4612198 
->>4612205 
->>4612180
-GO! TURN A HUCKEBEIN! 
-Anonymous Sun 28 Feb 2010 10:00:44 No.4612198 Report 
->>4612186
-WE WILL MAKE RING MAO INTO A GODDESS OF WAR! 
-Anonymous Sun 28 Feb 2010 10:00:44 No.4612199 Report 
- Quoted By: >>4612241 
- Want we want:
-Grungust NEO
-HENSHIN'D RaiOh
-GUN-Oh
-Sword Funnel Vysaga
-Valkyrlions
-Turn A Huckebein 
-Anonymous Sun 28 Feb 2010 10:01:44 No.4612205 Report 
- Quoted By: >>4612211 
->>4612221 
->>4612180
->>4612186
-
-Once the Turn A Huckebien is Mass Produced! 
-Anonymous Sun 28 Feb 2010 10:01:44 No.4612211 Report 
- Quoted By: >>4612224 
->>4612205
-The First And Only WILL BE FINISHED! 
-Anonymous Sun 28 Feb 2010 10:03:44 No.4612221 Report 
->>4612205
-Mass Produce Turn A Huckebein
-AdviceKatina.jpg
-Start Eternal War Vs. Einst 
-Sanger Zombolt! Sun 28 Feb 2010 10:03:44 No.4612224 Report 
- Quoted By: >>4612253 
->>4612274 
->>4612211
-HELL YEAH I DON'T KNOW HOW WE ARE GOIGN TO MAKE ALL THESE MECHS BUT DAMN WE WILL MAKE THEM 
-Anonymous Sun 28 Feb 2010 10:05:44 No.4612241 Report 
- Quoted By: >>4612282 
->>4612199
-Seeing thse mechs are all but impossible to plaussibly create on our own, I say it would be nice of Sciencegar to explain all of these through elsewheres.
-
-Surely, Katina can't be the only one that thinks of interesting mech designs? 
-Anonymous Sun 28 Feb 2010 10:06:44 No.4612245 Report 
- Quoted By: >>4612275 
- On the subject of the Turn A: The general ruling is that it takes weapons among the size of at least Chouginga Gurren-Lagann (see, the size of a moon by itself) if not Tengen Toppa Gurren Lagann (galaxies in the universe aren't as big as it) to bring it down, and that's through sheer unholy size. At some point something gets big enough to just accordion it. Even then it's able to regenerate completely. It ranks up with the Rah Xephon and the Ideon in strength. Both of which can destroy/recreate UNIVERSES. Therefore, most Gundam vs Gundam arguments end up solved with "Turn A kills them both." All other Gundams are basically competing for second place. 
-Anonymous Sun 28 Feb 2010 10:07:44 No.4612253 Report 
->>4612224
-Just have Dumi transform into one or the other depending on the situation. 
-Anonymous Sun 28 Feb 2010 10:11:44 No.4612274 Report 
- Quoted By: >>4612284 
->>4612224
-Steal Zehirut cystal
-AdviceKatina.jpg
-Mass Produce Everything 
-Anonymous Sun 28 Feb 2010 10:11:44 No.4612275 Report 
->>4612245
-So why is Gaiking all the way up there? 
-Anonymous Sun 28 Feb 2010 10:11:44 No.4612280 Report 
- Quoted By: >>4612290 
- And we are Autosaging 
-Sanger Zombolt! Sun 28 Feb 2010 10:11:44 No.4612282 Report 
- Quoted By: >>4612306 
->>4612241
-This is a great idea. 
-
-Have Ring make plans for the Turn A after seeing Katina's Raioh or something.
-
-Have Jonathan keep working on the Neo Grungust.
-
-Have Bullet try to find ways to upgrade the Vysaga after seeing that he needs something more to prevail in the battlefield after seeing that previous battles took their toll on him.
-
-Have Ibis come out with the idea of a mech so full of guns that it basicaly has the same firepower as a fortress. 
-Anonymous Sun 28 Feb 2010 10:12:44 No.4612284 Report 
->>4612274
-I like this plan. Though it's more like
-
-Kill Euzeth
-AdviceKatina.jpg
-Take Zehirut Crystal and Cross Gate System if present. 
-Anonymous Sun 28 Feb 2010 10:12:44 No.4612290 Report 
- Quoted By: >>4612302 
->>4612306 
->>4612280
-Already? Wow.
-
-A lot of this is made up by discussion, huh... 
-Sanger Zombolt! Sun 28 Feb 2010 10:15:44 No.4612302 Report 
->>4612290
-Much better. It's because of disscusion that we come up with crazy ideas. 
-Anonymous Sun 28 Feb 2010 10:16:44 No.4612306 Report 
- Quoted By: >>4612319 
->>4612321 
->>4612282
-Ibis gets something like the Dendrobium Orchis, then?
-
->>4612290
-
-At least it's not trolls.
-
-Though I wonder how much Haken will freak out when he finds we've gone through 2 thread today? 
-Sanger Zombolt! Sun 28 Feb 2010 10:17:44 No.4612319 Report 
->>4612306
-Is the Gun-Oh like the Orchis? 
-Anonymous Sun 28 Feb 2010 10:17:44 No.4612321 Report 
- Quoted By: >>4612356 
->>4612306
->At least it's not trolls.
-Oh, I'm not complaining, its quite awesome.
-
-I wonder if we can burn through a third before Haken comes back... 
-Anonymous Sun 28 Feb 2010 10:26:44 No.4612356 Report 
->>4612321
-
-Doubt it, unless Sciencgar comes back soon. 
-Anonymous Sun 28 Feb 2010 10:41:44 No.4612432 Report 
- Quoted By: >>4612437 
->>4612481 
- THE CHECKLIST
-O Achieve Final Form Raido - RaiOh!
-O Build Grungust Neo, GUN-Oh
-O Upgrade Vysaga, Huckebein (Into Turn A)
-O OPERATION STREAKER
-O Destroy Euzeth's Interdimensional Jackass Network of Evil
-O Rape Latooni and/or Arado
-O Get Arado into a dress
-O Become HERO OF JUSTICE
-
-Anything missing? 
-Anonymous Sun 28 Feb 2010 10:42:44 No.4612437 Report 
->>4612432
-O Free Dumi from Dark Brain 
-Anonymous Sun 28 Feb 2010 10:49:44 No.4612481 Report 
- Quoted By: >>4612503 
->>4612637 
->>4612432
 THE CHECKLIST (A list of our long term goals)
 O Achieve Final Form Raido - RaiOh!
-O Build Grungust Neo 
+O Build Grungust Neo
 O Build GUN-Oh
 O Build Linked Valkyrlion Squadron for Lat
-O Upgrade Vysaga 
-O Huckebein (Into Turn A)
+O Build Turn A Huckebein
+O Upgrade Vysaga
 O OPERATION STREAKER
 O Destroy Euzeth's Interdimensional Jackass Network of Evil
 O Free Dumi from Dark Brains control
 O Meet Irui Gan Eden
 O Cause civil war in the EFA
 O Get autographs of as many badasses as possible
-O Rape Latooni and/or Arado
+O Rape Latooni
+O Rape Arado
 O Rape/Finish interrogating Shine
 O Get Arado into a dress
-O Become HERO OF JUSTICE 
-Anonymous Sun 28 Feb 2010 10:54:44 No.4612503 Report 
->>4612481
-I'm Anonymous and I approve this message. 
-Sanger Zombolt! Sun 28 Feb 2010 11:18:44 No.4612637 Report 
- Quoted By: >>4612662 
->>4612481
-Why do I have this feeling that we are trying to become HEROES OF JUSTICE without actually knowing what justice is? 
-Couch Sun 28 Feb 2010 11:19:44 No.4612643 Report 
->>4609838
-*arrives late* Wait, what HCGs? 
-Anonymous Sun 28 Feb 2010 11:22:44 No.4612662 Report 
->>4612637
-Honestly, how many HEROES OF JUSTICE know what justice is? 
+O Become HERO OF JUSTICE
+Sciencegar Sciencebolt Sun 28 Feb 2010 18:15:09 No.4614125 Report
+Quoted By: >>4614153 >>4614178 >>4614183 >>4614211 >>4614230
+Adrenaline pumps into your system as you scream your fury at the Snake "FUCK YOU!! IF YOU WON't FRY, YOU'LL BUUUUURRRNN!!!" You swing the whole mech around several times and toss it into the air. The tail wrenchs out of the back of the Raioh, squirting some kind of liquid. The Raioh glows red and leaps into the air, its legs aflame.
 
-Subject 
-Name 
-E-mail 
-Password 
- 
- 
-FoolFuuka Imageboard 2.0.0-dev-0 - Asagi Fetcher  Change Theme   
- Change Language   
+"RISING METEOR!!!"
+
+You kick the snake, hard. Chunks of purple armor and green psuedoflesh fly everywhere. Then you turn on a dime, and kick it again. And again. And again.
+
+The flaming ruin crashes down into the side one of the bulk transports meant to transport the Bartols, leaving a massive dent. Its still trashing about however, and the green pesudopods are emerging from the wounds, waving about in some pattern you don't quite recognise.
+
+Well this has gone well. You turn and see Dumi, suspending the Zweizergain from some kind of energy beam, and surrounded by ELF forces. A dozen Soldifars, a Vairose and a Simurgh Splendid are all aiming their weapons right at him.
+
+WHAT WILL OUR HEROINE DO?
+Anonymous Sun 28 Feb 2010 18:23:09 No.4614153 Report
+>>4614125
+...Ffffuck.
+
+Use the Zweizergains teleport systems to gtfo? Or pump it up with juice to attract the OGnumbers?
+Anonymous Sun 28 Feb 2010 18:26:09 No.4614160 Report
+Have sex with Zweizergain.
+Sanger Zombolt! Sun 28 Feb 2010 18:31:09 No.4614178 Report
+>>4614125
+Is he in transport mode?
+Anonymous Sun 28 Feb 2010 18:32:09 No.4614183 Report
+Quoted By: >>4614211
+>>4614125
+Only one thing we can do.
+
+"Dumi! Its time we do THAT!"
+
+...That?
+
+"Yes! GATTAI!"
+NuBlackAnon !!z6ldXGL61Wm Sun 28 Feb 2010 18:37:09 No.4614211 Report
+>>4614125
+Can we use HELL AND HEAVEN?
+if not
+>>4614183
+MEGA FUSION
+Stealthyboy !fchRKomfls Sun 28 Feb 2010 18:41:09 No.4614230 Report
+Quoted By: >>4614235
+>>4614125
+Can we open a channel to the ELFs? Maybe try to stop them getting in our way like this?
+Anonymous Sun 28 Feb 2010 18:41:09 No.4614235 Report
+Quoted By: >>4614240
+>>4614230
+I think now they're angry because we stole Zwei back.
+Stealthyboy !fchRKomfls Sun 28 Feb 2010 18:42:09 No.4614240 Report
+Quoted By: >>4614245
+>>4614235
+Why did we decide to take the Zwei back in the first place anyway?
+Anonymous Sun 28 Feb 2010 18:43:09 No.4614245 Report
+>>4614240
+1) Because it was there
+2) Because we are planning to GTFO like RIGHT FUCKING NOW
+3) So our comrades know somethings up with the ELF
+Anonymous Sun 28 Feb 2010 18:47:09 No.4614267 Report
+GATTAI!
+
+Then call them out on hiding the Zweizergain from us...and tell them to count up their sins.
+
+And run the fuck away with our comrades at the first oppourtunity. Don't want to get caught up in the Beowulf Beatdown.
+Anonymous Sun 28 Feb 2010 19:05:09 No.4614358 Report
+Quoted By: >>4614425
+"Dumi, set the Zweizergain to teleport somewhere. Anywhere. We'll collect it later. We have bigger problems right now!"
+Anonymous Sun 28 Feb 2010 19:19:09 No.4614425 Report
+Quoted By: >>4614440
+>>4614358
+Specify somewhere safe, first. But I don't think we want it sitting around here in the event that Beowulf shows up...
+Anonymous Sun 28 Feb 2010 19:23:09 No.4614440 Report
+Quoted By: >>4614453 >>4614461
+>>4614425
+Send it to wherever Axel is.
+Anonymous Sun 28 Feb 2010 19:27:09 No.4614453 Report
+Quoted By: >>4614459
+>>4614440
+I wouldn't consider Axel to be "Safe", given he's being a dick. Then again...
+Anonymous Sun 28 Feb 2010 19:28:09 No.4614459 Report
+Quoted By: >>4614463
+>>4614453
+Depends on which Axel we're talking about here.
+Stealthyboy !fchRKomfls Sun 28 Feb 2010 19:29:09 No.4614461 Report
+Quoted By: >>4614483 >>4614493
+>>4614440
+This sounds like a bad plan if we want to break off and form our own faction
+Anonymous Sun 28 Feb 2010 19:29:09 No.4614463 Report
+>>4614459
+Given we only know the one in the current timeline... Unless you're suggesting we send it to endless frontier...
+Haken Browning !zHe7DH816A Sun 28 Feb 2010 19:32:09 No.4614472 Report
+Quoted By: >>4614481
+Just now realized that we were on the 30th.
+
+Anyhoo, Couch was asking really late about HCGs of Irui with tentacles (per theory in E29 that she created this world's Einst or something), so here:
+
+http://g.e-hentai.org/s/53482f24e6368a1c87a2f130c6fdb81fd83c7a36-270485-1600-1200-jpg/138440-10
+
+...Forgot there was apparently only the one pic. So far.
+Haken Browning !zHe7DH816A Sun 28 Feb 2010 19:35:09 No.4614481 Report
+>>4614472
+...Well, OK, there's a couple involving Loli!Irui too, but then, y'know, Loli!Irui.
+
+Meanwhile, only safe place I can think of for the Zweizergain is with us. Thus, backing the GATTAI plan.
+Anonymous Sun 28 Feb 2010 19:36:09 No.4614483 Report
+Quoted By: >>4614489 >>4614490 >>4614495
+>>4614461
+Yeah.
+
+The safest place to send it... Hmm, how about the Earth Cradle, a day or two into the future?
+Stealthyboy !fchRKomfls Sun 28 Feb 2010 19:36:09 No.4614489 Report
+Quoted By: >>4614495
+>>4614483
+You mean the place that's crawling with EFA goons?
+Anonymous Sun 28 Feb 2010 19:36:09 No.4614490 Report
+Quoted By: >>4614495
+>>4614483
+I'd forgotten we could send it to the future...Lets do this.
+Anonymous Sun 28 Feb 2010 19:37:09 No.4614493 Report
+Quoted By: >>4614503 >>4614520 >>4614552
+>>4614461
+There's not much point just forming a faction for its own sake when the Shadow Mirrors clearly need us enough to overlook our insane tactical decisions and constant workplace harassment.
+Anonymous Sun 28 Feb 2010 19:37:09 No.4614495 Report
+>>4614483
+>>4614489
+>>4614490
+How about we send it to a specific point in orbit in about a weeks time. That way we'll have plenty of time to prepare and nobody can touch it.
+Anonymous Sun 28 Feb 2010 19:38:09 No.4614497 Report
+Scream that Beowulf is coming and we're all going to die cause the mechanoids are infested with the same freaky tentacle things he is.
+Anonymous Sun 28 Feb 2010 19:39:09 No.4614503 Report
+Quoted By: >>4614504 >>4614566
+>>4614493
+They may need us. But I don't feel like following orders from Axel. Nor from Vindel, should he arrive. Besides, all Axel cares about is Lemon.
+Stealthyboy !fchRKomfls Sun 28 Feb 2010 19:40:09 No.4614504 Report
+Quoted By: >>4614522
+>>4614503
+Exactly.
+Anonymous Sun 28 Feb 2010 19:43:09 No.4614520 Report
+>>4614493
+I don't think they need us so much as they would rather not piss off a psychotic woman in a dress and regenerating mech by kicking her off the team.
+Anonymous Sun 28 Feb 2010 19:44:09 No.4614522 Report
+>>4614504
+Also, I would assume that Latooni was encouraging us to do this.
+Anonymous Sun 28 Feb 2010 19:51:09 No.4614552 Report
+>>4614493
+And of course when they stop needing us, they'll backstab us. We don't want that to happen.
+Zeta Zaku Sun 28 Feb 2010 19:55:09 No.4614566 Report
+Quoted By: >>4614575 >>4614576 >>4614581
+>>4614503
+Axel seems to want to just get the band back together. He hit it off pretty well with Kai and probably shares his goals now.
+Anonymous Sun 28 Feb 2010 19:56:09 No.4614575 Report
+>>4614566
+I suppose...
+
+If we can get him to stop being a jackass.
+Anonymous Sun 28 Feb 2010 19:56:09 No.4614576 Report
+Quoted By: >>4614583 >>4614598
+>>4614566
+Yeah, I think all Axel cares about is fighting and BEOWULF! He's a pretty cool guy, we just haven't rpoven ourselves to him yet.
+
+And if we give him the Zwei, we'll have done just that.
+Stealthyboy !fchRKomfls Sun 28 Feb 2010 19:57:09 No.4614581 Report
+Quoted By: >>4614595
+>>4614566
+I'm still hoping we "accidentaly" give him amnesia causing brain damage sometime, turning him into hero route "Silly Axel".
+Anonymous Sun 28 Feb 2010 19:58:09 No.4614583 Report
+Quoted By: >>4614593
+>>4614576
+Okay. Fine. Send him the Zweizergain. Of course, that leaves the question of what to do with it...
+Anonymous Sun 28 Feb 2010 19:59:09 No.4614593 Report
+>>4614583
+We can work that out later, right now we need to get our asses out of here!
+Stealthyboy !fchRKomfls Sun 28 Feb 2010 20:00:09 No.4614595 Report
+Quoted By: >>4614600
+>>4614581
+And then play matchmaker with him and Lamia.
+It'd be hilarious.
+Zeta Zaku Sun 28 Feb 2010 20:00:09 No.4614598 Report
+>>4614576
+Yeah. He may not act much like it, but he's still a Major, and I'd wager he's still smart enough to know he has to really step up and take charge now. Either way, we're still far too violent and unreliable to be considered a valued member of the team like Irm or Bullet, Raioh or not.
+
+Bringing Zwei back to him is probably our best option. For now, set it to warp to whatever safe location we can think of.
+Anonymous Sun 28 Feb 2010 20:00:09 No.4614600 Report
+Quoted By: >>4614627
+>>4614595
+Especially if he manages to get his memories back...
+Anonymous Sun 28 Feb 2010 20:02:09 No.4614612 Report
+Quoted By: >>4614617
+Agreed send the Zwie to Axel or to a safe place.
+Anonymous Sun 28 Feb 2010 20:02:09 No.4614617 Report
+Quoted By: >>4614645
+>>4614612
+Make sure he knows it was from us!
+Stealthyboy !fchRKomfls Sun 28 Feb 2010 20:05:09 No.4614627 Report
+Quoted By: >>4614655 >>4614656
+>>4614600
+Exactly.
+Maybe it'd also stop him from being quite as much of a prick, open his eyes a bit.
+Anonymous Sun 28 Feb 2010 20:06:09 No.4614645 Report
+>>4614617
+That too, we need to either go with it or to leave a message with it.
+Anonymous Sun 28 Feb 2010 20:07:09 No.4614655 Report
+>>4614627
+Sounds like a plan. So, we kick him in the head next time he insults Lamia, or is an ass in general?
+Anonymous Sun 28 Feb 2010 20:07:09 No.4614656 Report
+Quoted By: >>4614696
+>>4614627
+At the very least he'd have and epic freakout, and when that happens we'll be right there with him. With our trollface on.
+Anonymous Sun 28 Feb 2010 20:10:23 No.4614673 Report
+>>4614061
+Remove the illegal clone subdomain and all of its files from your server, moot. Immediately stop spamming and cloning www. änÒNｔａIＫ .com.
+Anonymous Sun 28 Feb 2010 20:14:09 No.4614695 Report
+Quoted By: >>4614718 >>4614825
+Shut up people, Axel still has his memories. Also playing matchmaker with him and Lamia is forbidden.
+
+Because Lamia is part of our harem.
+Anonymous Sun 28 Feb 2010 20:14:09 No.4614696 Report
+Quoted By: >>4614711
+>>4614656
+So we send it to Axel and time our arrival to precede it by a couple of minutes?
+Anonymous Sun 28 Feb 2010 20:16:09 No.4614711 Report
+Quoted By: >>4614719
+>>4614696
+No, lets just send it to just after we left.
+
+TIME PARADOX
+Anonymous Sun 28 Feb 2010 20:16:09 No.4614718 Report
+Quoted By: >>4614722 >>4614825
+>>4614695
+Ahoseru can be part of our harem too~
+Anonymous Sun 28 Feb 2010 20:16:09 No.4614719 Report
+Quoted By: >>4614733
+>>4614711
+And give Axel a message that this is going to happen.
+
+SUDDENLY, REINFORCEMENTS
+Stealthyboy !fchRKomfls Sun 28 Feb 2010 20:17:09 No.4614722 Report
+Quoted By: >>4614825
+>>4614718
+I like the way you think...
+Anonymous Sun 28 Feb 2010 20:18:09 No.4614733 Report
+>>4614719
+Oh god, this.
+
+JUST AS PLANNED INCOMING!
+View SameGoogleiqdbSauceNAO SRWQ Road Map vOH DEAR GOD v2and (...).png, 160KiB, 2050x1294
+Haken Browning !zHe7DH816A Sun 28 Feb 2010 20:35:09 No.4614825 Report
+Quoted By: >>4614857 >>4615001
+>>4614695
+>>4614718
+>>4614722
+The hallmark of any effective harem is for its members to be grateful for the autonomy afforded them by its master. Do it right and nobody will even recognize there's a harem until you spring the booty call.
+
+...So will this require updating AGAIN or what? Now that there's possible Ganeden involvement, we may need to split this into multidimensional clusters.
+Anonymous Sun 28 Feb 2010 20:41:09 No.4614857 Report
+Quoted By: >>4614866
+>>4614825
+I think we may want to construct several different charts. Possibly make use of color coding.
+Stealthyboy !fchRKomfls Sun 28 Feb 2010 20:42:09 No.4614866 Report
+Quoted By: >>4614897
+>>4614857
+Well, if you want it legible, yeah.
+
+Someone competent should try to make one that isn't a clusterfuck.
+
+Not me though, I find it too funny.
+Anonymous Sun 28 Feb 2010 20:50:09 No.4614897 Report
+>>4614866
+Eh, whatever
+Haken Browning !zHe7DH816A Sun 28 Feb 2010 20:53:09 No.4614911 Report
+Quoted By: >>4614918
+New blog post is up: http://teamphantomtiger.blogspot.com/2010/02/srw-quest-thread-archive-mark-ii.html
+
+Threads from 31 onward will go here.
+Anonymous Sun 28 Feb 2010 20:55:09 No.4614918 Report
+Quoted By: >>4614966
+>>4614911
+Awesome.
+
+Now we just need to wait for Sciencegar to stop doing science for a second and post.
+Anonymous Sun 28 Feb 2010 21:12:09 No.4614966 Report
+>>4614918
+I think you mean doing SCIENCE!
+View SameGoogleiqdbSauceNAO 126738176446.jpg, 247KiB, 1024x722
+Anonymous Sun 28 Feb 2010 21:19:09 No.4614987 Report
+View SameGoogleiqdbSauceNAO 126738184998.jpg, 131KiB, 1024x722
+Anonymous Sun 28 Feb 2010 21:20:09 No.4614992 Report
+View SameGoogleiqdbSauceNAO SMverse conspiracy chart.png, 168KiB, 2050x1294
+Stealthyboy !fchRKomfls Sun 28 Feb 2010 21:22:09 No.4615001 Report
+Quoted By: >>4615003
+>>4614825
+Anything else needed badly on the chart?
+Apart from the OGsiders, obviously.
+Anonymous Sun 28 Feb 2010 21:23:09 No.4615003 Report
+Quoted By: >>4615014
+>>4615001
+Link between Einst and Choukijin.
+Stealthyboy !fchRKomfls Sun 28 Feb 2010 21:26:09 No.4615014 Report
+Quoted By: >>4615016
+>>4615003
+It's there, it's the arrow that says corrupted.
+
+THE WEB OF LIES IS NOW SO LARGE ITS AS INDECIPHERABLE AS THE CONPIRACIES THEMSELVES.
+Anonymous Sun 28 Feb 2010 21:27:09 No.4615016 Report
+Quoted By: >>4615023 >>4615028
+>>4615014
+Goddamn, we really need to take a boot to that web, clean it up a little.
+Anonymous Sun 28 Feb 2010 21:29:09 No.4615023 Report
+Quoted By: >>4615031
+>>4615016
+Yes. I think we need someone to organize it. I don't know who, though...
+Zeta Zaku Sun 28 Feb 2010 21:30:09 No.4615028 Report
+>>4615016
+I dunno, I think this is a pretty accurate view of how Katina views the world at large. With out, y'know, the extraneous notes on how great a lay every given person would be.
+Anonymous Sun 28 Feb 2010 21:31:09 No.4615031 Report
+Quoted By: >>4615039
+>>4615023
+Either the DC or the EFA, both seem to be clusterfuck centers. Taking out either one should clean up nicely.
+
+But we're already going for the EFA, although we've probably pissed off the ELF too. We should take them out as well, the assholes. They had Vindel all along, after all.
+Stealthyboy !fchRKomfls Sun 28 Feb 2010 21:33:09 No.4615039 Report
+Quoted By: >>4615045
+>>4615031
+>implying we give a shit about Vindel
+
+Yes I'm still gunning for Katina Faction, shush
+Anonymous Sun 28 Feb 2010 21:35:09 No.4615045 Report
+Quoted By: >>4615054
+>>4615039
+Yeah, but Vindel is the man everyones looking for.
+
+ALL THAT HAS HAPPENED IS THEIR FAULT
+Anonymous Sun 28 Feb 2010 21:37:09 No.4615054 Report
+Quoted By: >>4615060
+>>4615045
+Except that Vindel seems to have been scheming something with them. So screw him
+Anonymous Sun 28 Feb 2010 21:40:09 No.4615060 Report
+Quoted By: >>4615067
+>>4615054
+Well I think we just fucked up his plans by sending Axel the Zweizergain...
+Stealthyboy !fchRKomfls Sun 28 Feb 2010 21:41:09 No.4615067 Report
+Quoted By: >>4615076
+>>4615060
+We haven't actually sent it yet.
+Anonymous Sun 28 Feb 2010 21:43:09 No.4615076 Report
+>>4615067
+Yes, because Sciencegar hasn't updated yet.
+Sciencegar Sciencebolt Sun 28 Feb 2010 21:48:09 No.4615090 Report
+Quoted By: >>4615093 >>4615116 >>4615121 >>4615127
+"Dumi! Teleport the Zweizergain away! Send it back to Axel!"
+
+I'd need to drop my shields to do that! Could you maybe give me a few seconds distraction?
+
+You hurredly switch comm channels to ELF frequencies. "Hey, you guys, what do you think you're doing!?! We need to get out of here, like now, no time to fight each other!"
+
+A direct comm comes from the Simurgh, and a young womans face appears in the window. "Yes, it might seem so, but it'd be typical of you Shadow Mirrors to try to turn this chaos to their advantage. You haven't been here twenty minutes, and you've managed to turn this whole enterprise into a debacle just to get your leader back! I don't know how you sabotaged the mechanoids, but if you think you're going to simply walk away from this with everything you want, you're mistaken girl!"
+
+RESPONSE FROM KATINA?
+Anonymous Sun 28 Feb 2010 21:50:09 No.4615093 Report
+Quoted By: >>4615162
+>>4615090
+"We wouldn't be screwing around with this if we didn't have reason to believe that the things you were excavating just alerted the goddamned ATX team, you morons!"
+Anonymous Sun 28 Feb 2010 21:54:09 No.4615116 Report
+Quoted By: >>4615162
+>>4615090
+The things you're excavating are infested by the same stuff as the Beowulves and the Cry Wolves! They're incredibly dangerous and if we don't kill them and unites RIGHT NOW, we're going to be fighting the fucking Beowulves in a few minutes!
+View SameGoogleiqdbSauceNAO simurghs.png, 56KiB, 215x215
+Stealthyboy !fchRKomfls Sun 28 Feb 2010 21:55:09 No.4615121 Report
+>>4615090
+Tell her that we don't give a shit about Vindel.
+Also that there are goddamn tentacles! Tentacles! With the raping and the violating... TENTACLES!
+Also that she's got an awesome mech.
+Anonymous Sun 28 Feb 2010 21:57:09 No.4615127 Report
+Quoted By: >>4615168
+>>4615090
+"I couldn't give a shit about Vindel right now! If the EFA get their hands on the Zweizergain then who knows what they'll be able to do!"
+Anonymous Sun 28 Feb 2010 22:00:09 No.4615145 Report
+Quoted By: >>4615153
+Put on the moe face and start crying about how your just trying to help everyone by warning them that Beowulf is coming.
+Anonymous Sun 28 Feb 2010 22:02:09 No.4615153 Report
+>>4615145
+Not this EXACTLY, but yes, use the moe. If that doesn't work, start using expletives.
+Anonymous Sun 28 Feb 2010 22:03:09 No.4615162 Report
+Quoted By: >>4615349
+>>4615093
+>>4615116
+Thirded.
+Anonymous Sun 28 Feb 2010 22:05:09 No.4615168 Report
+Quoted By: >>4615236
+>>4615127
+This, if she keeps going on about Vindel.
+Anonymous Sun 28 Feb 2010 22:20:09 No.4615236 Report
+Quoted By: >>4615291
+>>4615168
+Indeed. We must educate her as to our priorities.
+Anonymous Sun 28 Feb 2010 22:31:09 No.4615291 Report
+>>4615236
+Aaaand now to wait for Sciencegar
+Sciencegar Sciencebolt Sun 28 Feb 2010 22:52:09 No.4615344 Report
+Quoted By: >>4615354 >>4615358 >>4615362 >>4615363 >>4615367 >>4615426 >>4615439
+"I don't give a shit about Mauser! Chuck the bastard in the holes with those monsters for all I care! We just need the Zweizergain, just to keep it away from the EFA! We ALL need to escape! Shuu! Shuu, get the Granzon warmed up!!"
+
+The Granzon's teleportation isn't stable when transporting dimensionally active materials like those in me and the Zweizergain. I'll have to use my own transportation abilities.
+
+A hundred voices ring across the comm frequencies. "You're not going anywhere. You seek to destroy the future, the salvation of mankind through our union." The Bartols fill the air, pointing guns at everyone, even the ELF, even other DC units. "You will all stand down, and the ODE system will see the truth."
+
+WHAT WILL KATINA DO?
+Anonymous Sun 28 Feb 2010 22:52:09 No.4615349 Report
+>>4615162
+Fourthed. Also bump.
+Anonymous Sun 28 Feb 2010 22:54:09 No.4615354 Report
+Quoted By: >>4615374 >>4615611
+>>4615344
+Okay, if that isn't a straight line to use the ODE system to build crazy degree of negative emotions to feed machine cells for HENSHIN, I don't know what is.
+
+Electrocute a bartol, and be very messy about it. Feed on pain of hundreds, become PSYCHO RIDER
+Anonymous Sun 28 Feb 2010 22:55:09 No.4615358 Report
+>>4615344
+FUCKING JEURGENS
+
+Then ask Dumi how to HEN SHIN, and zap some Bartolls for their delicious agony.
+Stealthyboy !fchRKomfls Sun 28 Feb 2010 22:56:09 No.4615362 Report
+>>4615344
+Ignore Jurgen, he really isn't even worth our time.
+Anonymous Sun 28 Feb 2010 22:56:09 No.4615363 Report
+Quoted By: >>4615396 >>4615564 >>4615611
+>>4615344
+Grab one of the green tentacles that's on the snake-thing and wave it around at everyone. Suggest that we at least get to fry the bad tentacles before everyone calms down and we sort shit out. After all, it'll be on their heads if Beowulf shows up, but whatever. Losers.
+Anonymous Sun 28 Feb 2010 22:56:09 No.4615367 Report
+>>4615344
+This is going to end up a clusterfuck isn't it?
+
+Well that's great, because we THRIVE on chaos!
+Anonymous Sun 28 Feb 2010 22:57:09 No.4615374 Report
+Quoted By: >>4615379
+>>4615354
+Why does everyone assume that making a bunch of people feel bad will do anything useful for us? I mean, we've been given no reason to believe anything will actually happen aside from one vaguely worded comment from Dumi.
+Anonymous Sun 28 Feb 2010 22:58:09 No.4615379 Report
+>>4615374
+Because that vaguely worded comment was in response to our attempt at becoming THRUDGELRAIOH.
+Anonymous Sun 28 Feb 2010 23:00:09 No.4615396 Report
+>>4615363
+This, use that proof to get everyone else(except Juergens) to group everyone together and mop up the Bartools before Beowulf arrives.
+Anonymous Sun 28 Feb 2010 23:05:09 No.4615426 Report
+>>4615344
+Also tell Dumi that the Granzons teleport is not why you want it up and running.
+
+Its the firepower you want.
+NuBlackAnon !!z6ldXGL61Wm Sun 28 Feb 2010 23:06:09 No.4615439 Report
+Quoted By: >>4615535
+>>4615344
+the ODE system lost its right for mercy. We kill the ODE system, BUT before we do, we torture one Bartol, to prove a point. Mercy never does work.
+Anonymous Sun 28 Feb 2010 23:21:09 No.4615535 Report
+Quoted By: >>4615559 >>4615619
+>>4615439
+Are we still forgetting about the snake? If it's intact enough and not Einst-ified, GRAB IT
+Stealthyboy !fchRKomfls Sun 28 Feb 2010 23:25:09 No.4615559 Report
+Quoted By: >>4615583
+>>4615535
+It is Einsted, though.
+Anonymous Sun 28 Feb 2010 23:25:09 No.4615564 Report
+>>4615363
+This. "EVERYONE CHILL OUT AND FIGHT THE REAL ENEMY BEFORE THINGS GET WORSE"
+Anonymous Sun 28 Feb 2010 23:28:09 No.4615583 Report
+>>4615559
+Then zap it until its not.
+Haken Browning !zHe7DH816A Sun 28 Feb 2010 23:33:09 No.4615611 Report
+Quoted By: >>4615673
+>>4615354
+>>4615363
+Mix these. Grab a Bartoll and shove the real enemy (an Einst tentacle) in its face.
+
+NO FEAR
+NO PAIN
+CHOU FINAL DESTINATION
+NuBlackAnon !!z6ldXGL61Wm Sun 28 Feb 2010 23:34:09 No.4615619 Report
+>>4615535
+like I said before
+MAGNETIC SPIN the metal from the einst
+then combine with the snake
+Anonymous Sun 28 Feb 2010 23:45:09 No.4615673 Report
+Quoted By: >>4615677
+>>4615611
+Let's see how Einst do against a hive mind, yes?
+NuBlackAnon !!z6ldXGL61Wm Sun 28 Feb 2010 23:46:09 No.4615677 Report
+Quoted By: >>4615712
+>>4615673
+but the einst are a hive mind
+Anonymous Sun 28 Feb 2010 23:50:09 No.4615712 Report
+>>4615677
+I meant which hive mind is stronger.
+Anonymous Sun 28 Feb 2010 23:52:28 No.4615725 Report
+Quoted By: >>4615809
+>>4614060
+Remove the illegal clone subdomain and all of its files from your server, moot. Immediately stop spamming and cloning www. @NｏＮTA|Ｋ .com.
+Anonymous Mon 01 Mar 2010 00:05:09 No.4615788 Report
+Kill the Einst
+AdviceKatina.jpg
+Torture the Bartolls
+Haken Browning !zHe7DH816A Mon 01 Mar 2010 00:08:09 No.4615809 Report
+Quoted By: >>4615819
+>>4615725
+No...wait...I got it.
+
+*adviceNobuo*
+
+Fourth-Wall breaking option. Turn the Bartolls and Einstkijin against Sysop.
+
+It's not like anyone will miss that chunk of Scandinavia, right?
+Anonymous Mon 01 Mar 2010 00:10:09 No.4615819 Report
+>>4615809
+You lost me, Haken. What did Scandinavia do to you?
+Sciencegar Sciencebolt Mon 01 Mar 2010 00:11:09 No.4615826 Report
+Quoted By: >>4615856 >>4615875 >>4615886 >>4615901
+"You dumbass, Juergen!" You point over at the Snake, which is picking itself up, green tentacles once again forming purple armor. "THAT is the real threat!! It called the EFA, it's bringing the fucking Beowulves. And you're pointing guns at me?? ME??"
+
+The hundred voices come again. "I am not Juergens, I am all within the ODE system. I act as one, but am many. And we have seen what you will do if left alone, far worse than one beast could possibly do."
+
+As if in retort to that, the snake begins spraying acid into the air. You dodge away, a few drops sizzling against your armor, but several Bartols simply melt. The retribution is swift and fierce, and the Snake dissappears in a haze of missiles and beams.
+
+More shaking, and the snail erupts from the ground, tentacles forming a cannons on its shell. Something like a bats wing comes from another hole. Lily Junkers screams down the comms. "Hamills mechanoids have gone crazy!!! Juergens, stop being an idiot and get those Bartols into the transports!!!"
+
+You boost through the melee towards Dumi, dodging stray shots. "He's not going to listen! He...they've gone mad! Dumi. shut them down again! Or show me how to do it!"
+
+Too late. They're here.
+
+The thirteen Gespensts, each leading a dozen of what look like giant alien skeletons. The black one at the fore hefts its F2W cannon.
+
+"Well well..." Says the voice of Albero Est. "I figured it'd be you guys, somehow."
+
+INITIAL REACTIONS FOR:
+KATINA
+DUMI
+KAI
+SHUU
+KAR-WAI, RADHA AND TYTTI
+BET BARSHEM
+View SameGoogleiqdbSauceNAO 12673919970.jpg, 180KiB, 1024x722
+Anonymous Mon 01 Mar 2010 00:11:09 No.4615828 Report
+View SameGoogleiqdbSauceNAO 126739213567.jpg, 12KiB, 1024x722
+Anonymous Mon 01 Mar 2010 00:12:09 No.4615842 Report
+Anonymous Mon 01 Mar 2010 00:14:09 No.4615849 Report
+"Dumi, get the Zweizergain out of here! Now!"
+Anonymous Mon 01 Mar 2010 00:15:09 No.4615856 Report
+Quoted By: >>4615873
+>>4615826
+Entire team: Throw hat down in disgust
+Anonymous Mon 01 Mar 2010 00:17:09 No.4615873 Report
+Quoted By: >>4615884
+>>4615856
+We are not Ace Dick, nor do we have hats.
+Stealthyboy !fchRKomfls Mon 01 Mar 2010 00:17:09 No.4615875 Report
+>>4615826
+Kai: ONORE ALBEROOOOOO!
+Stealthyboy !fchRKomfls Mon 01 Mar 2010 00:18:09 No.4615884 Report
+>>4615873
+The least we can do is try to ride the Choukijin like a mechanical bull.
+Sanger Zombolt! Mon 01 Mar 2010 00:18:09 No.4615886 Report
+>>4615826
+Everyone: Well.....fuck.
+Anonymous Mon 01 Mar 2010 00:20:09 No.4615901 Report
+Quoted By: >>4615951
+>>4615826
+Kai and Katina: "Oh not you again."
+Kar-Wai + crew: Defensive formation! Drag Barshem into it.
+Dumi: Turn off the Zwei so that it can be safely teleported.
+Shuu: Make some speech about justice and running away to fight another day while moving toward the defensive group, get ready to teleport the fuck out of town.
+Anonymous Mon 01 Mar 2010 00:21:28 No.4615905 Report
+>>4614061
+Remove the illegal clone subdomain and all of its files from your server, moot. Immediately stop spamming and cloning www. än０ＮtＡｌＫ .com.
+View SameGoogleiqdbSauceNAO 126739269036.jpg, 161KiB, 1024x722
+Anonymous Mon 01 Mar 2010 00:22:09 No.4615908 Report
+Anonymous Mon 01 Mar 2010 00:24:09 No.4615923 Report
+Quoted By: >>4615939
+our main goal at this point should be to take out the einsted choukijin and albero. let the einst grunts and the bartols wipe each other out. when the battle's over, we salvage whatever we can as parts for all the mechs we intend to build.
+View SameGoogleiqdbSauceNAO 126739285223.jpg, 204KiB, 1024x722
+Anonymous Mon 01 Mar 2010 00:24:09 No.4615926 Report
+Quoted By: >>4615937
+Anonymous Mon 01 Mar 2010 00:26:09 No.4615937 Report
+Quoted By: >>4615948
+>>4615926
+What the fuck are all these pictures? Seriously.
+Sanger Zombolt! Mon 01 Mar 2010 00:26:09 No.4615939 Report
+>>4615923
+Ou main goal is getting the fuck out of here while we can. Threeway fight with Einstened elites elites and beasts of legends and a robotic hivemind? No thanks.
+
+We would be better off retreating to a safer place with everyone who doesn't try to kill us.
+
+MISSION: Get out of here FAST.
+View SameGoogleiqdbSauceNAO 126739299091.jpg, 203KiB, 1024x722
+Anonymous Mon 01 Mar 2010 00:27:09 No.4615947 Report
+Sanger Zombolt! Mon 01 Mar 2010 00:27:09 No.4615948 Report
+>>4615937
+Report them and they will go away. They are nothing but spam.
+Anonymous Mon 01 Mar 2010 00:27:28 No.4615950 Report
+>>4614062
+Remove the illegal clone subdomain and all of its files from your server, moot. Immediately stop spamming and cloning www. ånｏｎt@Lk .com.
+Anonymous Mon 01 Mar 2010 00:27:09 No.4615951 Report
+>>4615901
+2'ed. Also ask Shuu to scan the area for escape routes while we buy some time.
+View SameGoogleiqdbSauceNAO 126739312962.jpg, 196KiB, 1024x722
+Anonymous Mon 01 Mar 2010 00:29:09 No.4615968 Report
+Anonymous Mon 01 Mar 2010 00:30:09 No.4615979 Report
+Let the Bartolls and Cry Wolves shoot at each other, remove Einst from Choukijin, then get the fuck out of here. Preferably taking the Gunleon with us.
+View SameGoogleiqdbSauceNAO 126739326838.jpg, 195KiB, 1024x722
+Anonymous Mon 01 Mar 2010 00:31:09 No.4615988 Report
+Anonymous Mon 01 Mar 2010 00:57:09 No.4616131 Report
+Quoted By: >>4616219
+Jesus christ will the freaking spam stop?
+Anonymous Mon 01 Mar 2010 01:12:09 No.4616219 Report
+Quoted By: >>4616236
+>>4616131
+Report them.
+Anonymous Mon 01 Mar 2010 01:15:09 No.4616236 Report
+>>4616219
+Done.
+Anonymous Mon 01 Mar 2010 01:15:09 No.4616238 Report
+Quoted By: >>4616246
+I almost miss the "Wife grows dick" bots
+Anonymous Mon 01 Mar 2010 01:16:09 No.4616246 Report
+Quoted By: >>4616249
+>>4616238
+Indeed. What the hell IS this?
+Stealthyboy !fchRKomfls Mon 01 Mar 2010 01:17:09 No.4616249 Report
+Quoted By: >>4616269
+>>4616246
+They're the same images that were on the government conspiracy spams.
+Anonymous Mon 01 Mar 2010 01:20:09 No.4616269 Report
+>>4616249
+Okay, yeah, that makes sense. Hopefully it will stop. It's wasted enough space as is.
+View SameGoogleiqdbSauceNAO gunleon.png, 176KiB, 292x400
+Sciencegar Sciencebolt Mon 01 Mar 2010 01:35:09 No.4616327 Report
+Quoted By: >>4616347 >>4616361 >>4616379 >>4616383 >>4616390 >>4616464 >>4616900
+"Dumi! Leave with the Zwei, NOW!!! Shuu, get the rest of us. Everyone, form u-"
+
+The Gespenst Kai boosts past, headed straight at the EFA lines.
+
+"Oh no!!! You don't get to die gloriously on my watch!!!" You boost after Kai."
+
+Katina!!
+
+"Just go! Come back for me in a minute or two, I'll have a decent kill-count by then!"
+
+You boost forward through the chaos, swatting Bartols out of the way as you go. They may have learned how to avoid direct attacks from you, but they're focused on the mechanoids and haven't learned to avoid being blindsided.
+
+Then a much larger shape gets between you and the First and Only forces.
+
+"You!!" shouts Rand. "What the hell do you think you're doing, zappin' me like that?!? If Mail'd been in here, she could have been killed!!"
+
+The new half-mechanoid, half-construction mech brandishes a ridiculously massive wrench at you. It seems the pilot is none the worse for wear after his mech was eaten by one of them.
+
+WHAT SHALL KATINA DO? Or would you prefer a cutaway to Kai, or to some characters we haven't seen in a while?
+Anonymous Mon 01 Mar 2010 01:38:09 No.4616342 Report
+Quoted By: >>4616354
+I'd like to know how Latooni is doing, actually. And perhaps Shine.
+
+And I'd like to see how Kai does...
+And give Rand an explanation. FUCK I want to do everything!
+Anonymous Mon 01 Mar 2010 01:38:09 No.4616347 Report
+>>4616327
+"If something you were holding suddenly sprouted tentacles that you knew were bad and evil, would /you/ have waited to burn the crap out of it? For what it's worth, I'm sorry, my bad. But hey, your mech looks pretty cool now. So could you move so that I can go kill the EFA tentacle beasties?"
+
+Something like that. Then we can cut to other people.
+Jerid Messa !!AbDOcayw4O/ Mon 01 Mar 2010 01:39:09 No.4616348 Report
+Let's see what some other characters are up to. Preferably Ibis, Latooni, and the rest of the Shadow Mirrors we left behind.
+Haken Browning !zHe7DH816A Mon 01 Mar 2010 01:39:09 No.4616354 Report
+>>4616342
+>I'd like to know who Latooni is doing, actually. Perhaps Shine.
+Anonymous Mon 01 Mar 2010 01:41:09 No.4616361 Report
+Quoted By: >>4616370
+>>4616327
+"Oh you had to go there you son of a bitch."
+
+"OH YEAH? BRING IT WENCH, I AM GOING TO SHOW YOU WHAT THE GREAT RAND TRAVIS CAN DO!"
+
+"RAIOH, LIMITER DEACTIVATED! LIGHTNING FALL!"
+
+"TAKE THIS! I AM GOING TO CALL THIS ATTACK.....WRENCH-A-MAGIC!
+
+"AAAAAAAAAAAAAAAARG!"
+
+"YEAAAAAAAAAAAAAh"
+
+And then we cut to our friends at the base.
+View SameGoogleiqdbSauceNAO BEST FRIENDS FOREVER.jpg, 117KiB, 543x451
+Anonymous Mon 01 Mar 2010 01:43:09 No.4616370 Report
+Quoted By: >>4616378
+>>4616361
+BTW, when we go back to our heroes, it turns out Katina explained everything to Rand and now they are BFF.
+Anonymous Mon 01 Mar 2010 01:45:09 No.4616378 Report
+Quoted By: >>4616388
+>>4616370
+Someone needs to shoop this as Katina hugging whatever poor sap she crossed sights with.
+Anonymous Mon 01 Mar 2010 01:45:09 No.4616379 Report
+Quoted By: >>4616409
+>>4616327
+
+Go Deredere on Rand, Act like you have no idea what he is talking about and work the waterworks if he tries to attack you, Should confuse and distract him enough so we can slip past him and go to Kai.
+Stealthyboy !fchRKomfls Mon 01 Mar 2010 01:45:09 No.4616383 Report
+Quoted By: >>4616409
+>>4616327
+Explain to Rand: "Both of us were about to get tentacle raped, and I consider getting electrocuted a fair trade for not losing your anal virginity, don't you?"
+
+And then a cut away to some idiot taking pity on Shine and letting her escape. THEY BETTER HAVE BLOODY NOT HAVE.
+Haken Browning !zHe7DH816A Mon 01 Mar 2010 01:47:09 No.4616388 Report
+>>4616378
+inb4 Katina calls this "the time she wrecked everyone's shit with Lightning Fall" (it'd be OUTRAGEOUS!).
+NuBlackAnon !!z6ldXGL61Wm Mon 01 Mar 2010 01:47:09 No.4616390 Report
+>>4616327
+SORRRY BRO, THOUGH YOU WERE ALIENS. LETS WORK TOGETHER AND DEFEAT EVIL
+Anonymous Mon 01 Mar 2010 01:50:09 No.4616409 Report
+Quoted By: >>4616444
+>>4616379
+>>4616383
+
+Mix these up, Act cute and scared and say that the tentacles were going to do "naughty things" to us, And that we had to do it or else, then break down and cry, Then point out that he should concentrate on finding Mail instead of fighting us, Rand should get convinced, And might leave the battle without a fight.
+Anonymous Mon 01 Mar 2010 01:57:09 No.4616444 Report
+Quoted By: >>4616466
+>>4616409
+Or help us out here. We could always use the goddamned GUNLEON, yah know.
+Anonymous Mon 01 Mar 2010 02:00:15 No.4616463 Report
+>>4614061
+Remove the illegal clone subdomain and all of its files from your server, moot. Immediately stop spamming and cloning www. äñｏntåIＫ .com.
+Anonymous Mon 01 Mar 2010 02:00:09 No.4616464 Report
+>>4616327
+'Thing we were hauling up was mad dangerous! I wanted to stop a message from getting out to the EFA since it looks like the tentacle shit we saw them use in their mechs, so I acted quickly.
+
+And hey, you got a way cooler robot, AND you didn't get hurt. And that girl who could of got hurt, didn't get hurt, because she wasn't here to get hurt in the first place..... man, that hurt my head.
+
+ANYWAY, a fancy new suit with wierd tech, and a bunch of dudes trying to kill us.
+
+So Rand, ARE YOU A BAD ENOUGH DUDE!?'
+
+If that doesn't work, then this Rand is not hotblooded enough for the Gunleon.
+Anonymous Mon 01 Mar 2010 02:01:09 No.4616466 Report
+Quoted By: >>4616486 >>4616489
+>>4616444
+No thanks. I preffer the idea of having a rival fighting enemies independently until later in the story.
+
+Seriously, we can't have FUCKING EVERYONE on our team. At least not this easy. Let the lone wolves stay lone wolves.
+Anonymous Mon 01 Mar 2010 02:06:09 No.4616486 Report
+>>4616466
+Perhaps, but at the moment we have enough on our plate. We could really USE Rand right now. Might I remind you just how NASTY the Cry Wolves are?
+Anonymous Mon 01 Mar 2010 02:07:09 No.4616489 Report
+Quoted By: >>4616508
+>>4616466
+
+While i agree it would be good to be able to convince Rand to leave atleast this battle, Not fighting him would mean we could focus on the other enemies first.
+
+Besides, Acting nice now woul mean he would be more willing to join in a later Mission.
+View SameGoogleiqdbSauceNAO Katina is thinking how she is go (...).png, 17KiB, 452x383
+Stealthyboy !fchRKomfls Mon 01 Mar 2010 02:10:09 No.4616500 Report
+Quoted By: >>4616521 >>4616522
+While you guys are discussing this, have some badly drawn Katina, since it's been ages since I did anything other that splice OGs sprites together.
+Anonymous Mon 01 Mar 2010 02:11:09 No.4616508 Report
+Quoted By: >>4616536
+>>4616489
+What's stopping us from allying at least for the moment? Neither the Bartolls NOR the Cry Wolves are good for us. Whether we go our seperate ways afterwords is up to fate, but for now, Rand would be a valuable ally
+View SameGoogleiqdbSauceNAO ObjectKatina.png, 167KiB, 624x247
+Archibald Grims !SonOfAYvRI Mon 01 Mar 2010 02:15:09 No.4616521 Report
+>>4616500
+Haken Browning !zHe7DH816A Mon 01 Mar 2010 02:15:09 No.4616522 Report
+Quoted By: >>4616529 >>4616530
+>>4616500
+Is this some kind of mer-Desu on a memory foam mattress?
+
+Don't know if should want.
+Anonymous Mon 01 Mar 2010 02:16:09 No.4616529 Report
+>>4616522
+I think that's just her skirt, + stealthyboy's somewhat rusty drawfaggotry
+Stealthyboy !fchRKomfls Mon 01 Mar 2010 02:16:09 No.4616530 Report
+>>4616522
+More supposed to be her skirt, really.
+
+But then I remembered that I can't draw skirts.
+
+Or in general really...
+Anonymous Mon 01 Mar 2010 02:18:09 No.4616536 Report
+>>4616508
+
+I forgot a , after the "While i agree".
+
+What i mean is while we don´t really need more allies it would be nice to atleast get rid of one enemy without having to fight.
+Anonymous Mon 01 Mar 2010 02:18:09 No.4616540 Report
+At any rate, this shall be fun~
+Anonymous Mon 01 Mar 2010 02:24:09 No.4616558 Report
+Quoted By: >>4616561
+Tell Rand that death is honestly preferable to becoming one of THEM
+Anonymous Mon 01 Mar 2010 02:25:09 No.4616561 Report
+>>4616558
+This is also true.
+Anonymous Mon 01 Mar 2010 02:34:09 No.4616608 Report
+At any rate, a cut to the people back at the base is a good plan.
+View SameGoogleiqdbSauceNAO 1212968713933.png, 29KiB, 450x500
+Archibald Grims !SonOfAYvRI Mon 01 Mar 2010 02:37:09 No.4616620 Report
+Sciencegar Sciencebolt Mon 01 Mar 2010 02:39:09 No.4616634 Report
+Quoted By: >>4616643 >>4616653 >>4616701 >>4616900
+"I wasn't zapping you, I was killing the bad alien stuff in that wreck we were lifting! Look at the other monsters, and what happened to your mech when I burned out all the bad parts of it!"
+
+"That was still pretty goddamn reckless! I'm still all tingly!"
+
+"Man the fuck up!! We've got bigger shit to worry about! My pal Kai is going to get killed out there!"
+
+"...Kai? Kai who?"
+
+"THE Kai Kitamura, bitch! And you know if he needs help, shit has gotten real!"
+
+"Yeah, I DO know. Man, what a time for a reunion!"
+
+"Reun...You're Rand Travis!! The Motherfucking Crusher!! Oh fuck, why didn't I get a proper autograph book??"
+
+"Don't call me that!! Now, let's see about Kai."
+
+You follow the Ex-Agressor into battle, where you can see Kai and Albero already trading blows...
+Stealthyboy !fchRKomfls Mon 01 Mar 2010 02:40:09 No.4616643 Report
+>>4616634
+>Rand
+>Ex-Aggressor
+
+FUCK YEAH.
+Anonymous Mon 01 Mar 2010 02:40:09 No.4616645 Report
+Fuck, Rand is an Ex-Agressor? HOLY SHIIIIIIIIT
+Anonymous Mon 01 Mar 2010 02:42:09 No.4616653 Report
+Quoted By: >>4616660 >>4616663
+>>4616634
+Awww, No deredere... It was too long ago, Now we just seem to be Psycho all the time.
+Anonymous Mon 01 Mar 2010 02:44:09 No.4616660 Report
+>>4616653
+We're in combat, and the RaiOh is probably pumping us full of steroids.
+Stealthyboy !fchRKomfls Mon 01 Mar 2010 02:45:09 No.4616663 Report
+>>4616653
+When we get out of our mechs, we can start fangirling Rand.
+Sciencegar Sciencebolt Mon 01 Mar 2010 02:46:09 No.4616672 Report
+Trilobite 1, come in.
+
+"DGG-04, we read you. What is your reentry vector?"
+
+I've already landed, 50 klicks west-southwest. I need to talk with someone in command, urgently!
+
+"Do you need pickup? Are you damaged?"
+
+No, just get me Axel or Irm. And make sure they know that the Irregulars and the DC cannot know about this. What I have here could change everything.
+Kar-Wai blinks in the harsh sunlight. "I thought you were taking us to the jungle, not the desert, Mr Shirakawa."
+
+"Dr. Shirakawa. And it seems the alignment of the Granzons dimensional coupler has been knocked off. Overexposure to other dimensional distorsions, I don't doubt. I'll need to shield it, shouldn't take more than a day..."
+
+Kar-Wai shakes his head. "Maybe we should just take the Eurydice, and save the bother. All this warping is making my implants ache..."
+
+"Yes...a few hours on a stable platform should be enough."
+Anonymous Mon 01 Mar 2010 02:52:09 No.4616701 Report
+Quoted By: >>4616714 >>4616757
+>>4616634
+Challenge Rand to a contest of awesome
+
+The winner is whoever has done the most awesome thing by the end of this altercation.
+
+WHO CAN BLOW THINGS UP THE BEST? LETS FIND OUT
+Anonymous Mon 01 Mar 2010 02:55:09 No.4616714 Report
+>>4616701
+This.
+Sciencegar Sciencebolt Mon 01 Mar 2010 03:00:09 No.4616744 Report
+Quoted By: >>4616760
+"General Doban?"
+
+"Bet Barshem, I wasn't expecting a report so soon. You've only been gone a Gartol or two. What could have happened?"
+
+"General, I've witnessed first-hand the situation on Earth. The anti-government factions are at each others throats, the moment the Federation attacked them they began infighting. Some even turned on their own side. They're a rabble, the Shadow Mirrors are merely the most professional and better-equipped of them. Where it not for the swift action their pilots, they may have been killed by their own side."
+
+"I see....It seems we'll have to discount the lesser factions then. Stay with the Shadow Mirrors, I shall prepare an immediate delegation to the Federation. We'll find out once and for all who rules Earth, and whether we can trust them."
+Sciencegar Sciencebolt Mon 01 Mar 2010 03:02:09 No.4616755 Report
+Quoted By: >>4616784 >>4616791 >>4616795
+The door of the cabin bursts in, and Bullet leaps in front of Kusuha, chair-leg in hand. "Don't come any closer!! I won't le...You!!"
+
+Vindel Mauser grins. "You recognise me, don't you boy? I'd expect no less from the agents of Helios Olympus. Now, you have to get out of here!" Lemon tosses a gun to the confused young man.
+
+"Wh...You're just freeing us? Like that?"
+
+"It seems my own agents have turned on us, securing my Zweizergain but neglecting to look for us. But, with the ELF transport broken open, you two should be able to get to your mech. Given the chaos thats raging out there, I think we'd be safer if you intervened."
+
+Kusuha puts her hand on Bullets arm. "Bullet-kun, you can feel it too, can't you? Ryukooh is calling out."
+
+"Yeah, its just like before....Koryuoh smells the Einst."
+
+The two rush out, heading towards the transport Dumi had broken. Lemon watches as they run through the chaos. "Einst...German for 'First'. Somehow, I don't think thats a coincidence."
+
+Vindel nods. "No. It seems Helios and his friends may hold the key to the mystery in Geneva. Now, I beleive you said the ELF had rather kindly repaired your Ashsaber?"
+
+"There should be room to squeeze you in...But not too tightly, Axel might complain."
+
+"I'll endeavour to stay in his good graces."
+View SameGoogleiqdbSauceNAO Censored.jpg, 118KiB, 900x1200
+Anonymous Mon 01 Mar 2010 03:02:09 No.4616757 Report
+Quoted By: >>4616781
+>>4616701
+Then Rand already lost.
+
+Noone blows as well as Katina.
+Anonymous Mon 01 Mar 2010 03:03:09 No.4616760 Report
+>>4616744
+>I shall prepare an immediate delegation to the Federation.
+Oh god, this is going to get messy...
+Anonymous Mon 01 Mar 2010 03:06:09 No.4616781 Report
+Quoted By: >>4616794
+>>4616757
+Requesting uncensored version.
+For educational purposes.
+Anonymous Mon 01 Mar 2010 03:07:09 No.4616784 Report
+>>4616755
+KILL THAT SON OF A BITCH WHEN WE GET THE CHANCE. KILL HIM. KILL HIM. WE WON'T LET ANYONE TAKE THE CROWN AWAY FROM US.
+Haken Browning !zHe7DH816A Mon 01 Mar 2010 03:08:09 No.4616791 Report
+>>4616755
+>squeezing Vindel and Lemon into the same Ashsaber
+Is this inspired by CONFERENCE CALL GESPENSTO, by any chance?
+Anonymous Mon 01 Mar 2010 03:09:09 No.4616794 Report
+>>4616781
+http://g.e-hentai.org/g/141447/9dc656ccfa/
+
+Have fun.
+Stealthyboy !fchRKomfls Mon 01 Mar 2010 03:09:09 No.4616795 Report
+Quoted By: >>4616811
+>>4616755
+Looks like we'll have to accelerate our plans...
+Sanger Zombolt! Mon 01 Mar 2010 03:12:09 No.4616811 Report
+>>4616795
+If we are to become supreme rulers of the world, the Vindel cannot get out of here alive.
+
+And noone must know of his death. So I say we pursue and destroy the Ashsaver the moment we see it.
+
+Vindel sucks as a villain anyway.
+Sciencegar Sciencebolt Mon 01 Mar 2010 03:13:09 No.4616814 Report
+Quoted By: >>4616817 >>4616835 >>4616853
+"This is Iron-3 to Black Knight. We are approaching rendevous, ETA 13 minutes. Report status of targets."
+
+"Finally...Target groups Alpha and Gamma seem to be making a move. Both groups are sending forces to the west of the base. The Irregulars are moving as one, the Shadow Mirrors sending a small scout flotilla. Shall I pursue?"
+
+"Hmmm...."
+
+SRWQ SPECIAL MISSION: YUUKIQUEST
+
+You are Yuuki Jegnan, combat commander of Team SRX and pilot of the R-1. You've been given by your commander, Director Yukiko Date, to gain maximum combat data on the Irregular and Shadow Mirror forces holed up in the DC's secret jungle base. Capturing units and pilots is a secondary objective. In addition, you are to send in a special forces team to retrieve agent Shine Hausen, with secondary objectives of sabotage, data and technology retrieval. Confirmation of the nature of the Irregulars and their technology is considered a high priority.
+
+You're not meant to kill if its unnessecary, but secrecy is paramount. Certainly, if things escalate to a high enough level, and you're forced to use THAT, protocol states you have to kill everything...
+Anonymous Mon 01 Mar 2010 03:13:09 No.4616817 Report
+Quoted By: >>4616824 >>4616828 >>4616836 >>4616837 >>4616846 >>4616855 >>4616856 >>4616859 >>4616882
+>>4616814
+Kill yourself and take as many people out with you as possible.
+Anonymous Mon 01 Mar 2010 03:14:09 No.4616824 Report
+Quoted By: >>4616828 >>4616836 >>4616837 >>4616846 >>4616855 >>4616856 >>4616859 >>4616882
+>>4616817
+And by 'people' I mean 'your allies'
+Sanger Zombolt! Mon 01 Mar 2010 03:15:09 No.4616828 Report
+Quoted By: >>4616856 >>4616859
+>>4616824
+>>4616817
+This. I approve of this.
+Haken Browning !zHe7DH816A Mon 01 Mar 2010 03:16:09 No.4616835 Report
+>>4616814
+Use an Action++ to max out our available REST, then equip Stealth Camo and waltz in with Running Man. Refresh ourselves with a Jonathan Ingram+ afterward.
+Anonymous Mon 01 Mar 2010 03:16:09 No.4616836 Report
+Quoted By: >>4616856 >>4616859
+>>4616824
+>>4616817
+Thirded.
+View SameGoogleiqdbSauceNAO StatlerWaldorf.jpg, 17KiB, 300x228
+Stealthyboy !fchRKomfls Mon 01 Mar 2010 03:16:09 No.4616837 Report
+Quoted By: >>4616856 >>4616859
+>>4616817
+>>4616824
+Dohohohoho.
+Anonymous Mon 01 Mar 2010 03:17:09 No.4616846 Report
+Quoted By: >>4616856 >>4616859
+>>4616824
+>>4616817
+It would be hilarious if this actually happened. I say yes to this plan.
+NuBlackAnon !!z6ldXGL61Wm Mon 01 Mar 2010 03:19:09 No.4616853 Report
+>>4616814
+triple SRX.
+Ryusei's mom as commander
+brb fappin
+Anonymous Mon 01 Mar 2010 03:19:09 No.4616855 Report
+>>4616817
+>>4616824
+Yeah, it's all hopeless. Better to end it now and grant our friends respite before the end.
+Anonymous Mon 01 Mar 2010 03:19:09 No.4616856 Report
+>>4616824
+>>4616817
+>>4616846
+>>4616837
+>>4616836
+>>4616828
+>>4616817
+Well it looks like the SRX team is fucked now.
+Anonymous Mon 01 Mar 2010 03:20:09 No.4616859 Report
+Quoted By: >>4616865 >>4616867 >>4616869 >>4616876 >>4616882
+>>4616817
+>>4616824
+>>4616828
+>>4616836
+>>4616837
+>>4616846
+
+AND ADD A FISSION MAILED AFTER YOU DIE.
+
+AND THEN CONTINUE? Y/N?
+Sanger Zombolt! Mon 01 Mar 2010 03:20:09 No.4616865 Report
+>>4616859
+Oh god this.
+Anonymous Mon 01 Mar 2010 03:20:09 No.4616867 Report
+>>4616859
+N
+Haken Browning !zHe7DH816A Mon 01 Mar 2010 03:21:09 No.4616869 Report
+>>4616859
+>bites on revival pill
+>cut to Latooni rapidly pressing Shine's circle button
+Sciencegar Sciencebolt Mon 01 Mar 2010 03:21:09 No.4616870 Report
+Quoted By: >>4616875 >>4616893 >>4616897 >>4616962 >>4616998
+Yuuki has at his command:
+
+The R-1, piloted by himself.
+The R-2, piloted by Tenzan Nakajima, an aloof, superior sort, fond of chess and other 'higher' forms of entertainment.
+The R-3, piloted by Kobayashi-2, a bald woman with a haunted look on her face, and a potent but unstable source of TK energy.
+The R-Gun, piloted by his lover, Carla Borgnine, a happy, carefree woman whose endless exuberance hides her School training (The entire team is ex-School), and her dedication to her job as 'Designated Burninator'.
+
+In addition, you have a detachment of 8 R-0 mass-production models, with School-trained pilots. You can also call upon Black Knight and her partner Seolla, in the StealthWurger and StealthFalken respectively.
+
+And finally you have Shocker Unit, 10 cybernetically-enhanced operatives, meant to infiltrate the base and perform any number of covert, or overt, missions.
+Anonymous Mon 01 Mar 2010 03:22:09 No.4616875 Report
+Quoted By: >>4616881 >>4616895
+>>4616870
+So how do we get them all killed?
+Anonymous Mon 01 Mar 2010 03:22:09 No.4616876 Report
+If Sciencegar actually makes me crack a smile if he does it, I will die a happy man.
+
+Also:
+
+>>4616859
+
+Let's not make this permanent.
+Anonymous Mon 01 Mar 2010 03:23:09 No.4616881 Report
+>>4616875
+
+Orgy? No condoms allowed, Everyone dies from STDs?
+Shas'El Mon 01 Mar 2010 03:23:09 No.4616882 Report
+>>4616859
+>>4616824
+>>4616817
+
+
+FUND IT!
+Haken Browning !zHe7DH816A Mon 01 Mar 2010 03:25:09 No.4616893 Report
+Quoted By: >>4616912 >>4616937
+>>4616870
+>Shocker Unit
+>10 cybernetically-enhanced operatives
+
+Gentlemen, our mission is clear...we adjourn to Learwood and troll Dex Stewart with our asynchronous roll call.
+Anonymous Mon 01 Mar 2010 03:25:09 No.4616895 Report
+Quoted By: >>4616917
+>>4616875
+TROLL THEM TO DEATH!
+Anonymous Mon 01 Mar 2010 03:25:09 No.4616897 Report
+Quoted By: >>4616905
+>>4616870
+Shoot at Tenzan, take out the Tronium Engine. Let's see what happens when one of those suckers goes.
+Anonymous Mon 01 Mar 2010 03:26:09 No.4616900 Report
+>>4616327
+>>4616634
+I HOPE YOU CAN HEAR THIS BECAUSE I'M PLAYING LAND CRASHER AS LOUDLY AS I CAN!
+Anonymous Mon 01 Mar 2010 03:26:09 No.4616905 Report
+>>4616897
+This works too.
+View SameGoogleiqdbSauceNAO I LIKE IT.png, 852KiB, 1024x576
+Faiz, Vindicare !!oHNZ1QN/tbk Mon 01 Mar 2010 03:27:09 No.4616912 Report
+>>4616893
+>we adjourn to Learwood and troll Dex Stewart with our asynchronous roll call.
+
+I'm not sure what exactly you boys have been up to, but...
+Anonymous Mon 01 Mar 2010 03:28:09 No.4616914 Report
+Quoted By: >>4616950
+COMBINE AND FORM THE SRX
+suicidalYuuki.jpg
+DRAW THE ATTENTION OF SHUU
+Anonymous Mon 01 Mar 2010 03:28:09 No.4616917 Report
+Quoted By: >>4616924
+>>4616895
+
+TENZAN! PS3 GOT NO GAMES! WII IS FOR CASUALS, XBOX LIVE IS FOR 12 YEAR OLDS.
+Anonymous Mon 01 Mar 2010 03:29:09 No.4616924 Report
+Quoted By: >>4616934
+>>4616917
+This is SMTenzan. He's a fa/tg/uy.
+Anonymous Mon 01 Mar 2010 03:30:09 No.4616934 Report
+Quoted By: >>4616938
+>>4616924
+TENZAN! 4TH EDITION IS THE GREATEST, GARY GYGAX WAS A LOSER WHO DIDN'T KNOW HOW TO DESIGN GAMES!
+Anonymous Mon 01 Mar 2010 03:31:09 No.4616937 Report
+>>4616893
+
+And dress them up as Cheerleaders and have them announce us by cheering and cheer when we form SRX. Alá SantaDeathParade .
+Anonymous Mon 01 Mar 2010 03:31:09 No.4616938 Report
+>>4616934
+Muuuuch better.
+Sciencegar Sciencebolt Mon 01 Mar 2010 03:31:09 No.4616943 Report
+Quoted By: >>4616973 >>4617015
+The people Yuuki has to worry about:
+
+Target Group Alpha: The Shadow Mirrors in the DC Base
+2 Trilobite
+2 Gespensts
+1 Rathgrith
+1 Angelg
+1 Vysaga
+1 Schutzwald
+1 Soldifar
+2 Irregulars units: A fast silver aerial type, and one with a human face
+A white Grungust type
+The Huckebien
+
+Target Beta: The DC base itself
+Heavy camoflaged defenses
+At least 3 squadrons of Lions, 2 of Landlions, 1 of Barrelions
+2 Rhinoceros land battleships, including one customised with alien technology
+A group of 3 experimental AMs referred to as Star Team.
+
+Target Gamma: The Irregulars
+Large gespenst-based super robot.
+2 DC-type Super Robots
+15 MP mechs of the Huckebien type
+
+Target Delta: The Shadow Mirror forces who are heading in the same direction as Target Gamma (and will meet them soon).
+StealthRaubtier
+Guarlion
+Anonymous Mon 01 Mar 2010 03:32:09 No.4616950 Report
+>>4616914
+'ACCIDENTALLY' CRIPPLE THE R-1 SO IT CANT COMBINE
+suicideYuuki.jpg
+DRAW THE ATTENTION OF SHUU AND THE GRANZON
+Anonymous Mon 01 Mar 2010 03:34:09 No.4616962 Report
+Quoted By: >>4616967
+>>4616870
+I don't think giving us control of our enemies is a good idea, Sciencegar. Conflict of interests and all that.
+Anonymous Mon 01 Mar 2010 03:35:09 No.4616967 Report
+>>4616962
+Although suicideYuuki is amusing.
+Anonymous Mon 01 Mar 2010 03:36:09 No.4616973 Report
+>>4616943
+
+Announce self to all enemies, Have clones and Flunkies preform a song/poem about Team SRX, At the end of it yell "NOW TREMBLE BEFORE OUR SYNCRONIZED MIGHT!"
+
+Then do R-Formation, Deal 10 damage, Get counterattacked and "TEAM SRX IS BLASTING OFF AGAIN!"
+View SameGoogleiqdbSauceNAO 1258727925741.gif, 38KiB, 240x640
+Archibald Grims !SonOfAYvRI Mon 01 Mar 2010 03:37:09 No.4616979 Report
+Esse! Arre! Eches!
+Sciencegar Sciencebolt Mon 01 Mar 2010 03:38:09 No.4616986 Report
+Quoted By: >>4617000 >>4617008 >>4617017 >>4617030 >>4617091
+Yuuki has the codes for Pattern OOC and HTB, but using them is an admission that things have gotten so out of hand, that things have to be ENDED. Protocol if the SRX has to be used is to kill all targets who see it with extreme prejudice. It's never come up that that wouldn't be what you're doing anyway.
+
+WHAT WILL YUUKI DO WITH THE FORCES AT HIS COMMAND? Priority is keeping people alive and mechs intact. Capturing is only to be done if possible. If they just go in, fight a few rounds with the Irregulars, and get out with the combat data, thats a successful mission. Everything else is a bonus.
+
+(And seriously guys, play along here. This is meant to be a fun diversion, where you get to decide how things escalate, and how Project SRX are drawn into the whole thing. I'm not going to take any I KILL MYSELF LOL shit, I want this done with the same almost-seriousness the main plot gets.)
+Anonymous Mon 01 Mar 2010 03:40:09 No.4616995 Report
+Quoted By: >>4617025
+I like the idea of a Incompetent Yuuki that keeps screwing up, But neither he or his underlings actually die, Just the mandatory quirky miniboss squad.
+View SameGoogleiqdbSauceNAO Psychamille.jpg, 16KiB, 261x271
+Stealthyboy !fchRKomfls Mon 01 Mar 2010 03:40:09 No.4616998 Report
+>>4616870
+>The R-2, piloted by Tenzan Nakajima, an aloof, superior sort, fond of chess and other 'higher' forms of entertainment.
+
+This sounds awesome!
+Anonymous Mon 01 Mar 2010 03:41:09 No.4617000 Report
+>>4616986
+The problem with that is that it's in our best interests to drive these guys over a cliff and make the biggest, prettiest fireball possible.
+Anonymous Mon 01 Mar 2010 03:42:09 No.4617007 Report
+Time to get the SRX murdered by the Valsione~
+NuBlackAnon !!z6ldXGL61Wm Mon 01 Mar 2010 03:42:09 No.4617008 Report
+Quoted By: >>4617025
+>>4616986
+>implying the core story is serious
+We go in, first of all, we need bait to lure them out.
+What units do we have that are EFA marked. We want good bait to bait our targets, and a way to get them in. However we don't want to be too big, so tell us, what EFA units do we have.
+Anonymous Mon 01 Mar 2010 03:42:09 No.4617015 Report
+Quoted By: >>4617023
+>>4616943
+>A white Grungust type
+I'm trying to remember what this was, and failing...
+Anonymous Mon 01 Mar 2010 03:43:09 No.4617017 Report
+Quoted By: >>4617036 >>4617038
+>>4616986
+
+Dress everyone up in flamboyant uniforms, Make sure Yuuki always have rose in mouth, And remind everyone to always fight enemies on honourable terms.
+
+Then intercept Target Delta.
+Stealthyboy !fchRKomfls Mon 01 Mar 2010 03:44:09 No.4617023 Report
+Quoted By: >>4617033
+>>4617015
+Thrudgelmir, most likely.
+Sciencegar Sciencebolt Mon 01 Mar 2010 03:44:09 No.4617025 Report
+Quoted By: >>4617050 >>4617095
+>>4616995
+
+These are the guys who took out Bian Zoldark and the Inspectors, with little to no support. Just for reference.
+
+>>4617008
+
+The R-0s have EFA markings.
+Haken Browning !zHe7DH816A Mon 01 Mar 2010 03:44:09 No.4617030 Report
+>>4616986
+First and foremost, this is a sneaking mission.
+
+Have Yuuki infiltrate the base, confirming troop makeup and integrity, Shine's location, etc. After mapping the area (or in case an extraction is necessary), move in Shocker Unit.
+
+Everyone else can wait outside to engage Targets Gamma and Delta (including drawing aggro from Alpha). Keep the Black Knight and "White Godiva" on speed dial, but don't be hasty to call in favors.
+Anonymous Mon 01 Mar 2010 03:45:09 No.4617033 Report
+>>4617023
+Oh yeah.
+
+This should be fun...
+
+Send the mooks in, hang back. Only engage if necessary.
+Stealthyboy !fchRKomfls Mon 01 Mar 2010 03:45:09 No.4617036 Report
+>>4617017
+>Make sure Yuuki always have rose in mouth
+
+Seconding this for Mashymre!Yuuki.
+Anonymous Mon 01 Mar 2010 03:45:09 No.4617038 Report
+Quoted By: >>4617047 >>4617058
+>>4617017
+So we're Mashymre?
+
+AWESOME!
+
+Also, the R-1 had best have built in devices for making tea. Yuuki must never not have a cup of tea.
+
+And we must ensure that Shine does not get freed. If possible, we must misinterpret the situation to assume she has switched sides and try to kill her, thus making her more likely to cooperate when Katina returns.
+Stealthyboy !fchRKomfls Mon 01 Mar 2010 03:46:09 No.4617047 Report
+Quoted By: >>4617052
+>>4617038
+SM!Yuuki is alergic to tea.
+You know it to be true.
+NuBlackAnon !!z6ldXGL61Wm Mon 01 Mar 2010 03:46:09 No.4617050 Report
+>>4617025
+Perfect! We have the R-0s assault a shadow mirror outpost.
+We need to make them think we are on the move, while our real powerhouses are in hiding. Can we do this?
+Anonymous Mon 01 Mar 2010 03:46:09 No.4617052 Report
+Quoted By: >>4617063 >>4617067
+>>4617047
+Fine, coffee, then.
+View SameGoogleiqdbSauceNAO evil kyosuke.png, 20KiB, 100x99
+Anonymous Mon 01 Mar 2010 03:47:09 No.4617058 Report
+Quoted By: >>4617067 >>4617086
+>>4617038
+>tea
+Surely you mean coffee.
+Anonymous Mon 01 Mar 2010 03:48:09 No.4617063 Report
+Quoted By: >>4617070 >>4617072
+>>4617052
+We must totally fuck this up in the most hilarious way possible and get ourselves and/or Carla captured. then run OG!Arado plotline.
+Stealthyboy !fchRKomfls Mon 01 Mar 2010 03:48:09 No.4617067 Report
+>>4617058
+>>4617052
+coffeemind
+Anonymous Mon 01 Mar 2010 03:49:09 No.4617070 Report
+>>4617063
+At the very least, we must fuck this up in the most hilarious way possible.
+
+Then have Yuuki suddenly become hypercompetent and just barely get out alive with everyone.
+Anonymous Mon 01 Mar 2010 03:49:09 No.4617072 Report
+Quoted By: >>4617107 >>4617109
+>>4617063
+I vote for getting ourselves captured. Then we can meet up with Katina!
+Ratsel Feinschmecker !VFYL66iWMA Mon 01 Mar 2010 03:51:09 No.4617086 Report
+>>4617058
+
+SOMEONE is looking fancy today.
+Anonymous Mon 01 Mar 2010 03:51:09 No.4617091 Report
+Quoted By: >>4617114
+>>4616986
+Eh, I still think this is just asking to be screwed up. But good luck, I'll be sitting this section out due to said conflict of interests.
+Anonymous Mon 01 Mar 2010 03:52:09 No.4617095 Report
+>>4617025
+Bian didn't have the Cybuster. Nor the Vysaga. Nor the Huckebein.
+
+Nor did he have motherfucking SM!Bullet.
+Sciencegar Sciencebolt Mon 01 Mar 2010 03:54:09 No.4617107 Report
+Quoted By: >>4617121 >>4617122 >>4617126 >>4617131 >>4617309
+>>4617072
+
+VOTES FOR FAILURE ARE NOT BEING PERMITTED. Votes are only allowed for actual strategies. Flawed strategies are ok as long as they're not obviously destined to fail.
+
+This is a vote for a plan, not for what actually happens in the plot. That comes later.
+
+Try to get some form of consensus before we hit autosage, please?
+Anonymous Mon 01 Mar 2010 03:54:09 No.4617109 Report
+>>4617072
+Nah, Barely escape and then try again the very next day, Fail and barely escape, Rinse and repeat several times until Yukiko sends a douchebag replacement that none in the team can stand and they all defect because some extremely silly reason.
+Ratsel Feinschmecker !VFYL66iWMA Mon 01 Mar 2010 03:55:09 No.4617114 Report
+>>4617091
+
+Indeed. I will also stand aside and observe.
+Haken Browning !zHe7DH816A Mon 01 Mar 2010 03:56:09 No.4617121 Report
+>>4617107
+Too late for that.
+
+C'mon, Shocker Team, we've got a bug-man prince to play head games with.
+Anonymous Mon 01 Mar 2010 03:56:09 No.4617122 Report
+>>4617107
+
+Delta Group, Smallest waith highest successrate, Would stop Group Gamma from getting too big.
+Stealthyboy !fchRKomfls Mon 01 Mar 2010 03:57:09 No.4617126 Report
+>>4617107
+Send the grunts on an obviously suicidal attack as a diversion.
+Hide the R-Series mechs somewhere and infiltrate the Trilobite.
+Find that Shine's already escaped. Bloody useless guards
+Anonymous Mon 01 Mar 2010 03:58:09 No.4617131 Report
+Quoted By: >>4617145
+>>4617107
+I think this was a terrible idea, Sciencegar. I mean, come on.
+
+We're the guys who make Katina try and rape everything. What do you think is going to happen if we're suddenly given control of a group of people our beloved psycho is opposed to, and we have never seen before?
+
+Of course we'll stuff it up.
+
+In any case, I'd say we use everyone as a distraction to get the Stealths filled with Shockers into and out of the base.
+Anonymous Mon 01 Mar 2010 03:59:09 No.4617139 Report
+Fine, test Targets Alpha & Beta's defenses. See what they're capable of, then retreat. If it looks like we can wipe them out without resorting to the SRX, attempt to do so. If not, attempt stealth entry and Shine rescue.
+Anonymous Mon 01 Mar 2010 04:00:09 No.4617145 Report
+>>4617131
+
+See it from this side, Hyper Incompetent MashymereYuuki, Do you really think he would try killing them? Even with his orders? I see this as comic relief.
+Anonymous Mon 01 Mar 2010 04:02:09 No.4617161 Report
+No, guys, you're doing it wrong. We need to take actions which would seem reasonable to Yuuki, but that we know can only possibly end in failure, mainly due to not knowing what the opposition is capable of.
+Anonymous Mon 01 Mar 2010 04:03:09 No.4617166 Report
+Also, Autosage get!
+Sanger Zombolt! Mon 01 Mar 2010 04:06:09 No.4617186 Report
+Fighting against our guys while knowing that doing TOO good will end up harming our efforts with Katina makes me have conflicted feelings about this.
+Anonymous Mon 01 Mar 2010 04:15:09 No.4617229 Report
+Quoted By: >>4617241 >>4617414
+How is this for a plan?
+
+R-1 Goes after Team Delta since it can transform it can out preform and intercept them, And Yuuki would be slowed down by any back up... According to himself.
+
+Stealth Team goes after Alpha Team, Led By R-3 and a 4 R-0es, Since the Tem leaders are all flyers they can emply Hit and run tactics while the R-0es give AA support.
+
+The rest attacks Beta team, Using Heavy bombardment from a range, with the R-oes giving support to the R-2 and R-Gun in Metal Genocider mode.
+
+Also, Obsess about honour.
+Anonymous Mon 01 Mar 2010 04:18:09 No.4617241 Report
+>>4617229
+Sounds good. Be overconfident, after all, SRX solo'd Bian, clearly these guys will be NO threat at all in comparison.
+Sanger Zombolt! Mon 01 Mar 2010 04:27:09 No.4617309 Report
+Quoted By: >>4617324 >>4617339 >>4617478
+>>4617107
+Anyway, the SRX is perphaps one of the most powerfull mechs there is in the entire OG-verse, so plan:
+
+Deploy the Shock troopers and wait until they can get close to the base without alerting anyone.
+
+When they do, combine and shoot the HTB cannon two times:
+
+One at the Shadow Mirrors. Destroy the trillobites and every single person inside it.
+
+The second at the DC base. Same thing, kill everyone inside those ships.
+
+Then have team A of the troopers infiltrate the Irregulars and steal the DGGs mid-confusion, and have them kill as many people there as possible.
+
+Have team B try to capture the few SM mechs that remain.
+
+Team C infiltrates the DC base in ruins to recover Shine.
+
+Then separate the team completely whith each guy going into different directions so we are harder to track down. Reunite at a preestablished location.
+
+This should take no more than 10 minutes.
+Sanger Zombolt! Mon 01 Mar 2010 04:28:09 No.4617324 Report
+Quoted By: >>4617345
+>>4617309
+Also, how strong are Tronium explosions?
+Anonymous Mon 01 Mar 2010 04:30:09 No.4617339 Report
+Quoted By: >>4617357
+>>4617309
+This is too good a plan! We want the SRX team to FAIL remember?
+Anonymous Mon 01 Mar 2010 04:31:09 No.4617345 Report
+>>4617324
+Strong enough to blow up fortresses into little pieces.
+Sciencegar Sciencebolt Mon 01 Mar 2010 04:32:09 No.4617354 Report
+Quoted By: >>4617402 >>4617414
+>One at the Shadow Mirrors. Destroy the trillobites and every single person inside it.
+
+>Team C infiltrates the DC base in ruins to recover Shine.
+
+Shine is in one of the Trilobites. These two objectives are mutually incompatible. Also, destroying the trilobites makes it difficult at best to recover anything useful from the wreckage: The HTB cannon doesn't leave much behind.
+
+>Also, how strong are Tronium explosions?
+
+Too strong. Also, if you lose any tronium, Yuuki might as well slit his own throat now rather than go back to base (Only 6 pieces in existence, remember? Maybe even less in this universe.)
+Sanger Zombolt! Mon 01 Mar 2010 04:33:09 No.4617357 Report
+Quoted By: >>4617366
+>>4617339
+But the SRX team doesn't. I am playing in-character here.
+
+Also, I want to see Katina's face once she sees the base in pieces.
+Anonymous Mon 01 Mar 2010 04:34:09 No.4617366 Report
+>>4617357
+I'd rather see SRX vs. SRX, myself...
+Anonymous Mon 01 Mar 2010 04:37:09 No.4617393 Report
+Quoted By: >>4617412
+>>4617383
+What are the chances of Katina ariving during the middle of this and Deus ex Machina-ing?
+Sanger Zombolt! Mon 01 Mar 2010 04:38:09 No.4617402 Report
+Quoted By: >>4617415 >>4617478
+>>4617383
+>>4617354
+If that's the case, have the shock trooper team investigate in which trillobite Shine is being held in. Then have 3 guys use their Solid Snake skills to capture her and bring her out.
+
+Save her and then get the fuck out of there in the Vysaga, the Thrud and the Huckebein.
+
+THEN we use the HTB cannon to blow up stuff before the guys can react to the mechs being stolen.
+
+Then plan keeps being the same. Use the confusion to steal the DGGs with seven other shock troopers.
+Sanger Zombolt! Mon 01 Mar 2010 04:40:09 No.4617412 Report
+Quoted By: >>4617419
+>>4617393
+This would actually be a great moment for the DEFENDER OF JUSTICE to shine.
+Anonymous Mon 01 Mar 2010 04:40:09 No.4617414 Report
+>>4617354
+
+How about >>4617229
+
+Ot might spread the forces a bit thin, But i think it is still viable.
+Anonymous Mon 01 Mar 2010 04:40:09 No.4617415 Report
+>>4617402
+You seem to be forgetting that going SRX is a weapon of last resort.
+Sanger Zombolt! Mon 01 Mar 2010 04:41:09 No.4617419 Report
+Quoted By: >>4617426
+>>4617412
+Seriously, I am not expecting my plan to work. Something will go incredibly wrong.
+Anonymous Mon 01 Mar 2010 04:41:09 No.4617426 Report
+Quoted By: >>4617429 >>4617433
+>>4617419
+Like sudden Vysaga from nowhere?
+Sanger Zombolt! Mon 01 Mar 2010 04:42:09 No.4617429 Report
+>>4617426
+Maybe. Maybe the DEFENDER OF EARTH will show up. Maybe Yuuki ends up killing himself for realz. Who knows?
+Anonymous Mon 01 Mar 2010 04:43:09 No.4617433 Report
+Quoted By: >>4617434
+>>4617426
+>Vysaga
+Whoops, meant Zweizergain. My brain isn't working right now. How close are we to new thread?
+Sanger Zombolt! Mon 01 Mar 2010 04:43:09 No.4617434 Report
+Quoted By: >>4617440
+>>4617433
+More than 270 posts.
+
+We are already dead.
+Anonymous Mon 01 Mar 2010 04:44:09 No.4617440 Report
+>>4617434
+Hope that Sciencegar hurries, then.
+Sciencegar Sciencebolt Mon 01 Mar 2010 04:48:09 No.4617463 Report
+Quoted By: >>4617467
+The suggestions are still coming in, I'd like to hear a few more before I start the next thread. I'm hoping to put it in a someway interactive format, rather than just narrate the battles.
+Anonymous Mon 01 Mar 2010 04:49:09 No.4617467 Report
+>>4617463
+Fair enough.
+Anonymous Mon 01 Mar 2010 04:51:09 No.4617478 Report
+>>4617402
+>>4617309
+
+This as long as Shuu saves us.
+Sciencegar Sciencebolt Mon 01 Mar 2010 04:55:09 No.4617491 Report
+Quoted By: >>4617512
+Also, I notice everyone's forgotten you have the Kurogane for backup as well. I might not have made that entirely clear.
+Sanger Zombolt! Mon 01 Mar 2010 04:58:09 No.4617512 Report
+Quoted By: >>4617533
+>>4617491
+Leeave it as a back-up plan then.
+
+If everything else fails, have the Kurogane show up mid-battle by suddenly drilling it's way to the surface in the middle of the base, which we then use to evacuate the battlefield. Then the Kurogane drills it's way into the ground again and makes it impossible for the enemies to follow us effectively without leaving their wounded alone.
+Anonymous Mon 01 Mar 2010 05:01:09 No.4617533 Report
+Quoted By: >>4617635
+>>4617512
+As long as the SRX team fails to kill any important characters (except maybe Echidna) and to rescue Shine, I support Sanger's plan
+Anonymous Mon 01 Mar 2010 05:14:09 No.4617609 Report
+I think we need new topic. This one is dead.
+Anonymous Mon 01 Mar 2010 05:23:09 No.4617635 Report
+>>4617533
+
+As long as Yuuki is a Mashymere anything is fine by me.
+Subject
+Name
+E-mail
+Password
+FoolFuuka Imageboard 2.0.1 - Asagi Fetcher
+Change Theme
+Change Language
 FAQ - Credits & Links - Network Status - Blog
