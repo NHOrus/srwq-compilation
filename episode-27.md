@@ -1,181 +1,25 @@
-Archives: [ a / biz / c / co / diy / gd / int / jp / m / out / po / q / sci / sp / tg / tv / vg / vp / vr / wsg ] Boards: [ dev / foolz / neet ]
- /m/ - Mecha  
-4chan 
-Index
- 
-Ghost
-Gallery
-Stats
- 
- 
- 179KiB, 850x1156, SRW64 Soldifar.jpg 
-View SameGoogleiqdbSauceNAO 
-SRWQ Mission 27: Why cause problems for yourself when you can cause problems for everybody? Sciencegar Sciencebolt Fri 26 Feb 2010 01:40:08 No.4596249 ViewReplyOriginalReport 
- Quoted By: >>4596273 
- Previous threads listed here: http://teamphantomtiger.blogspot.com/2010/02/srw-quest-sciencegar-sciencebolt-joint.html#more
+# Episode 27
 
- In our last thrilling installment:
+## SHADOW MIRROR QUEST (AKA SRW Q)
 
- Having infiltrated Hellgate, hijacked Professor Juergen's ODE system, and restored our AI partner Dumi to his true Duminass form, our heroine Katina Tarask went about searching the Neviim for captive humans. She found Colonel Kar-Wai, Radha, and Tyutti Norbuck, and had an altercation with Patricia Hackman in an alien-enhanced Gespenst S, who had seen the destruction of Balmar and had sworn to defend the few remaining survivors. With the Neviim defenses assaulting them and the real Balmarians waking up, our heroes fled, to attempt to salvage the situation later.
+###SRWQ Mission 27: Why cause problems for yourself when you can cause problems for everybody?
+In our last thrilling installment:
 
- Now there's a couple of problems to deal with. One is the sphere full of pissed-off aliens. Another is the EFA fleet which is coming to investigate the commotion. Then there's the DC faction whose base you've just lost to the aliens. And finally, there are the rescued humans, who've been lost for years on the floating alien tomb, and have no idea that there's been a DC war, an Inspector war, and that the EFA is run by tentacle monsters now.
+Having infiltrated Hellgate, hijacked Professor Juergen's ODE system, and restored our AI partner Dumi to his true Duminass form, our heroine Katina Tarask went about searching the Neviim for captive humans. She found Colonel Kar-Wai, Radha, and Tyutti Norbuck, and had an altercation with Patricia Hackman in an alien-enhanced Gespenst S, who had seen the destruction of Balmar and had sworn to defend the few remaining survivors. With the Neviim defenses assaulting them and the real Balmarians waking up, our heroes fled, to attempt to salvage the situation later.
 
- WHAT SHALL OUR HEROINE DO? Anonymous Mk-II Fri 26 Feb 2010 01:44:08 No.4596273 Report 
->>4596249
-as if we give a shit about the balmar, the EFA and the poor DC guys. lets just go back to earth ASAP with the hostages. 
-Anonymous Fri 26 Feb 2010 01:46:08 No.4596282 Report 
- Quoted By: >>4596291 
->Submit to the tentacle monsters, get pregnant, and endlessly give birth. 
-Haken Browning !zHe7DH816A Fri 26 Feb 2010 01:48:08 No.4596291 Report 
->>4596282
-Sorry, I don't write BAD END.
+Now there's a couple of problems to deal with. One is the sphere full of pissed-off aliens. Another is the EFA fleet which is coming to investigate the commotion. Then there's the DC faction whose base you've just lost to the aliens. And finally, there are the rescued humans, who've been lost for years on the floating alien tomb, and have no idea that there's been a DC war, an Inspector war, and that the EFA is run by tentacle monsters now.
 
-Anyhoo, we're currently on Juergen's Peregrine. Operation "Throw Deluded Old Fart Out The Airlock" is go. 
-Haken Browning !zHe7DH816A Fri 26 Feb 2010 02:00:08 No.4596352 Report 
- Quoted By: >>4596377 
- So apparently Thread 26 isn't quite autosaging yet. Orders on that front? 
-Sciencegar Sciencebolt Fri 26 Feb 2010 02:09:08 No.4596377 Report 
->>4596352
+---
 
-I'll keep an eye on it. I will be doing an elsewhere or three in a little while, after initial votes on Katinas immediate dilemma. 
-Rick Dominated Fri 26 Feb 2010 02:17:08 No.4596425 Report 
- Book it out of there, get an accounting of our own survivors and see if we can possibly smooth things over with the Balmar once we have them at arms length. 
-Anonymous Fri 26 Feb 2010 02:28:08 No.4596479 Report 
- Go to Jurgens and see how much mechs and people we managed to save. 
-Anonymous Fri 26 Feb 2010 02:34:08 No.4596517 Report 
- Quoted By: >>4596549 
->>4596559 
->Tyutti Norbuck
+"Ok, Dumi, what exactly do we have at hand right now?"
 
-Try Tytti Norback. I'm Finnish, don't fuck with our name spelling. 
-Sciencegar Sciencebolt Fri 26 Feb 2010 02:41:08 No.4596545 Report 
- Quoted By: >>4596570 
->>4596574 
->>4596575 
->>4596790 
- "Ok, Dumi, what exactly do we have at hand right now?"
-
-Me. The Judecca unit from the Neviim, although how to pilot it, and whether that would be a good idea, are things I haven't figured out yet. The Eurydice, a Hiryu Mk.II class scout vessel captain by Despinis, who's desperately trying to convince here crew that the EFAs demands for explanations are fake. Despinis' mech, currently hidden behind a false wall in the Eurydice's hangar. The young woman Mai Kobayashi, who's still very disturbed by the whole affair and can't really do much. 287 Bartols, under my command, although Juergens could also operate them. The Peregrine-class ship 'Remember Elpis'. Professor Juergens and a small fraction of the equipment used in his ODE system, currently very unhappy and I keep having to promise him some of my technology to keep him placated. 5 high-mobility Bartol prototypes known as Mirongas, with no ODE system, and DC pilots for them. You and the Raioh. Ms. Hackman and an alien mech built around the frame of the original Gespenst-S. Jennifer Fonda, Radha Byran, Colonel Kar-Wai, Tyutti Norbuck, and 3 alien mechs.
+*Me. The Judecca unit from the Neviim, although how to pilot it, and whether that would be a good idea, are things I haven't figured out yet. The Eurydice, a Hiryu Mk.II class scout vessel captain by Despinis, who's desperately trying to convince here crew that the EFAs demands for explanations are fake. Despinis' mech, currently hidden behind a false wall in the Eurydice's hangar. The young woman Mai Kobayashi, who's still very disturbed by the whole affair and can't really do much. 287 Bartols, under my command, although Juergens could also operate them. The Peregrine-class ship 'Remember Elpis'. Professor Juergens and a small fraction of the equipment used in his ODE system, currently very unhappy and I keep having to promise him some of my technology to keep him placated. 5 high-mobility Bartol prototypes known as Mirongas, with no ODE system, and DC pilots for them. You and the Raioh. Ms. Hackman and an alien mech built around the frame of the original Gespenst-S. Jennifer Fonda, Radha Byran, Colonel Kar-Wai, Tyutti Norbuck, and 3 alien mechs.*
 
 "Huh. That's a lot to keep track of."
 
-ELSEWHERE NOW, OR MAKE A DECISION? 
-Sciencegar Sciencebolt Fri 26 Feb 2010 02:42:08 No.4596549 Report 
->>4596517
+---
 
-Apologies, but if it makes you feel any better, a bunch of other people got it wrong before I even heard the name. 
-Anonymous Fri 26 Feb 2010 02:43:08 No.4596559 Report 
->>4596517
-
-Now be fair, how was anyone supposed to guess it was that without prior knowledge? 
-Anonymous Fri 26 Feb 2010 02:46:08 No.4596570 Report 
->>4596545
-
-Put Kar Wei in the Gespenst. Put Hackman in nothing. Personally I've no preference for the other mechs. 
-
-Can we drag the Judecca with us? If so grab it and haul ass. 
-Anonymous Fri 26 Feb 2010 02:47:08 No.4596574 Report 
->>4596545
-Elsewhere now. 
-Anonymous Fri 26 Feb 2010 02:48:08 No.4596575 Report 
->>4596545
-Elsewhere. 
-Anonymous Fri 26 Feb 2010 02:49:08 No.4596583 Report 
- Quoted By: >>4596797 
->Put Hackman in nothing
-
-By which I mean keep her away from the mechs and anything with buttons that she could sabotage. 
-
-Thinking about it. I'd rather have Dumi in control of the Bartols than Juergens. And don't have Despinis get in her mech unless her crew actually starts to mutiny in which case have her flee in it. 
-Sanger Zombolt! Fri 26 Feb 2010 02:58:08 No.4596618 Report 
- Go with the elsewhere. 
-Anonymous Fri 26 Feb 2010 03:01:08 No.4596634 Report 
- elsewhere 
-Anonymous Fri 26 Feb 2010 03:32:08 No.4596790 Report 
->>4596545
-I'm cool with the Elsewhere, but do we have any proof of EFA tentacle mechness that we can give to Despinis to turn her crew to our side? Like gun-cam footage or something. 
-Anonymous Fri 26 Feb 2010 03:33:08 No.4596797 Report 
->>4596583
-Oh yeah. This too. 
-Couch Fri 26 Feb 2010 03:42:08 No.4596850 Report 
- Quoted By: >>4597035 
- Let Juergens keep the Bartools for now, it'll make him happier. This will also let Dumi focus on handling Judecca, and seeing if we can control or reverse-engineer that is a top priority in my opinion. Especially since our Machine Cells sound like they're prototypes, having access to Zyflud Crystals for further refinement will earn us points with Sophia and possibly convince her to join with us rather than the DC. Although, looking back, it seems like Dumi's doing some backstage dealings with her already. I'd like to get some of our allegiances cleared up in the near future, since it's difficult when we can't fully share anything we acquire with anyone we meet out of fear for what they'll do with it.
-
-Also, Juergen's not happy about having had his ODE System compromised, but perhaps we can turn him to our side with the suggestion that we might be able to provide additional minds for him? We (players, not Katina) know that W-Series work with the ODE System, so offering some of the mass-produced ones would perhaps be a viable way of convincing him and restoring some of the system's processing power.
-
-Otherwise, I agree on the elsewhere. Let's see what's going on planetside. 
-Anonymous Fri 26 Feb 2010 03:48:08 No.4596894 Report 
- Quoted By: >>4597035 
- did we bring the remains of the DGG-04? 
-Anonymous Fri 26 Feb 2010 04:07:08 No.4596993 Report 
- Quoted By: >>4597030 
- Elseware.
-
-Also can somebody repost the conspiracy chart? 
-View SameGoogleiqdbSauceNAO SRWQ Road Map 5.png,  112KiB, 1564x1146 
- 
-Haken Browning !zHe7DH816A Fri 26 Feb 2010 04:11:08 No.4597030 Report 
- Quoted By: >>4597056 
->>4597059 
->>4600352 
->>4596993
-Latest revision by Stealthyboy, vintage Mission 25A-ish. 
-Stealthyboy !fchRKomfls Fri 26 Feb 2010 04:12:08 No.4597035 Report 
->>4596894
-Seconding this question.
->>4596850
->Zyflud Crystals
-It's spelt Zfylud. Although technically it should be Zehirut anyway. 
-Stealthyboy !fchRKomfls Fri 26 Feb 2010 04:14:08 No.4597056 Report 
- Quoted By: >>4597070 
->>4597096 
->>4597030
-Aw fuck, I've got to link the Junkers to ODE. How the hell am I even going to fit the arrow in? 
-Anonymous Fri 26 Feb 2010 04:15:08 No.4597059 Report 
->>4597030
-This is absurdly and hilariously convoluted series of relationships.
-
-Just like it should be in SRW. 
-Anonymous Fri 26 Feb 2010 04:16:08 No.4597070 Report 
- Quoted By: >>4597080 
->>4597096 
->>4597056
-I think it needs to be remade from scratch.
-
-And include OGverse Arado connected to Katina under "wants to rape and have child with" 
-Stealthyboy !fchRKomfls Fri 26 Feb 2010 04:18:08 No.4597080 Report 
->>4597070
-Hell, I've not even put in any of the OGnumbers at all.
-These are just the people from the SMside... 
-Haken Browning !zHe7DH816A Fri 26 Feb 2010 04:22:08 No.4597096 Report 
- Quoted By: >>4597114 
->>4597056
->>4597070
-Further changes to chart:
-
-"Where are Machine Cells coming from?" Dumi let slip in Ep26 that he and Dark Brain slipped trial-grade ones in, IIRC.
-
-W-Series block: Axel has yet to be added to the list, and needs the following relationships coming from/to him:
->(Lamia) is wearing his clothes
->Wants to kill (Beowulf)
->Screwed (Lemon)
->Likely the father (Haken)
-
-Eurydice: Needs a big arrow stretching from the EFA to it, plus link back to Dumi(nass) via Despynis. 
-View SameGoogleiqdbSauceNAO SMverse conspiracy chart.png,  118KiB, 1564x1146 
- 
-Stealthyboy !fchRKomfls Fri 26 Feb 2010 04:25:08 No.4597114 Report 
->>4597096
-I've already started on some of these. 
-Sciencegar Sciencebolt Fri 26 Feb 2010 04:26:08 No.4597122 Report 
- Quoted By: >>4597144 
->>4597161 
->>4597170 
->>4597189 
->>4597236 
->>4597272 
->>4597305 
- Aidoneus Island
+Aidoneus Island
 
 The Kurogane fires again, across the heads of the enemy mechs, as the Irregulars race across the cratered surface of the deserted Island.
 
@@ -206,74 +50,14 @@ Excellen blinks. "Well, this is a pleasant surprise..."
 "COMPATIBLE KAISER!!! Vengence for innocent blood!!"
 
 "FIGHTERS ROAR AND EMMY! WE WILL SAVE THIS WORLD, OR DIE TRYING!!!" 
-Anonymous Fri 26 Feb 2010 04:27:08 No.4597128 Report 
- YES
 
-YES
+---
 
-YES
-
-YES 
-View SameGoogleiqdbSauceNAO 1265569484085.jpg,  38KiB, 640x480 
- 
-GUNDAMU !0smG1gQz9c Fri 26 Feb 2010 04:29:08 No.4597144 Report 
->>4597122
-OH GOD YES 
-View SameGoogleiqdbSauceNAO Fiesta Valsie.gif,  318KiB, 213x210 
- 
-Haken Browning !zHe7DH816A Fri 26 Feb 2010 04:31:08 No.4597161 Report 
->>4597122
-HNNNNNNNNNNNNGH. 
-View SameGoogleiqdbSauceNAO Katina Rapeface.png,  44KiB, 272x281 
- 
-Stealthyboy !fchRKomfls Fri 26 Feb 2010 04:33:08 No.4597170 Report 
- Quoted By: >>4597173 
->>4597273 
->>4597122
->>4597122
->>4597122
-!!!! 
-Haken Browning !zHe7DH816A Fri 26 Feb 2010 04:34:08 No.4597173 Report 
- Quoted By: >>4597186 
->>4597170
-Well, that tears it. Making an SRWQ folder now. 
-View SameGoogleiqdbSauceNAO Happy Katina.png,  76KiB, 208x270 
- 
-Stealthyboy !fchRKomfls Fri 26 Feb 2010 04:38:08 No.4597186 Report 
- Quoted By: >>4597273 
->>4597173
-I'm glad my over-reliance on sprite splicing has caused some good for once 
-Zeta Zaku Fri 26 Feb 2010 04:38:08 No.4597189 Report 
->>4597122
-YEEEEEEEEEEAH 
-Stealthyboy !fchRKomfls Fri 26 Feb 2010 04:47:08 No.4597228 Report 
- Quoted By: >>4597246 
- Hey, does anyone have the shaded SM!Granzon picture?
-I appear to only have the unshaded version... 
-NuBlackAnon !!z6ldXGL61Wm Fri 26 Feb 2010 04:49:08 No.4597236 Report 
->>4597122
-I just cooked some fried rice
-now its ALL PILOTS VS DAI EINST
-WHAT THE FUCK IS GOING ON THIS IS AWESOME 
-View SameGoogleiqdbSauceNAO Invincible Earth Liberation Warr (...).jpg,  66KiB, 561x455 
- 
-Haken Browning !zHe7DH816A Fri 26 Feb 2010 04:51:08 No.4597246 Report 
- Quoted By: >>4597252 
->>4597228
-BEEP BEEP BLIP BEEP...
-...SEARCH COMPLETE. BEEP BOOP. [/Thursday] 
-Stealthyboy !fchRKomfls Fri 26 Feb 2010 04:52:08 No.4597252 Report 
->>4597246
-Thanks. 
-Sciencegar Sciencebolt Fri 26 Feb 2010 04:54:08 No.4597259 Report 
- Quoted By: >>4597267 
->>4597270 
->>4597277 
- Darkest Africa
+Darkest Africa
 
 "And they didn't see you sneak out of the base?" Gilliam looks worriedly into the jungle.
 
-Ryuune shakes her head. " The DC are paranoid, but they're also undermanned, so security was far from unbeatable."
+Ryuune shakes her head. "The DC are paranoid, but they're also undermanned, so security was far from unbeatable."
 
 Sanger raises his head. "Did you learn anything more of this Sophia Nate and her machine cells?"
 
@@ -287,6 +71,7 @@ Ratsel sighs. "This world seems intent on dragging us further and further into i
 
 Gilliam nods. "Head on back, Ryuune, and keep us posted. We'll have to stay in the area regardless: If anything happens to that scanner..."
 
+---
 
 The Black Knight switches off the video feed and flips on her comms. "Director, more Irregulars have arrived at site DC-382. Appeared out of thin air. Theres an entire platoon of PT types, and 3 super robots."
 
@@ -297,178 +82,30 @@ The Black Knight switches off the video feed and flips on her comms. "Director, 
 The whisper comes over the comm from the Falken. "What kind of force are they sending that can stand a chance against all of this firepower?"
 
 "Theres really only one possibility. They must be sending Unit X itself..." 
-Stealthyboy !fchRKomfls Fri 26 Feb 2010 04:56:08 No.4597267 Report 
->>4597259
->They must be sending Unit X itself..."
-Oooooh fuckety fuck fuck.
-This is bad news.
-Someone may get shot into the sun... 
-Zeta Zaku Fri 26 Feb 2010 04:56:52 No.4597270  Report 
->>4597259
-Oh shit. OG NUMBERS VS. BAD!SRX TIEM? 
-View SameGoogleiqdbSauceNAO 91681986041660ce3fb63c0b1c6a1b53.jpg,  157KiB, 850x1100 
- 
-Rick Dominated Fri 26 Feb 2010 04:57:08 No.4597272 Report 
->>4597122
-FFFFFFFFFFFFFFFFFFFFFFFFUCK YEAH.
-I can't wait until we meet back up with these guys proper. 
-Sciencegar Sciencebolt Fri 26 Feb 2010 04:57:08 No.4597273 Report 
- Quoted By: >>4597289 
->>4597170
->>4597186
 
-These are awesome, but the head always looks just a little too large. That and the Latooni-boobs look out of place. 
-Zeta Zaku Fri 26 Feb 2010 04:58:08 No.4597277 Report 
->>4597259
-Ooooh shit. If the BM for this stage is to kill Bad!SRX then shit is about to get real.
+---
 
-Also, watch SM!Kurogane be equpped with a gigantic buzzsaw instead of a drill. 
-View SameGoogleiqdbSauceNAO StatlerWaldorf.jpg,  17KiB, 300x228 
- 
-Stealthyboy !fchRKomfls Fri 26 Feb 2010 05:01:08 No.4597289 Report 
->>4597273
-Yeah, I kinda thought that myself, but what can you do if all you have are OGs sprites to work with?
+"Wait, did we bring the DGG-04? I kinda wanted to give it to Irm for the time being while we make the Neo Grungust."
 
-Actually try to draw it?
-Do ho ho ho ho 
-Anonymous Fri 26 Feb 2010 05:04:08 No.4597305 Report 
- Quoted By: >>4597309 
->>4597313 
->>4597122
-...who? 
-Sciencegar Sciencebolt Fri 26 Feb 2010 05:05:08 No.4597309 Report 
->>4597305
-
-I have plans. One is a continuity thing, the other I expect will be a fan favorite. 
-Stealthyboy !fchRKomfls Fri 26 Feb 2010 05:07:08 No.4597313 Report 
->>4597305
-This is the Compatible Kaiser.
-
-http://srwog.velv.net/og_mecha/compatible_kaiser.html 
-Anonymous Fri 26 Feb 2010 05:08:08 No.4597319 Report 
- Quoted By: >>4597331 
- this is going to end up with a giant clusterfuck battle, i just know it. SM-verse kurogane wll attack the DC base, eventually pulling out their SRX. then the OG-vesre kurogane will show up too and pullout their SRX. then katina will descend from space with duminass and judecca. then beowulf will attack too because he was feeling left out. then something even more insane will happen.
-
-i'm ok with this. 
-Anonymous Fri 26 Feb 2010 05:12:08 No.4597331 Report 
- Quoted By: >>4597392 
->>4597396 
->>4597319
->then something even more insane will happen.
-
-Cobray will show up. 
-Anonymous Fri 26 Feb 2010 05:23:08 No.4597371 Report 
- please tell me Gunleon will show up soon. 
-Anonymous Fri 26 Feb 2010 05:29:08 No.4597392 Report 
- Quoted By: >>4597396 
->>4597331
-And then the explosion produced by the ensuing battle tears a hole in reality itself allows Dark Brain to fuck shit up in this universe too and then abnormalities start happening.
-
-THEN!
-
-CHOOSE YOUR FAVORITE MECHA SERIES! 
-Anonymous Fri 26 Feb 2010 05:31:08 No.4597396 Report 
->>4597331
-Seeing the OG guys will be forced to affect the happenings in this world, it wouldn't surprise me if the time police showed up. Then:
-
->>4597392
-
-Happens. 
-Sciencegar Sciencebolt Fri 26 Feb 2010 05:34:08 No.4597411 Report 
- Quoted By: >>4597424 
->>4597435 
->>4597437 
->>4597446 
- "Wait, did we bring the DGG-04? I kinda wanted to give it to Irm for the time being while we make the Neo Grungust."
-
-I absorbed it into my body to save space, I can produce it again once we get back.
+*I absorbed it into my body to save space, I can produce it again once we get back.*
 
 "Cool. Any luck with the Judecca?"
 
-Its almost done. These crystals in its armor...they're quite extraordinary, and their potential properties tell me a great deal about what the Balmarians were capable of at their hieght. Any luck with Hackman?
+*Its almost done. These crystals in its armor... they're quite extraordinary, and their potential properties tell me a great deal about what the Balmarians were capable of at their hieght. Any luck with Hackman?*
 
-"Er...she's groggy, but she'll be fine, she's asking that we speak with the Balmarians right away...Uh, Dumi, the DC people are giving me a lot of dirty looks...You have a contingency plan, right?"
+"Er... she's groggy, but she'll be fine, she's asking that we speak with the Balmarians right away... Uh, Dumi, the DC people are giving me a lot of dirty looks... You have a contingency plan, right?"
 
-The battleship has several links to the ODE system, so I have a backdoor into its controls if we need to hijack it. As for personal combat, I'm sure you and your new friends can handle that.
+*The battleship has several links to the ODE system, so I have a backdoor into its controls if we need to hijack it. As for personal combat, I'm sure you and your new friends can handle that.*
 
-WHAT SHALL WE PRIORITISE? The Balmars, the EFA, the DC and the rescued people are all things that have to be dealt with, and there may be other issues to handle too. 
-Stealthyboy !fchRKomfls Fri 26 Feb 2010 05:37:08 No.4597424 Report 
- Quoted By: >>4597435 
->>4597437 
->>4597411
-The Balmarians have the fastest chance to fuck our shit up.
-I reccomend we try talking with them first, before the EFA get here and it becomes a clusterfuck.
-Maybe we could even get them on our side. 
-Anonymous Fri 26 Feb 2010 05:40:59 No.4597435  Report 
->>4597411
-Before dealing with the EFA or the Balmarians we need the manpower, so prioritize the recued people and the DC. Try to confort them and make them trust us. Let Dumi do the talking, of course, and ask him to take a more "trustworthy" appearance. People will hardly listen to a giant red eyeball.
+---
 
-Then, when all is said and done, deal with the EFA somehow. The Balmars can wait. We currently don't have a fast way to make them our allies so there.
-
-And then do what:
-
->>4597424
-
-Said. 
-Anonymous Fri 26 Feb 2010 05:41:08 No.4597437 Report 
- Quoted By: >>4597448 
->>4597411
-Before dealing with the EFA or the Balmarians we need the manpower, so prioritize the recued people and the DC. Try to confort them and make them trust us. Let Dumi do the talking, of course, and ask him to take a more "trustworthy" appearance. People will hardly listen to a giant red eyeball.
-
-And then do what:
-
->>4597424
-
-Said. 
-Anonymous Fri 26 Feb 2010 05:43:08 No.4597446 Report 
->>4597411
-Begin Communications with the Balmar. Placate the DC, their job is to stop INVADING alien forces, not refugees also give them the rescued people. Team up with both to fight the EFA. 
-Haken Browning !zHe7DH816A Fri 26 Feb 2010 05:44:08 No.4597448 Report 
- Quoted By: >>4598291 
->>4597437
-And by "more 'trustworthy'" we mean the fem!Dumi body we've been clamoring for since Ep25. 
-Anonymous Fri 26 Feb 2010 05:48:08 No.4597462 Report 
- Quoted By: >>4597528 
- Take this opportunity to incite the Balmar to attack earth. With their forces splintered, Earth will have no choice but to unite against the common enemy. Earth ends up unified, the First and Only get found out and get their asses kicked when they eventually get brought to light, and everybody's happy.
-
-Either that, Earth is wiped out when it's fractured government can't respond efficiently, and our new Balmarian overlords take over the planet.
-
-...Okay, maybe this wasn't the best idea after all. 
-Anonymous Fri 26 Feb 2010 05:49:08 No.4597470 Report 
- Start chatting with the Balmerians 
-Stealthyboy !fchRKomfls Fri 26 Feb 2010 06:02:08 No.4597528 Report 
->>4597462
-Bad plan is bad. 
-Gamlin !Xb1uRYUg66 Fri 26 Feb 2010 06:04:08 No.4597534 Report 
- Quoted By: >>4597557 
->>4597605 
- Tell the DC that the EFA are on their way to rape our shit, but we should be able to win if we properly negotiate and make nice with the Balmars.
-
-Tell them that it's either side with aliens or die to Beowulf (probably lying about Beowulf, but bringing his name up will possibly pacify them for now) 
-Stealthyboy !fchRKomfls Fri 26 Feb 2010 06:10:08 No.4597557 Report 
->>4597534
-This might work. I second this. 
-Anonymous Fri 26 Feb 2010 06:27:08 No.4597605 Report 
->>4597534
-This. Also bring that up in negotiation with the Balmarians. 
-
-"So I'm a representitive of the only faction that /won't/ want to kill you guys out of hand. How about we trounce the EFA fleet together and then work out how to get you guys a home?" 
-Anonymous Fri 26 Feb 2010 06:48:08 No.4597677 Report 
- Who here doesn't want a bad end where everyone dies horrible, painful deaths at the hand of Keisar Ephes and then are enslaved by him and forced to forever exist in a realm of eternal suffering that noone will ever save them from?
-
-I do. 
-Sciencegar Sciencebolt Fri 26 Feb 2010 06:56:08 No.4597704 Report 
- Quoted By: >>4597711 
->>4597720 
->>4597744 
->>4598719 
-Alright, Katina, I have a wavelength to the Balmar ship. You and Patricia start negotiations, while I talk to Juergens about things.
+*Alright, Katina, I have a wavelength to the Balmar ship. You and Patricia start negotiations, while I talk to Juergens about things.*
 
 "Cool!" You pull the comm unit over to Patricia's bedside, and await her transmission.
 
 "This is Patricia Hackman, er, Sample PD/NT-001. I must talk to Laodicea Gozzo immediately, it concerns the humans."
 
-There is no response for a minute or two, then a man's voice, with a tinny quality similar to Aquijas translation unit, comes over the comms. "Hackman...We've ascertained you're not on the Neviim anymore. What exactly has happened?"
+There is no response for a minute or two, then a man's voice, with a tinny quality similar to Aquijas translation unit, comes over the comms. "Hackman... We've ascertained you're not on the Neviim anymore. What exactly has happened?"
 
 "Er, well..."
 
