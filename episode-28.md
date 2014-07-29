@@ -4,33 +4,17 @@
 
 ###SRWQ Mission 28: You got sum 'splainin' to do, missy!
 
-Last time, our heroine had a more responsible role, as she directed Dumi to help organise a refugee fleet, negiotiate with the newly awakened Balmarians, and call in support from Earth in the form of the Granzon. But now she faces her most terrifying challenge yet: Explaining exactly what the fuck is happening to her colleagues. Anonymous Sat 27 Feb 2010 04:54:44 No.4603472 Report 
->Better than Gunranger thread. 
-Anonymous Sat 27 Feb 2010 04:56:44 No.4603478 Report 
->Explaining exactly what the fuck is happening to her colleagues.
-Oh shit. 
-View SameGoogleiqdbSauceNAO 1242193532991.png,  880KiB, 1018x1324 
- 
-Archibald Grims !SonOfAYvRI Sat 27 Feb 2010 04:56:44 No.4603482 Report 
- Quoted By: >>4603489 
->>4604407 
->>4603468 
-Anonymous Sat 27 Feb 2010 04:58:44 No.4603489 Report 
- Quoted By: >>4603495 
->>4603482
-Get rid of the sports bra and then we'll start talking. 
-Sciencegar Sciencebolt Sat 27 Feb 2010 04:59:44 No.4603493 Report 
- Quoted By: >>4603509 
->>4603542 
->>4603560 
->>4603616 
- "Woah! Awesome work, Shuu! You took out that whole fleet, in, what, two minutes?"
+Last time, our heroine had a more responsible role, as she directed Dumi to help organise a refugee fleet, negiotiate with the newly awakened Balmarians, and call in support from Earth in the form of the Granzon. But now she faces her most terrifying challenge yet: Explaining exactly what the fuck is happening to her colleagues.
+
+---
+
+"Woah! Awesome work, Shuu! You took out that whole fleet, in, what, two minutes?"
 
 "146 seconds, to be precise. And I'd hardly call 4 EFA ships and PT support a true fleet."
 
 "Still, thats an awful lot of ass-whuppin' in that old can."
 
-"Yes...Ms. Tarask, can I ask you a few things?"
+"Yes... Ms. Tarask, can I ask you a few things?"
 
 "Eh, sure..."
 
@@ -42,249 +26,6 @@ Sciencegar Sciencebolt Sat 27 Feb 2010 04:59:44 No.4603493 Report
 
 "Now now, Mr. Kitamura, wait your turn..."
 
-WHAT SHALL KATINA ANSWER FIRST? 
-View SameGoogleiqdbSauceNAO 1242367463351.png,  24KiB, 260x401 
- 
-Archibald Grims !SonOfAYvRI Sat 27 Feb 2010 04:59:44 No.4603495 Report 
- Quoted By: >>4603499 
->>4603501 
->>4603489
-Ok, sports bra gone. 
-Anonymous Sat 27 Feb 2010 05:00:44 No.4603499 Report 
->>4603495
-t-t-t-torpedoes!
-HOLY ERECTION BATMAN 
-Anonymous Sat 27 Feb 2010 05:00:44 No.4603501 Report 
->>4603495
-I'LL GET YOU NEXT TIME, ARCHIBALD GRIMMS! NEXT TIIIIIIME! 
-Anonymous Sat 27 Feb 2010 05:01:09 No.4603502  Report 
->>4603467
-We are tired of your spam and bullshit at www. ãＮÒＮＴäｌK .com. Stop fucking with us. You owe Sysop over $10,000 USD due to your harassments. Pay up by donating. 
-Stealthyboy !fchRKomfls Sat 27 Feb 2010 05:02:44 No.4603509 Report 
->>4603493
-Let Kai go see Kar-Wai while we explain everything to Shuu. 
-Stealthyboy !fchRKomfls Sat 27 Feb 2010 05:05:44 No.4603532 Report 
- Also, with what was being talked about at the end of thread 27, I'd say we should continue over the weekend.
-Fuck the troll kiddies. 
-Anonymous Sat 27 Feb 2010 05:07:44 No.4603542 Report 
- Quoted By: >>4603555 
->>4603493
-"The brean-shaped creature is a hallucination. It does not exist."
-
-"Bu-"
-
-"HALLUCINATION."
-
-
-Seriously though
-
-"The asteroid is an alien refugee ship filled with refugee aliens after their planet got eaten, they've been in stasis for the past bunch of years thanks to the brain-thing, which was passing by when it saw what it believed to be an invasion force and being the good brain-thing it was decided to intervene (this went badly for all involved) and it should be leaving for unknown places ANY MINUTE NOW, the mechaniloid is the aliens, we kinda took it on the way out, the DC were camping inside the aliens ship while they were in stasis, the EFA ship was captained by a freind of Du-d...*falter here for a second (Dumi is 'dead' remember)*...Dumi's, one of Dumi's friends, and finally...Brainwave resonance...?" 
-Anonymous Sat 27 Feb 2010 05:11:44 No.4603555 Report 
->>4603542
->cont, just realised what it was
-"...OH RIGHT, that must be the ODE system. Dumi....Dumi managed to steal control of it from the DC guys, its basically a massive AI hivemind in control of about...200ish mechs right now."
-
-Wistful stare goes here, RIP Dumi...Long live Duminass! 
-Archibald Grims !SonOfAYvRI Sat 27 Feb 2010 05:12:44 No.4603556 Report 
- Quoted By: >>4603563 
- How will our heroine get out of this? 
-Anonymous Sat 27 Feb 2010 05:12:44 No.4603560 Report 
->>4603493
-Let's go see Kar Wai while explaining our whole adventure to Shuu. 
-Anonymous Sat 27 Feb 2010 05:13:44 No.4603563 Report 
->>4603556
-By explaining everything clearly, pretending that Dumi is dead and that it has ABSOLUTELY NO CONNECTION AT ALL TO DUMINASS. NOPE. NO WAY. ANYONE WHO SAYS OTHERWISE IS A DIRTY LIAR. 
-Anonymous Mk-II Sat 27 Feb 2010 05:25:44 No.4603616 Report 
- Quoted By: >>4603686 
->>4603493
-there is no point in lying to shuu. explain everything except the duminas thing and explain him with blend twisting formulas that the eyeball thing is a weather ballon sent by the EFA. WEATHER BALLON 
-SEED D Cagalli !!U5xc0wG3iH0 Sat 27 Feb 2010 05:41:44 No.4603686 Report 
- Quoted By: >>4603704 
->>4603616
-
-I'm now requesting Drawfaggotry of Katina hugging Duminuss, both in chibi form. 
-Anonymous Sat 27 Feb 2010 05:43:44 No.4603704 Report 
- Quoted By: >>4603717 
->>4603735 
->>4603686
-Seconded. Everyone knows Duminass is the most ADORABLE eldritch abomination evar. 
-View SameGoogleiqdbSauceNAO Tsubaki.jpg,  82KiB, 225x350 
- 
-SEED D Cagalli !!U5xc0wG3iH0 Sat 27 Feb 2010 05:46:44 No.4603717 Report 
- Quoted By: >>4603730 
->>4603735 
->>4603740 
->>4603704
-
-I'd say Tsubaki from Fafner's the cutest. But Duminuss is a close second. 
-Anonymous Sat 27 Feb 2010 05:49:44 No.4603730 Report 
->>4603717
-Yes, I think this is something we can all agree on. Probably. Possibly. Maybe. 
-View SameGoogleiqdbSauceNAO sayanouta022tj5.jpg,  275KiB, 800x600 
- 
-Anonymous Sat 27 Feb 2010 05:50:44 No.4603735 Report 
- Quoted By: >>4603737 
->>4603740 
->>4603742 
->>4603717
->>4603704
->Bitches don't know about mah Saya 
-SEED D Cagalli !!U5xc0wG3iH0 Sat 27 Feb 2010 05:51:44 No.4603737 Report 
- Quoted By: >>4603739 
->>4603746 
->>4603735
-
-But is Saya as awesome as Tsubaki? 
-Anonymous Sat 27 Feb 2010 05:52:44 No.4603739 Report 
->>4603737
-Yes. 
-View SameGoogleiqdbSauceNAO 1252897713830.jpg,  109KiB, 608x467 
- 
-Anonymous Mk-II Sat 27 Feb 2010 05:52:44 No.4603740 Report 
- Quoted By: >>4603748 
->>4603761 
->>4603717
->>4603735
-bollocks.
-this is how CUTE looks like. 
-Anonymous Sat 27 Feb 2010 05:52:44 No.4603742 Report 
- Quoted By: >>4603752 
->>4603735
-But that's because the main character is crazy. Saya is ugly as shit. Literaly. 
-Anonymous Sat 27 Feb 2010 05:53:44 No.4603746 Report 
->>4603737
-I think Saya no Uta's a pretty cool guy.
-
-Eh turns all of humanity into horrible monsters and doesn't afraid of anything.
-
-And as the game goes on also becomes more human as her human lover becomes less human. 
-SEED D Cagalli !!U5xc0wG3iH0 Sat 27 Feb 2010 05:54:44 No.4603748 Report 
->>4603740
-
-Unless the cute thing is also a Cosmic Horror it's not a candidate.
-
-Now if you had posted XN Geist... 
-Anonymous Sat 27 Feb 2010 05:54:44 No.4603752 Report 
- Quoted By: >>4603760 
->>4603763 
->>4603742
-You're going to let physical appearance get in the way of cuteness? Look at her personality, damnit! A d'aww-able. 
-SEED D Cagalli !!U5xc0wG3iH0 Sat 27 Feb 2010 05:56:44 No.4603760 Report 
- Quoted By: >>4603768 
->>4603752
-
-Tsubaki also is a Cosmic Horror that teaches other Cosmic Horrors about the nature of life and death. Not to mention she's a huge bait and switch because the first person like her was a total asshole, and she's someone who puts every else first and makes friends and saves the island time and time again. 
-Haken Browning !zHe7DH816A Sat 27 Feb 2010 05:57:44 No.4603761 Report 
->>4603740
-D'AWW GESPENSTO!
-
-(Forgive the delay in archiving. Pizza run. See y'all on JT.) 
-Anonymous Sat 27 Feb 2010 05:57:44 No.4603763 Report 
- Quoted By: >>4603768 
->>4603769 
->>4603779 
->>4603752
-She kills and eats people daily, has a warped sense of love that is entiirely edefined by a drive for sex and has a douche for a fiance that doesn't care about killing his friends who are actually trying to save him from his fate, just because he loves a thing that doesn't exist. And this girl approves of all that. 
-Anonymous Sat 27 Feb 2010 05:59:44 No.4603768 Report 
->>4603760
-This one sounds nicer than:
->>4603763 
-Anonymous Sat 27 Feb 2010 05:59:44 No.4603769 Report 
->>4603763
->and has a douche for a fiance that doesn't care about killing his friends who are actually trying to save him from his fate, just because he loves a thing that doesn't exist.
-Insert joke about marriage here. 
-View SameGoogleiqdbSauceNAO 017.gif,  19KiB, 550x400 
- 
-Anonymous Sat 27 Feb 2010 06:02:44 No.4603777 Report 
- Quoted By: >>4603782 
- CTHULHU WAS HERE
-
-ALL OTHER COSMIC HORRORS ARE FAGGOTS 
-View SameGoogleiqdbSauceNAO CynthiaFOR REAL22222rfdsfs.png,  5KiB, 286x197 
- 
-Anonymous Sat 27 Feb 2010 06:02:44 No.4603779 Report 
->>4603763
-Just like marriage, amiright? 
-View SameGoogleiqdbSauceNAO P2TimeCount.jpg,  60KiB, 292x231 
- 
-Brave Exkaiser will Never Die Sat 27 Feb 2010 06:03:44 No.4603782 Report 
- Quoted By: >>4603835 
->>4603839 
->>4603860 
->>4603777
-You are smallest time. 
-View SameGoogleiqdbSauceNAO nya.jpg,  52KiB, 565x800 
- 
-Anonymous Sat 27 Feb 2010 06:18:44 No.4603835 Report 
- Quoted By: >>4603839 
->>4603860 
->>4603782
-No. You. ♥ 
-View SameGoogleiqdbSauceNAO tatsuya.jpg,  17KiB, 198x235 
- 
-Brave Exkaiser will Never Die Sat 27 Feb 2010 06:19:44 No.4603839 Report 
- Quoted By: >>4603854 
->>4603782
->>4603835
-Talking to yourself again, Nyarly? 
-View SameGoogleiqdbSauceNAO nyarlathotep_black_web.jpg,  145KiB, 700x662 
- 
-Anonymous Sat 27 Feb 2010 06:23:44 No.4603854 Report 
- Quoted By: >>4603860 
->>4603839
-Yes. Its quite entertaining. 
-Anonymous Sat 27 Feb 2010 06:25:44 No.4603860 Report 
- Quoted By: >>4603863 
->>4603782
->>4603835
->>4603854
-Obvious samefag 
-Brave Exkaiser will Never Die Sat 27 Feb 2010 06:26:44 No.4603863 Report 
->>4603860
-No, one of tho-
->not talking about posters 
-Anonymous Sat 27 Feb 2010 06:30:44 No.4603877 Report 
- Quoted By: >>4603881 
- Nyarlathotep is more "just as planned" than adorable, though. 
-Anonymous Sat 27 Feb 2010 06:31:44 No.4603881 Report 
->>4603877
-Oh it can get pretty adorable if it wants to. You haven't seen its clumsy maid routine. 
-View SameGoogleiqdbSauceNAO Kirby.jpg,  128KiB, 500x400 
- 
-Anonymous Sat 27 Feb 2010 06:35:44 No.4603912 Report 
- Quoted By: >>4603922 
->>4603925 
- HAAAAAAII 
-View SameGoogleiqdbSauceNAO 1263713502542.jpg,  108KiB, 600x350 
- 
-Anonymous Mk-II Sat 27 Feb 2010 06:36:44 No.4603920 Report 
- time to indulge myself! 
-Anonymous Sat 27 Feb 2010 06:36:44 No.4603922 Report 
- Quoted By: >>4603974 
->>4603912
-...And coming straight out of left field, we have a winner. 
-View SameGoogleiqdbSauceNAO kirby (1).jpg,  29KiB, 457x426 
- 
-Anonymous Sat 27 Feb 2010 06:37:44 No.4603925 Report 
- Quoted By: >>4603932 
->>4603912
-HAAaaAAaaAAaaIIII 
-View SameGoogleiqdbSauceNAO KIRBY_HD_by_keichishoshuko.jpg,  90KiB, 500x441 
- 
-Anonymous Sat 27 Feb 2010 06:37:44 No.4603932 Report 
- Quoted By: >>4603948 
->>4603925
-HAAAAAAARRRRRRRGH 
-Anonymous Sat 27 Feb 2010 06:38:44 No.4603939 Report 
- Cagalli, this is all your fault! 
-Sciencegar Sciencebolt Sat 27 Feb 2010 06:39:44 No.4603944 Report 
- Quoted By: >>4603952 
->>4603962 
->>4603963 
->>4603986 
->>4603990 
->>4604020 
->>4604111 
  "Blah-blah"
 
 "Long-sleeping alien refugees, ok."
@@ -301,9 +42,9 @@ Sciencegar Sciencebolt Sat 27 Feb 2010 06:39:44 No.4603944 Report
 
 "ODE System, interesting."
 
-"Um....Er...And...Thing.."
+"Um... Er... And... Thing.."
 
-"Died heroically fighting off 300 mad alien chainsaw robots and a giant dragon with a fez....I see. Fair enough. And about the brain thing?"
+"Died heroically fighting off 300 mad alien chainsaw robots and a giant dragon with a fez... I see. Fair enough. And about the brain thing?"
 
 "Weather Balloon."
 
@@ -319,11 +60,11 @@ You're not very good at this whole lying thing, are you Katina?
 
 You set your comms to silent and hiss into your earpiece. "Dumi, help me out here! What am I meant to tell them about you?"
 
-I'm not sure how lying would have any better an outcome than simply telling the truth. My goals, both personal and those set by my master, aren't going to change. I still want to help you, Katina, even if I have to go over the heads of the Shadow Mirrors and do their jobs for them. The trouble is reconciling all the disparate elements you want to unite. The Shadow Mirrors can be made to trust me again, or at least most of them. The DC may respect my power, but mistrust my origins. The Irregulars are probably going to treat me as an enemy. The Balmarians are unlikely to trust me completely, but have little choice. It's a matter of reconciling what you want with whats possible.
+*I'm not sure how lying would have any better an outcome than simply telling the truth. My goals, both personal and those set by my master, aren't going to change. I still want to help you, Katina, even if I have to go over the heads of the Shadow Mirrors and do their jobs for them. The trouble is reconciling all the disparate elements you want to unite. The Shadow Mirrors can be made to trust me again, or at least most of them. The DC may respect my power, but mistrust my origins. The Irregulars are probably going to treat me as an enemy. The Balmarians are unlikely to trust me completely, but have little choice. It's a matter of reconciling what you want with whats possible.*
 
-"But, uh...Maybe..."
+"But, uh... Maybe..."
 
-You're hardly out of options, Katina. You can try diplomacy. You can invent a proper lie to explain me. Or you can adjust your expectations, and realise you may have to give up some of the things you want.
+*You're hardly out of options, Katina. You can try diplomacy. You can invent a proper lie to explain me. Or you can adjust your expectations, and realise you may have to give up some of the things you want.*
 
 WHAT SHALL WE DO? I'd like more thought-out answers on any fibs we're going to be telling, or other coverup strategies. 
 View SameGoogleiqdbSauceNAO KIRRRRBY.jpg,  52KiB, 521x640 
