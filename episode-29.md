@@ -97,4 +97,8 @@ They're still going 'WTF??? Did Katina just electrocute that guy?'
 You only consulted Dumi on the Einstified Choukijins, no-one else. Thus everyone was equally taken by surprise.
 
 Also you're assuming they were all in their mechs and battle-ready. They were negotiating with the DC over the handover of the Bartols and ODE system, thats not a situations where you react quickly to your teammates beating up passersby and shouting incoherently.
+
+Could we hijack emotions from Bartools and ODE system? Do Machine Cells even work that way?
+
+Dumi said it did, but you didn't ask him the details. You have no idea whether it'd just happen, or if you'd need to do a week-long ritual of blood-sacrifice and naked warpaint dancing. 
 ```
