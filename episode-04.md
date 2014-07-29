@@ -328,13 +328,13 @@ The ELF is the Earth Liberation Front, an anti-EFA resistance group, one of the 
 
 Katina was in the ELF before she transferred out to TLI. There is still a lot of local support in parts of Europe for the ELF, but the vast majority of their forces are either dead or were part of the SM forces that just got decimated.
 
-You have no idea if anyone made it. About 90% of SM forces made it into the portal before it turned red. Then about a third of them were vomited back out, mostly in pieces. You're not even slightly qualified to guess what could have happened to the other 60%, and neither is anyone else here. [^2]
+You have no idea if anyone made it. About 90% of SM forces made it into the portal before it turned red. Then about a third of them were vomited back out, mostly in pieces. You're not even slightly qualified to guess what could have happened to the other 60%, and neither is anyone else here. 
 
 Japan is practically a fortress for the EFA, its the base of Project SRX, and the security over that is obscene: It's better protected than the EFA government.
 ```
 ---
 
-Kai twitches his mustache. "I was sort of being completest there, I don't actually know of any groups in the are-"
+Kai twitches his mustache. "I was sort of being completest there, I don't actually know of any groups in the are-"[^2]
 
 "ELF Brasilia branch, deep cover money laundering and hiding of equipment and personnel. Previously used for smuggling people and materials via Africa, before the EFA occupied the DC's underground base near Dakar."
 
@@ -414,8 +414,6 @@ Irm winces as you attempt to turn Arado's testicles to mash potato with your Kne
 "AAAARGH!! STOP, PLEASE!!! I'm from the other universe, the other one. Irm! Kai! Save me from her! AHHHH!!!"
 
 Kai still just watches. Irm, however, looks like he's about to say or do something.
-
----
 
 [^1]: I'm going to skip over the tearful consolation segment, because I have a penis and thus don't understand such things very well.
 
