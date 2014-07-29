@@ -232,7 +232,7 @@ Dumi helpfully patches you through to Ibis' Gespenst, and sure enough you hear t
 
 "She...she's run off again, on another crazy tangent, without a word! Just a stupid message, hidden in the OS of her mech. 'I have been chosen.' She said the same thing when she ran off to the DC, and again when she went to Shadow Mirror. What does that even mean? Why does she do this to me? We're practically family, why can't she stay in one place? *sniff* I just want us to go back home together..."
 
-~~skip [^1]~~
+~~skip~~ [^1]
 
 You dry your eyes and turn to Kai.
 
@@ -328,13 +328,13 @@ The ELF is the Earth Liberation Front, an anti-EFA resistance group, one of the 
 
 Katina was in the ELF before she transferred out to TLI. There is still a lot of local support in parts of Europe for the ELF, but the vast majority of their forces are either dead or were part of the SM forces that just got decimated.
 
-You have no idea if anyone made it. About 90% of SM forces made it into the portal before it turned red. Then about a third of them were vomited back out, mostly in pieces. You're not even slightly qualified to guess what could have happened to the other 60%, and neither is anyone else here. 
+You have no idea if anyone made it. About 90% of SM forces made it into the portal before it turned red. Then about a third of them were vomited back out, mostly in pieces. You're not even slightly qualified to guess what could have happened to the other 60%, and neither is anyone else here. [^2]
 
 Japan is practically a fortress for the EFA, its the base of Project SRX, and the security over that is obscene: It's better protected than the EFA government.
 ```
 ---
 
-Kai twitches his mustache. "I was sort of being completest there, I don't actually know of any groups in the are-"[^2]
+Kai twitches his mustache. "I was sort of being completest there, I don't actually know of any groups in the are-"
 
 "ELF Brasilia branch, deep cover money laundering and hiding of equipment and personnel. Previously used for smuggling people and materials via Africa, before the EFA occupied the DC's underground base near Dakar."
 
@@ -414,6 +414,8 @@ Irm winces as you attempt to turn Arado's testicles to mash potato with your Kne
 "AAAARGH!! STOP, PLEASE!!! I'm from the other universe, the other one. Irm! Kai! Save me from her! AHHHH!!!"
 
 Kai still just watches. Irm, however, looks like he's about to say or do something.
+
+---
 
 [^1]: I'm going to skip over the tearful consolation segment, because I have a penis and thus don't understand such things very well.
 
