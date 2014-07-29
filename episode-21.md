@@ -1,8 +1,6 @@
 # Episode 21
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 21: Now we can get drunk for reals 
+##SRWQ Mission 21: Now we can get drunk for reals 
 
 When last we left our brave adventurers, they had just retrieved Dr. Sophia Nate and her Machine-Cell infected fellows from the Earth Cradle, while seeing off the attentions of the Cry Wolves. In the battle, Katina discovered that the Cry Wolves leader was some kind of organic monster, and interrogated former Cry Wolves leader Kai Kitamura. He revealed the two-fold conspiracy in the EFAs upper echelon, the bio-aliens of the Council of the First and Only, and the hyper-secretive, high-tech School-trained warriors of Project SRX. Kai explained that the only hope for the Shadow Mirror world was to start a civil war between the two sides, and the only people who could do this were the Irregulars from the OG Universe... 
 

@@ -1,8 +1,6 @@
 # Episode 15
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 15: The Morning After
+##SRWQ Mission 15: The Morning After
 
 "Katina, get up!"
 

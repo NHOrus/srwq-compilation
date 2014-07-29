@@ -1,8 +1,6 @@
 # Episode 11
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 11: Now we're officially weeaboo
+##SRWQ Mission 11: Now we're officially weeaboo
 
 After a short break to cover the misadventures around TLI, we return to the Shadow Mirror version of Katina Tarask, as she heads with her new-found friends to Brazil, on the trail of Vindel Mauser and his Zweizergain, which is really in demand right now.
 

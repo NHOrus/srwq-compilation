@@ -1,8 +1,6 @@
 # Episode 12
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 12: This is biggest encounter yet and our heroine is at the Mardi Gras
+##SRWQ Mission 12: This is biggest encounter yet and our heroine is at the Mardi Gras
 
 We were following the exploits of the Shadow Mirror version of Katina Tarask, a cutely-dressed psycho with many, many issues, as she tries to survive exploit the arrival of the OG Heroes to her dimension. However, we've gotten caught up in a major battle at which out heroine is absent, but her allies battle fiercely to save the last of the shadow mirrors from the girl in the pic. (Crappy MSPaint cut-and-paste art is a legitimate use of this board dammit!)
 

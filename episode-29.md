@@ -1,8 +1,6 @@
 # Episode 29
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 29: We need someone to update that picture...
+##SRWQ Mission 29: We need someone to update that picture...
 
 In our last thread, our heroes finally finished up with the Balmarian refugees in the Neviim, while Dumi converted himself into DaiDumi. Shuu then teleported them all back to earth, to return the DC troops, and the ODE system and Bartols. Little do they know that not only are they closer to their original objectives than ever before, but a dangerous new threat awaits them in the pit below... 
 

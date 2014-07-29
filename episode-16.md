@@ -1,8 +1,6 @@
 # Episode 16
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 16: Cradle of Fuckin' Civilisation
+##SRWQ Mission 16: Cradle of Fuckin' Civilisation
 
 We continue to follow the adventures of the Shadow Mirrors, in particular Katina Tarask, as their world is turned upside down by the arrival of the OG Heroes, seeking to stop the plans of Dark Brain. On the run from the EFA, the rag-tag fleet of former terrorists heads to Africa, where Colonel Van Vat Tran has made his last stand, after the defeat of his allies, the Inspectors.
 

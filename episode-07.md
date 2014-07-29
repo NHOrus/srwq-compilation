@@ -1,8 +1,6 @@
 # Episode 07
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 7: Maybe you'll finally get to relax for a bit. But I doubt it.
+##SRWQ Mission 7: Maybe you'll finally get to relax for a bit. But I doubt it.
 
 **_The Setup:_** You are the Shadow Mirror version of Katina Tarask, trained by the School to wear pretty dresses and fly robots. The heroes of the OGverse has come to the Shadow Mirror universe to stop the Lygeus/Acguies system from giving Dark Brain another chance to destroy their world. This is a conflict of interest.
 

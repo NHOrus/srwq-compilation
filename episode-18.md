@@ -1,8 +1,6 @@
 # Episode 18
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 18: It's Legal now.
+##SRWQ Mission 18: It's Legal now.
 
 Where last we left our brave adventurers, they had been given a quest by the rebel leader Van Vat Tran, to retrieve the missing scientist Sophia Nate from the dark dungeons of the Earth Cradle, before the fiendish forces of the EFA get to her first.
 

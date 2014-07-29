@@ -1,8 +1,6 @@
 # Episode 30
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 30: Goddammit guys, we don't even need trolls anymore!
+##SRWQ Mission 30: Goddammit guys, we don't even need trolls anymore!
 
 In our last, relatively content-light thread (seriously, what have I spawned that causes so much discussion?), Katina and company arrived back on Earth, at a secret location in China where the Junkers Faction and the Earth' Liberation Front were meeting. Most of the team began paying their blood-money to the DC for destroying their space base, while Katina wandered off to help a construction worker called Rand to pull an ancient lion-shaped mechanoid out of the ground. Unfortunately, it turned out the thing was infested with Einst tentacles, so Katina bravely electrocuted it (and Rand) in the middle of the DC camp, then ran screaming at the next mechanoid. This caused a bit of confusion.
 

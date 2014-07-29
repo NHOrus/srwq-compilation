@@ -1,8 +1,6 @@
 # Episode 13
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 13: Witches and Bores
+##SRWQ Mission 13: Witches and Bores
 
 You are the Shadow Mirror Version of Katina Tarask, a frilly-dressed nightmare surviving in a world about to be split by war once again. The OG Main Characters have invaded the Shadow Mirror Universe, to prevent a future which will destroy their universe.
 

@@ -1,8 +1,6 @@
 # Episode 03
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 3: It's not /tg/, it's /u/
+##SRWQ Mission 3: It's not /tg/, it's /u/
 
 You are the Shadow Mirror version of Katina Tarask. You wear frilly dresses and don't afraid of anything.
 

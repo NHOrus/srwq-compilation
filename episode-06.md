@@ -1,8 +1,6 @@
 # Episode 06
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 6: Takin' it easy
+##SRWQ Mission 6: Takin' it easy
 
 You are the Shadow Mirror version of Katina Tarask. Educated at The School, you've picked up the controversial dress code, but not the whole following orders and keeping your crazy to yourself bits. With nothing else to do, you joined the Earth's Liberation Front, which led to membership in Shadow Mirror.
 
@@ -91,7 +89,7 @@ The entire Dynamic General Guardian system is based on EOTI research and DC engi
 
 ---
 
-####SRWQ SPECIAL DISC 1: VillettaQuest
+###SRWQ SPECIAL DISC 1: VillettaQuest
 
 You are Captain Viletta Vadim, current commanding officer of the SRX. Mere hours ago, you were partaking in what could be the most important mission of your life, assaulting the Shadow Mirror universe to prevent Dark Brain from discovering your own. As your group was about to exit the dimensional vortex, Gilliam gave the order to exit the ships. Ryusei, Rai and Aya had just deployed, and you and Mai were just about to launch, when a strange energy wave hit the Hiryu Kai.
 

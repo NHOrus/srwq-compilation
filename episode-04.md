@@ -1,8 +1,6 @@
 # Episode 04
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 4: Gonna keep doin' it till the fapfic ruins it
+##SRWQ Mission 4: Gonna keep doin' it till the fapfic ruins it
 
 You are the Shadow Mirror version of Katina Tarask, an ex-student of the School and wearer of frilly dresses. You are equally as angry as your OG counterpart, but you concentrate your anger into even more murderous bursts of rage and manage to be slightly moe at other times.
 

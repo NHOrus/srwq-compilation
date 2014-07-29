@@ -1,8 +1,6 @@
 # Episode 14
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 14: You people will be the death of me.
+##SRWQ Mission 14: You people will be the death of me.
 
 You are the Shadow Mirror version of Katina Tarask. Your groups attempt to invade the OGverse was cut painfully short when the heroes of the OGverse counter-invaded to prevent the entity Dark Brain from destroying them. In the confusion, you and a small group of Shadow Mirrors escaped with some experimental super robots and a prisoner, Arado, who dredged up memories of his Shadow Mirror counterpart for you. After allying with the DC and agreeing by proxy to track down Vindel Mauser and his Zweizergrain, the source of all this trouble.
 

@@ -1,8 +1,6 @@
 # Episode 28
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 28: You got sum 'splainin' to do, missy!
+##SRWQ Mission 28: You got sum 'splainin' to do, missy!
 
 Last time, our heroine had a more responsible role, as she directed Dumi to help organise a refugee fleet, negiotiate with the newly awakened Balmarians, and call in support from Earth in the form of the Granzon. But now she faces her most terrifying challenge yet: Explaining exactly what the fuck is happening to her colleagues.
 

@@ -1,8 +1,6 @@
 # Episode 22
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 22: MORTAL KOMBAT 
+##SRWQ Mission 22: MORTAL KOMBAT 
 
 In our last episode, the Neo DC base in Northern Africa was assaulted by the Hagane, commanded by Admiral Sean 'Burn-it-all' Webley, and the Cry Wolves, an elite EFA unit who, according to former leader Kai, should all be dead, but have been converted in biomechanical monstrosities instead. The fighting is intense: The DC forces are quickly turned to rout, the Granzon has overheated after blocking the Tronium Buster Cannon, Irm's Gespenst was trashed fighting the Cerberus, and Van Vat Tran's Rhinoceros landship, carrying Dr. Sophia Nate and the alien Aguija, is charging for the coast at full speed. Things are looking grim for our heroes... 
 

@@ -1,8 +1,6 @@
 # Episode 20
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 20: Lets hope that was a temporary hiccup.
+##SRWQ Mission 20: Lets hope that was a temporary hiccup.
 
 In our last episode, unfortunately cut short, the Shadow Mirrors were locked in epic combat with the Cry Wolves, when the very people they were sent to save came to their rescue. Sophia Nate, Wodan Ymir, and someone called Cynthia joined the team, and revealed how they had survived the destruction of the Earth Cradle: The mysterious power of the Machine Cells.
 

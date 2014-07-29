@@ -1,8 +1,6 @@
 # Episode 10
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 10: Now shit gets real by getting super.
+##SRWQ Mission 10: Now shit gets real by getting super.
 
 
 Welcome to the /tg/ thread with the best Fanservice Bonus to AC on /m/.
@@ -13,7 +11,7 @@ While normally we follow Shadow Mirror Katina Tarask, a psycho in a cute dress w
 
 ---
 
-####SRWQ SIDE MISSION 2: THE BREAKOUT
+###SRWQ SIDE MISSION 2: THE BREAKOUT
 
 You are Axel Almer, and you haven't had a good day.
 
@@ -193,7 +191,7 @@ Axel sniffs. "Honorable or no, they're out for our blood. This small mercy means
 
 ---
 
-####SRWQ Special Mission 3: ExcellQuest
+###SRWQ Special Mission 3: ExcellQuest
 
 You are Excellen Browning, Sexy Mistress of the ATX Team and the best of looks and sniping prowess in any dimension. You're taking part in your most dangerous mission yet, waging war on an entire world where you know alternate versions of your dearest friends, your lover, and even yourself are running around. You're determined not to fret about this until you meet them though: Your spunky personality is vital to morale, after all.
 

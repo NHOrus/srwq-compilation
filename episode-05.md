@@ -1,8 +1,6 @@
 # Episode 05
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 5: This fabulous prize could have been yours.
+##SRWQ Mission 5: This fabulous prize could have been yours.
 
 You are the Katina Tarask of the Shadow Mirror Universe. The School taught you how to fly robots and wear frilly dresses. Reducing a grown man to tears with a paperclip, a bottle of shampoo and a roll of sellotape is something you learned for yourself.
 

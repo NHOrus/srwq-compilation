@@ -1,8 +1,6 @@
 # Episode 17
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 17: Spreading Justice by kicking things with fire
+##SRWQ Mission 17: Spreading Justice by kicking things with fire
 
 The needles are on your brain, pumping in the fire. The simulator... No, it's real youregonnadie the mech is spinning through the curtains of bullet, and Old Man Adler is screaming you, stop being a failure, why are all of you failures, and you have no choice but to shoot at the target, and you paint Her face on each of them but you can still here the babies screaming... or is it you?
 

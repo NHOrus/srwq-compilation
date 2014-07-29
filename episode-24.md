@@ -1,8 +1,6 @@
 # Episode 24
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 24: This plan cannot possibly have a downside. 
+##SRWQ Mission 24: This plan cannot possibly have a downside. 
 
 In our last episde, aside from a lot of trolling, we blasted off into space to attack the EFAs spy satellites. Along the way, we chatted to Toby Watson about the girl he's gonna marry after the war is over, and our good friend Dumi suggested we take a side trip to investigate a mysterious resource satellite, using a ship belonging to one of his friends.
 

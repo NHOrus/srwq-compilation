@@ -1,8 +1,6 @@
 # Episode 09
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 9: I can count me.
+##SRWQ Mission 9: I can count me.
 
 The continuing adventures of Shadow Mirror Katina Tarask, the psychotic dress-wearing sex offender who adventures in a world being torn apart by the invasion from the OGverse.
 

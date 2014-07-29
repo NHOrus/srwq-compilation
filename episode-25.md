@@ -1,8 +1,6 @@
 # Episode 25
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 25: Special Anniversary Clusterfuck 
+##SRWQ Mission 25: Special Anniversary Clusterfuck 
 
 You are the Shadow Mirror version of Katina Tarask, a frilly-dressed psycho on a mission to topple the corrupt Earth Federation and form a harem of OGverse Arado and underage girls. You'd just taken up the offer of your AI partner Dumi to visit a mysterious weapons factory beyond the moon, in the hopes of finding something to help the Shadow Mirrors return to greatness. 
 

@@ -1,8 +1,6 @@
 # Episode 02
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 2: The Q stands for Quest
+##SRWQ Mission 2: The Q stands for Quest
 
 You are the Shadow Mirror version of Katina Tarask. You are equally as angry as the OG version, but because you were trained at The School, you are passive most of the time, releasing your anger in bursts of vengeful bloodletting. You also have similar dressing habits to Latooni and Seolla.
 

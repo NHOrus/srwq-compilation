@@ -1,8 +1,6 @@
 # Episode 23
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 23: ...IN SPACE!!!!
+##SRWQ Mission 23: ...IN SPACE!!!!
 
 In our last thread, the team had managed to fight the Cry Wolves and the Hagane to a standstill, though their DC allies had paid a high price. Abandoning Van Vat Trans northern base, they head south to a hidden jungle base, with several prisoners liberated from the Council's organic control devices. However, as Axel Almer finally recovers from his coma, he raises the issue that the EFA are likely tracking them, and could attack them at any point. Dumi suggests that they distract the EFA, by sending a smell team to low orbit to attack one of the EFAs satellites. A small team that includes our 'heroine', Katina Tarask.
 
@@ -46,7 +44,7 @@ Vat Tran nods approvingly. "Once again, your technology astounds me, Dr. Nate. O
 
 ---
 
-###SRWQ Mission 23A: IT KEEPS HAPPENING
+##SRWQ Mission 23A: IT KEEPS HAPPENING
 
 Anyway, our 'heroine' Katina Tarask has just blasted off into the sky, with her ever-helpful AI pal Dumi, and Setsuko and Toby from the DC's Star Team, to knock out one of the EFAs spy satellites and give the DC and Shadow Mirrors a chance to get to their new base undetected. The jump to orbit will take about an hour.
 

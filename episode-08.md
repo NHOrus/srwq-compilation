@@ -1,8 +1,6 @@
 # Episode 08
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 8: Now with actual plot development. Maybe.
+##SRWQ Mission 8: Now with actual plot development. Maybe.
 
 You are the Shadow Mirror version of Katina Tarask. You are equally as filled with rage as your counterpart, but concentrated into smaller timeframes, allowing you to trick people with Moe periods before your true form is revealed. The heroes of the OGverse have traveled back in time and crossed dimensions in order to prevent Dark Brain destroying their universe from the outside, this has put a major downer on your plans for the next few weeks, but has also allowed you another chance to make Arado your pet slave (the first one doesn't breath anymore).
 

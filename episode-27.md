@@ -1,8 +1,6 @@
 # Episode 27
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 27: Why cause problems for yourself when you can cause problems for everybody?
+##SRWQ Mission 27: Why cause problems for yourself when you can cause problems for everybody?
 In our last thrilling installment:
 
 Having infiltrated Hellgate, hijacked Professor Juergen's ODE system, and restored our AI partner Dumi to his true Duminass form, our heroine Katina Tarask went about searching the Neviim for captive humans. She found Colonel Kar-Wai, Radha, and Tyutti Norbuck, and had an altercation with Patricia Hackman in an alien-enhanced Gespenst S, who had seen the destruction of Balmar and had sworn to defend the few remaining survivors. With the Neviim defenses assaulting them and the real Balmarians waking up, our heroes fled, to attempt to salvage the situation later.

@@ -1,8 +1,6 @@
 # Episode 19
 
-## SHADOW MIRROR QUEST (AKA SRW Q)
-
-###SRWQ Mission 19: This could be the start of a beautiful relationship
+##SRWQ Mission 19: This could be the start of a beautiful relationship
 
 The hulking monstrosity rips itself out of the ground even as it transforms, the red under-mech being slowly consumed by the white plaque spreading across it, turning it into something...else.
 
