@@ -194,4 +194,4 @@ Lily simply sighs, with a pained look on her face. "It was meant to be so much m
 
 "Do you truly beleive these Mechanoids will be enough for your ELF to rebound from the rest of Vindel's meddling?"
 
-"This is hardly my only project, Ms Junkers. Rest assured, I'll be making sure Vindel pays us back for any inconvenience he may have caused us before." 
+"This is hardly my only project, Ms Junkers. Rest assured, I'll be making sure Vindel pays us back for any inconvenience he may have caused us before."

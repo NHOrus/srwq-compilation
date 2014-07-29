@@ -4,135 +4,27 @@
 
 ###SRWQ Mission 29: We need someone to update that picture...
 
-In our last thread, our heroes finally finished up with the Balmarian refugees in the Neviim, while Dumi converted himself into DaiDumi. Shuu then teleported them all back to earth, to return the DC troops, and the ODE system and Bartols. Little do they know that not only are they closer to their original objectives than ever before, but a dangerous new threat awaits them in the pit below... View SameGoogleiqdbSauceNAO Gundigger.jpg,  32KiB, 400x400 
- 
-Sciencegar Sciencebolt Sun 28 Feb 2010 02:57:44 No.4608972 Report 
- Quoted By: >>4608994 
->>4609040 
->>4609176 
- You bring the Raioh to a rest on a hilltop overlooking the dig site. A series of massive craters greets you, a level plain of nearly a square mile, dotted not only with craters, but with massive bulk transports, their radar signature even now almost undetectable. To have gotten enough transport power to fit the Bartols this quickly, the Junkers faction certainly lives up to their reputation as the go-to people for going-to.
+In our last thread, our heroes finally finished up with the Balmarian refugees in the Neviim, while Dumi converted himself into DaiDumi. Shuu then teleported them all back to earth, to return the DC troops, and the ODE system and Bartols. Little do they know that not only are they closer to their original objectives than ever before, but a dangerous new threat awaits them in the pit below... 
 
-But other elements of the digsite stand out to you, in particular, one of the dearest trenches seems to have hit paydirt. This massive construction mech, proudly displaying "Beater Excavation" on its shoulder, are taking away the last scraps of dirt around something...very odd. An excited crowd is gathering around the trench.
+---
 
-WILL KATINA INVESTIGATE, OR LOOK ELSEWHERE? 
-NuBlackAnon !!z6ldXGL61Wm Sun 28 Feb 2010 02:59:44 No.4608994 Report 
- Quoted By: >>4609035 
->>4608972
-Investigate. It might be one of the SUPER DEFENDERS OF THE EARTH 
-Anonymous Sun 28 Feb 2010 02:59:44 No.4608995 Report 
- Quoted By: >>4609003 
->>4609176 
- Fuck, we're investigating. It's the motherfucking Gunleon. 
-Anonymous Sun 28 Feb 2010 03:00:44 No.4609003 Report 
- Quoted By: >>4609176 
->>4608995
-And by that I mean that the excavation team has it around SOMEWHERE. Besides which, Chokijin. Do want 
-Ratsel Feinschmecker !VFYL66iWMA Sun 28 Feb 2010 03:03:44 No.4609035 Report 
- Quoted By: >>4609086 
->>4608994
+You bring the Raioh to a rest on a hilltop overlooking the dig site. A series of massive craters greets you, a level plain of nearly a square mile, dotted not only with craters, but with massive bulk transports, their radar signature even now almost undetectable. To have gotten enough transport power to fit the Bartols this quickly, the Junkers faction certainly lives up to their reputation as the go-to people for going-to.
 
-Captain Gordon? LOL, kidding. 
+But other elements of the digsite stand out to you, in particular, one of the dearest trenches seems to have hit paydirt. This massive construction mech, proudly displaying "Beater Excavation" on its shoulder, are taking away the last scraps of dirt around something... very odd. An excited crowd is gathering around the trench.
 
-I think she should investigate! 
-Anonymous Sun 28 Feb 2010 03:04:44 No.4609040 Report 
->>4608972
-Lets check it out, not like theres anything interesting around here. 
-View SameGoogleiqdbSauceNAO Invincible Earth Liberation Warr (...).jpg,  66KiB, 561x455 
- 
-Haken Browning !zHe7DH816A Sun 28 Feb 2010 03:08:44 No.4609086 Report 
- Quoted By: >>4609139 
->>4609035
-Welcome to almost 20 threads ago, when we first met SHUU SHIRAKAWA, SCIENTIFIC SAVIOUR OF EARTH!.
+You hover down to the pit, placing your feet in two of the few spots where people and equipment aren't. "Hey, Mister, nice robot. Does it need a hand?"
 
-And this is his pimpin' ride. 
-Anonymous Sun 28 Feb 2010 03:09:07 No.4609091  Report 
->>4608901
-STOP SPAMMING WWW. añＯＮＴＡ|ｋ .COM IMMEDIATELY AND REMOVE ALL CLONES AND LIES AND PAY BACK THE MONEY YOU OWE SYSOP 
-BSRaven !!pZhu/eJf6iW Sun 28 Feb 2010 03:10:44 No.4609108 Report 
- INVESTIGATE DIG SITE
-advicebaldrick.jpg
-FIND AWESOME STUFF.
-
-tl;dr: GET DIGGING. 
-Ratsel Feinschmecker !VFYL66iWMA Sun 28 Feb 2010 03:13:44 No.4609139 Report 
- Quoted By: >>4609155 
->>4609086
-
-
-What exactly are you trying to say here? I've been keeping track of these threads form the beginning. Just not always as a Tripper. Interesting Picture BTW. *saves* 
-Haken Browning !zHe7DH816A Sun 28 Feb 2010 03:15:44 No.4609155 Report 
- Quoted By: >>4609184 
->>4609139
-I'd been making Captain Gordon jokes from the very beginning. They just hadn't stuck as well as expected.
-
-inb4 Sciencegar implements my "Wyrm Smasher Gordon Blitz" idea from waaaay back 
-Anonymous Sun 28 Feb 2010 03:17:44 No.4609176 Report 
- Quoted By: >>4609185 
->>4608972
->Gundigger
->>4608995
->>4609003
->Gunleon SOMEWHERE
-GUN GUN DIGGER, GUNDIGGER 
-Ratsel Feinschmecker !VFYL66iWMA Sun 28 Feb 2010 03:18:44 No.4609184 Report 
->>4609155
-
-Ah, sorry for taking your joke. 
-Haken Browning !zHe7DH816A Sun 28 Feb 2010 03:18:44 No.4609185 Report 
- Quoted By: >>4609194 
->>4609600 
->>4609176
->GUN GUN DIGGER, GUNDIGGER
-I sang this to the tune of the Shinkenger opening. Is something wrong with me? Like, wrong-er than usual? 
-Ratsel Feinschmecker !VFYL66iWMA Sun 28 Feb 2010 03:19:44 No.4609194 Report 
- Quoted By: >>4609214 
->>4609185
-
-*ahem*
-
-Dai Dai Trombe, DaiTrombe! 
-Haken Browning !zHe7DH816A Sun 28 Feb 2010 03:22:44 No.4609214 Report 
- Quoted By: >>4609221 
->>4609242 
->>4609194
-Doesn't work as well. "Trombe" on its own is already three kana (Tor-om-bu/be). Limit on the "Bara" is two.
-
-Thus, DAI DAI-ZENGAR, DAI-ZENGAR 
-Brave Exkaiser will Never Die Sun 28 Feb 2010 03:23:44 No.4609221 Report 
->>4609214
-It's four. To-Ro-N-Be. 
-Ratsel Feinschmecker !VFYL66iWMA Sun 28 Feb 2010 03:25:44 No.4609242 Report 
- Quoted By: >>4609253 
->>4609214
-
-Clearly you didnt see the original flash video.... it was taking the english pronunciation of Trombe, which was only two sylabals.... 
-
-You can pronounce it either way. The second chorus of that song was Daitrombe, rather then daizengar. 
-Ratsel Feinschmecker !VFYL66iWMA Sun 28 Feb 2010 03:27:44 No.4609253 Report 
->>4609242
-
-But... meh. Bad joke was bad. Moving on.... 
-Anonymous Sun 28 Feb 2010 03:32:44 No.4609306 Report 
- At any rate, we can't go wrong with the Gun-digger/Gunleon. Might let Ryoto get his wish :V 
-Sciencegar Sciencebolt Sun 28 Feb 2010 04:14:44 No.4609592 Report 
- Quoted By: >>4609599 
->>4609609 
->>4609627 
->>4609644 
->>4609645 
- You hover down to the pit, placing your feet in two of the few spots where people and equipment aren't. "Hey, Mister, nice robot. Does it need a hand?"
-
-"Well...Gun-Diggers only got one...Tell ya what, grab ahold of that far cable trolley, and see if we can't yank this sucker straight out!"
+"Well... Gun-Diggers only got one... Tell ya what, grab ahold of that far cable trolley, and see if we can't yank this sucker straight out!"
 
 "Ok!" The two giant mechs grab opposites of the earth-covered shape, and pull on the carefully placed steel cables. A small mountain of earth is dislodged as the thing, easily the size of either mech, comes free, to swing comfortably underneath the Gundiggers oversized work arm.
 
 "Well, he is a beaut and a half, isn't he?"
 
-The thing is definitely feline in form, and made of some kind of....furred metal. You recall your encounter with the Tiger-Grungust, back at TLI, only a week ago but it feels like months.
+The thing is definitely feline in form, and made of some kind of... furred metal. You recall your encounter with the Tiger-Grungust, back at TLI, only a week ago but it feels like months.
 
 "Travis to Anzai, Travis to Anzai, the Lion is free. He's completely intact. Get on over here, doc!"
 
-But what draws your attention the most is whats holding the ancient metal device together. The plates of fur-metal seem to be connected by a series of glowing blue pseudopods. Blue, and a few green. Actually, a lot of green, more than there were a second ago. Green, rubbery...and terribly familiar.
+But what draws your attention the most is whats holding the ancient metal device together. The plates of fur-metal seem to be connected by a series of glowing blue pseudopods. Blue, and a few green. Actually, a lot of green, more than there were a second ago. Green, rubbery... and terribly familiar.
 
 INITIAL REACTIONS FROM KATINA? 
 Anonymous Sun 28 Feb 2010 04:15:44 No.4609599 Report 
