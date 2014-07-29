@@ -9,7 +9,7 @@ The Shadow Mirrors no longer have a place in this world. It is time to *find a n
 
 ---
 
-####From the Desk of Adler Koch, director of SCHOOL.
+###From the Desk of Adler Koch, director of SCHOOL.
 
 >Re: Incident #09322
 
@@ -23,7 +23,7 @@ The Shadow Mirrors no longer have a place in this world. It is time to *find a n
 
 ---
 
-####2 Months Later:
+###2 Months Later:
 
 "Well, you chose a hell of a time to join up."
 
@@ -218,7 +218,9 @@ GUARLION HP: 350/3700
 Irm turns the Guarlion to look at you as you sheath your second tonfa and pick up the railgun from his Guarlion's dismembered arm. It's a lot lighter than the G-Railgun, but has a high rate of fire.
 
 ---
-    OBTAINED: GUARLION RAILGUN
+```
+OBTAINED: GUARLION RAILGUN
+```
 ---
 
 "Eh, no offense Ms Tarask, but I'm the commanding officer here-"
@@ -230,7 +232,9 @@ Irm turns the Guarlion to look at you as you sheath your second tonfa and pick u
 "Will you stop being sentimental I DON'T WANT YOU TO *DIIIEEEEE*!!!" You scream as you fire off the R-Blades Head Vulcans. The Guarlions head pops like a ripe melon and sparks fly as its other arm shorts out and falls limp.
 
 ---
-    Guarlion: 72/3700
+```
+Guarlion: 72/3700
+```
 ---
 
 "DAMMIT, KATINA, WHAT THE HELL!"
@@ -254,8 +258,8 @@ As you arrive from the south, one of the Randgriths falls to its knees as its le
 The R-Blade boosts into the sky, weapons poised, while the Red Gespenst flies up the hill toward the downed Randgrith, dangling from a ledge.
 
 ---
-####COMMENCING FIRST ROUTE SPLIT.
-######KATINA ROUTE
+###COMMENCING FIRST ROUTE SPLIT.
+####KATINA ROUTE
 
 The combined fire from the Beam Rifle and Railgun lance down into the EFA line. One PT explodes, another is crippled, but the rest turn to meet the new threat. You boost down to hit cover, as a Massacre of Missiles heads towards you (thats the official term).
 
@@ -294,7 +298,7 @@ Without turning around, you sever the arms from the advancing Gespenst, and then
 "I don't care."
 
 ---
-######RUSSEL ROUTE
+####RUSSEL ROUTE
 
 Emptying a second clip from his M95, Russel beats back another EFA advance, as he draws ever-closer to the stranded pilot.
 
@@ -325,7 +329,7 @@ Russel fires off his last set of Split Missiles and turns to the mysterious pilo
 "Er, fine, whatever."
 
 ---
-######ROUTE RECOMBINATION
+####ROUTE RECOMBINATION
 
 You cut your way through the Gespensts to where Axel is, as his oversized super robot crushes a Gespenst between its thighs, while its flying fists take out two more. The Soulgain looks none the worse for wear after all the fighting, where even a Super Earthgain unit would at least have taken a few bumps. It's quite the piece of technology.
 
@@ -369,7 +373,7 @@ THIS IS THE FINAL DECISION FOR TONIGHT. YOU HAVE TWO OPTIONS.
 
 ```
 
-/m/ has decided...by not deciding.
+/m/ has decided... by not deciding.
 
 Originally I thought, just go to the OGverse, it'll be fun there changing the canon storyline. Then people started talking about SM versions of pretty much everyone. Then I started thinking about the possibilities, so I thought, well maybe we should stay in SM-verse.
 
@@ -379,7 +383,7 @@ So you get both /m/. Welcome to Opposite Day.
 
 ---
 
-######SECRET ROUTE NUMBER 3: AND THEN EVERYTHING WENT WRONG IN THE MOST AWESOME WAY POSSIBLE.
+####SECRET ROUTE NUMBER 3: AND THEN EVERYTHING WENT WRONG IN THE MOST AWESOME WAY POSSIBLE.
 
 Carrying the head-cockpit of Ibis' Randgrith like the rugby balls of his youth, Russel blasts towards TLI. You're hot on his heels, and Latooni pushes her Randgrith to the limit, firing back at the EFA as she goes.
 
@@ -415,4 +419,4 @@ END MISSION 1
 
 ---
 
-###OH GOD WHAT HAVE I DONE.
+##OH GOD WHAT HAVE I DONE.
