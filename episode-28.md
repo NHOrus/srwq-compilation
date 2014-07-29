@@ -66,478 +66,43 @@ You set your comms to silent and hiss into your earpiece. "Dumi, help me out her
 
 *You're hardly out of options, Katina. You can try diplomacy. You can invent a proper lie to explain me. Or you can adjust your expectations, and realise you may have to give up some of the things you want.*
 
-WHAT SHALL WE DO? I'd like more thought-out answers on any fibs we're going to be telling, or other coverup strategies. 
-View SameGoogleiqdbSauceNAO KIRRRRBY.jpg,  52KiB, 521x640 
- 
-Anonymous Sat 27 Feb 2010 06:40:44 No.4603948 Report 
->>4603932
-HOLY SHIT IT'S THE COSMIC HORROR-DEVOURING TIME/SPACE OVERLORD!
-
-GET IN THE CAR! 
-Anonymous Sat 27 Feb 2010 06:41:44 No.4603952 Report 
->>4603944
->they've been in stasis for the past bunch of years thanks to the brain-thing, which was passing by when it saw what it believed to be an invasion force and being the good brain-thing it was decided to intervene (this went badly for all involved) and it should be leaving for unknown places ANY MINUTE NOW 
-View SameGoogleiqdbSauceNAO 818241.jpg,  38KiB, 361x500 
- 
-Anonymous Sat 27 Feb 2010 06:42:44 No.4603958 Report 
- I wish I had a picture of Nyarlathotep going "S-Stupid Philemon! I didn't want to play with your stupid toys anyway!" after the party loses in P2. For some reason it makes me crack up. 
-
-Point is, d'awww Moon Howler 
-Haken Browning !zHe7DH816A Sat 27 Feb 2010 06:43:44 No.4603962 Report 
->>4603944
-At this point, I'm leaning towards truth. Just don't say anything about Dark Brain's involvement. Any objections to "Weather Balloon" mode should be defused by explaining that Dumi was mutated by Alien Presto-Changeo Crystals. 
-Anonymous Sat 27 Feb 2010 06:43:44 No.4603963 Report 
->>4603944
-We probably should have transformed Dumi into that Tassunthingy while we had the chance, huh? 
-SEED D Cagalli !!U5xc0wG3iH0 Sat 27 Feb 2010 06:45:44 No.4603974 Report 
->>4603922
-
-Kirby's an abomination. Haven't you seen There Will Be Brawl? 
-Anonymous Sat 27 Feb 2010 06:46:44 No.4603982 Report 
- Quoted By: >>4604001 
- FFFFFUCK
-
-IT WAS KIRBY
-
-IT WAS KIRBY THAT ATE BALMAR
-
-WE'RE ALL DOOMED 
-Anonymous Mk-II Sat 27 Feb 2010 06:46:44 No.4603986 Report 
->>4603944
-fuck you, shuu shirakawa.
-well lets tell him the truth behind dumi, im sure he will understand. 
-Anonymous Sat 27 Feb 2010 06:47:44 No.4603990 Report 
->>4603944
->That giant pink thing is Kirby. It ate something and turned itno this. 
-Anonymous Sat 27 Feb 2010 06:48:44 No.4604001 Report 
- Quoted By: >>4604018 
->>4604020 
->>4603982
-This would be an interesting twist.
-
-What if Kirby ate Keisar Ephes? 
-Anonymous Sat 27 Feb 2010 06:49:44 No.4604012 Report 
- Quoted By: >>4604027 
- "The DGG 04 consumed an energy field larger than its head" 
-Anonymous Sat 27 Feb 2010 06:50:44 No.4604018 Report 
->>4604001
-KAISER: *After eating Balmar* MWAHAHAHA AFTER 100,000,000 YEARS I AM FINALLY FREE TO BEGIN MY REIGN OF TERRO-Wait...what the fuck are you?
-
-KiRBY: Haaaaaaaai! 
-Sanger Zombolt! Sat 27 Feb 2010 06:51:44 No.4604020 Report 
->>4603944
-Let me think for a moment.
-
-But before I say any of that, if we somehow start jumping dimensions.
-
->>4604001
-
-MUST happen.
-
-
-Anyway, I'll now proceed to write the damn thing. 
-Anonymous Sat 27 Feb 2010 06:52:44 No.4604027 Report 
- Quoted By: >>4604034 
->>4604012
-This. Just tell them that Dumi managed to figure out how to hack into the thing and hijack it. 
-Anonymous Sat 27 Feb 2010 06:54:44 No.4604034 Report 
->>4604027
-I'll second this. Nobody needs to ever know the truth.
-
-And Dumi can just reshape his body to -seem- pseudomechanical on the inside. 
-Sanger Zombolt! Sat 27 Feb 2010 07:03:44 No.4604111 Report 
- Quoted By: >>4604128 
->>4604158 
->>4604185 
->>4603944
-Anyway, this is my viable choice: use Dumi and our common objective of tumbling the EFA as a way to unite the DC, the SM and the Balmars, and try to keep Dumi a secret to the invaders. We just have to keep Dumi a secret from everyone related to the irregulars and wait till they find their thingamagic and they go to their dimensions. 
-
-This does have the risk of one of the irregulars in our base finding out about Dumi and try to communicate with their allies, forcing us to fight and possibly kill them.
-
-Surely, you must be thinking that this is crazy. That fighting against our heroes is a dumb thing, but then again, what good have they done to us in all this time? Have they given us supprt? Weaponry? Done anything other than killing-off many Shadow Mirrors and doing absolutely nothing but look for Vindel? Anything other than sending spies and conspiring for ways to kill us in case we do something they don't want? 
-
-Of course, this only comes in as a worst case scenario. We just have to transform Dumi into a little girl so the irregulars and the grunts of each side don't suspect in him.
-
-
-IN SHORT: Reveal Dumi to the higher ups of each faction and make them keep it a secret from the irregulars and general civilians and grunts that we have Dumi on our side. 
-Anonymous Sat 27 Feb 2010 07:03:44 No.4604118 Report 
- So how are the Balmarians taking the whole mech-showed-up-out-of-FUCKING-NOWHERE-and-wrecked-a-fleet-singlehandedly thing? 
-Anonymous Sat 27 Feb 2010 07:05:44 No.4604128 Report 
- Quoted By: >>4604135 
->>4604111
->Have they given us supprt? Weaponry? Done anything other than killing-off many Shadow Mirrors and doing absolutely nothing but look for Vindel? Anything other than sending spies and conspiring for ways to kill us in case we do something they don't want?
-Kinda hard to do that when we barely have any contact with them. Besides, the ones we know seem like pretty cool guys. 
-Sanger Zombolt! Sat 27 Feb 2010 07:07:44 No.4604135 Report 
- Quoted By: >>4604145 
->>4604155 
->>4604128
-Well, yeah. But still. They have made an oath to try to keep out of conflict this whole time, making a fourth party of sorts. We will hardly get to ally with them if things keep going this way.
-
-But, of course, that is just if Dumi's secret is revealed. As long as we don't screw up, the irregulars should be potential allies. 
-Anonymous Sat 27 Feb 2010 07:09:44 No.4604145 Report 
- Quoted By: >>4604154 
->>4604135
-Hell, if we play our cards right we can get their help in freeing Dumi from Dark Brain! 
-Sanger Zombolt! Sat 27 Feb 2010 07:11:44 No.4604154 Report 
->>4604145
-Another possibility. Having a final-boss class character on our side should make things easier around here. 
-Anonymous Sat 27 Feb 2010 07:11:44 No.4604155 Report 
->>4604135
-We could always say that they have to face the consequences of their actions. They come in here and wreck shit, they'd better damn well fix things before they leave! 
-Shas'El Sat 27 Feb 2010 07:12:44 No.4604158 Report 
- Quoted By: >>4604166 
->>4604111
-I like this. 
-
-But I still have this feeling in my gut that tells me that Sciencegar will find a way to make us fight the OGverse. 
-Anonymous Sat 27 Feb 2010 07:13:44 No.4604166 Report 
- Quoted By: >>4604178 
->>4604188 
->>4604206 
->>4604158
-Meh, we'll probably fight for a bit then team up to take out Dark Brain/Kaiser Ephes/Kirby/Baran Doban's epic case of the munchies.
-
-Its just like those superhero team-up comics! 
-Sanger Zombolt! Sat 27 Feb 2010 07:15:44 No.4604178 Report 
- Quoted By: >>4604188 
->>4604197 
->>4604206 
->>4604166
-JUST LIKE ONE OF MY JAPANESE ANIMES! 
-Anonymous Sat 27 Feb 2010 07:15:44 No.4604185 Report 
->>4604111
-Ok chumps, let's do this.
-
-LEEEEEEEEROOOOOOOYYY.....JENKINS! 
-View SameGoogleiqdbSauceNAO JUST LIKE ONE OF MY.jpg,  52KiB, 380x529 
- 
-Haken Browning !zHe7DH816A Sat 27 Feb 2010 07:16:44 No.4604188 Report 
- Quoted By: >>4604206 
->>4604166
->>4604178
-JUST LIKE ONE OF MY AMAHARA MOON TOONS! 
-Anonymous Sat 27 Feb 2010 07:17:44 No.4604197 Report 
- Quoted By: >>4604211 
->>4604178
-RRARGRH WHAT THE FUCK ARE YOU TALKING ABOUT
-
-I AM TALKING ABOUT PISS AND SHIT AND YOU ARE TALKING ABOUT YOUR STUPIDASS ANIMES I DON'T GIVE A FUCK ABOUT 
-View SameGoogleiqdbSauceNAO 9780553801477.jpg,  69KiB, 298x450 
- 
-Anonymous Sat 27 Feb 2010 07:18:44 No.4604206 Report 
->>4604166
->>4604178
->>4604188
-JUST LIKE ONE OF MY PAPERBACK NOVELS 
-View SameGoogleiqdbSauceNAO Otacon.jpg,  108KiB, 800x600 
- 
-Anonymous Sat 27 Feb 2010 07:20:44 No.4604211 Report 
->>4604197 
-Anonymous Sat 27 Feb 2010 07:42:44 No.4604313 Report 
- Tell the truth, partially.
-
-Say that Dumi was being used against its will as part of the ODE system after an accidental run in the Balmar. And now it wants to help you out in return for saving it. Just don't bring up the whole "Built by evil brain" thing 
-Sciencegar Sciencebolt Sat 27 Feb 2010 07:49:44 No.4604337 Report 
- Quoted By: >>4604347 
->>4604362 
->>4604376 
->>4605778 
->>4605818 
- You hash out some details with Dumi, and switch back on the comms. "Er, Shuu?"
+You hash out some details with Dumi, and switch back on the comms. "Er, Shuu?"
 
 Shuu turns from his large bank of scanners. "Hmm?"
 
-"Well, ok, the truth is...Dumi sorta found some wierd crystal in the alien ship, the stuff they were using on thier biggest robots, and he sorta...actually, I sorta told him to eat it, to see if it'd power him up like the Machine Cells. And it just sorta...made him blow up like a balloon."
+"Well, ok, the truth is... Dumi sorta found some wierd crystal in the alien ship, the stuff they were using on thier biggest robots, and he sorta... actually, I sorta told him to eat it, to see if it'd power him up like the Machine Cells. And it just sorta... made him blow up like a balloon."
 
-If I had more emotional links to my appearence, I imagine I'd be incredibly embarressed.
+*If I had more emotional links to my appearence, I imagine I'd be incredibly embarressed.*
 
-"I see...So Dumi, can you still function? Are you capable of returning to Earth with us."
+"I see... So Dumi, can you still function? Are you capable of returning to Earth with us."
 
-I beleive so...However, a more suitable form is probably a good idea. I shall attempt to manipulate my body to a new shape, so I will be less noticable.
+*I beleive so... However, a more suitable form is probably a good idea. I shall attempt to manipulate my body to a new shape, so I will be less noticable.*
 
 The red-orange thing tucks in its wings, and starts to shift into a new shape...
 
-CHOOSE DUMIS NEW FORM
+---
 
-Mass conversion to at least the correct order of magnitude is needed, so Dumi can go between a large robot or a small ship in size. In the region of 50-100m is what I'm looking at (Since I'm assuming he's a comparable size to the Judecca he fought). 
-Haken Browning !zHe7DH816A Sat 27 Feb 2010 07:51:44 No.4604347 Report 
->>4604337
-Can we emulate the new hotness Grungust design we've cooked up?
-
-If so, do that.
-
-If not, maybe Giganscudo if there wouldn't be traumatic backlash from the peanut gallery. 
-Anonymous Sat 27 Feb 2010 07:54:44 No.4604361 Report 
- Ideon. Clearly Duminuss should become Ideon 
-View SameGoogleiqdbSauceNAO 1247770372691.jpg,  159KiB, 750x506 
- 
-Anonymous Sat 27 Feb 2010 07:54:44 No.4604362 Report 
- Quoted By: >>4604459 
->>4604337
-something awesome like a giant MG42. 
-Anonymous Sat 27 Feb 2010 07:57:44 No.4604376 Report 
- Quoted By: >>4604384 
->>4604337
-Can we transport stuff in her if she's a small ship? Because we could use more transport. 
-Anonymous Sat 27 Feb 2010 07:59:44 No.4604384 Report 
->>4604376
-What if we mix both transport AND mech?
-
-What if we make a pseudo Valguard of sorts now that getting the real deal is kind of not happening for the moment? 
-View SameGoogleiqdbSauceNAO 1245409568125.jpg,  227KiB, 742x554 
- 
-Anonymous Mk-II Sat 27 Feb 2010 07:59:44 No.4604385 Report 
- a giant smiley face. pic related kinda 
-Sciencegar Sciencebolt Sat 27 Feb 2010 08:02:44 No.4604399 Report 
- Quoted By: >>4604411 
->>4604413 
-> Neo Grungust
-
-Sure, but this way, Irm won't get to pilot it...
-
-> Giganscudo 
-
-This, or the Duro, are doable.
-
-> Ideon
-
-It'll look out of place, but sure, he could look like Ideon.
-
-> Giant gun for Raioh to use.
-
-Entirely doable.
-
-> Transport
-
-It'd be limited to maybe 6 mechs, or Raioh and 3 others, but it could be done.
-
-Of course, we could just turn into a larger version of his old self, or some kind of Dai-DGG-04. I'll also accept Debronium/Boxer Frame style addons to the Raioh. 
-Anonymous Sat 27 Feb 2010 08:02:44 No.4604402 Report 
- Mess with Axel's head.
-
-Giant Gespenst mk III 
-Anonymous Sat 27 Feb 2010 08:02:49 No.4604403  Report 
->>4603464
-FUCK. OFF. STOP SPAMMING WWW. ãnÓNTåＬｋ .COM YOU DUMB SHITS AND PAY SYSOP THE MONEY YOU OWE HIM 
-Anonymous Sat 27 Feb 2010 08:03:44 No.4604404 Report 
- Quoted By: >>4604427 
->I'll also accept Debronium/Boxer Frame style addons to the Raioh.
-
-This.
-
-This would be awesome. 
-Anonymous Sat 27 Feb 2010 08:04:44 No.4604407 Report 
->>4603482
-Hey, my drawing! 
-Anonymous Sat 27 Feb 2010 08:04:44 No.4604411 Report 
- Quoted By: >>4604432 
->>4604399
-What about a miniature Valguard of sorts? 
-Anonymous Sat 27 Feb 2010 08:05:44 No.4604413 Report 
- Quoted By: >>4604437 
->>4604399
-I'm torn between transport, since we do need more of those, and the add-ons since those would be useful as well. 
-Anonymous Sat 27 Feb 2010 08:07:44 No.4604427 Report 
->>4604404
-Agreed. Or combining mecha. Also, who votes we find some way to merge with Duminuss? 
-Sanger Zombolt! Sat 27 Feb 2010 08:07:44 No.4604432 Report 
->>4604411
-This.
-
-Having both a transport AND a combat capable mech would greatly help with future missions.
-
-Is it doable, Science? 
-Sciencegar Sciencebolt Sat 27 Feb 2010 08:08:44 No.4604437 Report 
- Quoted By: >>4604447 
->>4604482 
->>4604413
-
-This is Dumi we're talking about, him being able to transform more when convenient is hardly unthinkable. It's more I want the base form sorted, a shuttle that fits over Raioh like armor isn't that wierd a plan. 
-Anonymous Sat 27 Feb 2010 08:10:44 No.4604447 Report 
->>4604437
-This should do the work then. Have it as some sort of transport ship capable of transforming into a mech without damaging the crew or the mechs inside it while also capable of deploying them in said form.
-
-Basicaly, make it the Valguard. 
-Anonymous Mk-II Sat 27 Feb 2010 08:12:44 No.4604459 Report 
- Quoted By: >>4604472 
->>4604362
-on a second tought a big fucking badass gun will be a nice idea. 
-Anonymous Sat 27 Feb 2010 08:14:44 No.4604472 Report 
- Quoted By: >>4604474 
->>4604459
-Gust-Gun for the Grungust made up of the Gust Lander, Gust Ship and Gust Fighter? 
-Anonymous Mk-II Sat 27 Feb 2010 08:15:44 No.4604474 Report 
->>4604472
-nah. just a big hunk of metal that fires a solid barrage at incredible fast rate. 
-Sanger Zombolt! Sat 27 Feb 2010 08:16:44 No.4604482 Report 
- Quoted By: >>4604492 
->>4604437
-You know what?
-
-Let's have the ship as it's base form, and let's have it transform in many other things when it is necessary.
-
-All of these options are good, but what use would Dumi be when not in battle if he is locked in Gun/mech form by default? Better have it as a transport, and then have it transform during battles. 
-Anonymous Mk-II Sat 27 Feb 2010 08:19:44 No.4604492 Report 
- Quoted By: >>4604500 
->>4604482
-wouldnt that be overdoing it?
-i mean im sure he has limitations 
-Sanger Zombolt! Sat 27 Feb 2010 08:20:44 No.4604500 Report 
- Quoted By: >>4604600 
->>4604492
-I doubt it. We are talking about an eyeball who transformed three times in a row during battle while being very injured and bombarded by barrages of ultimate attacks at the end of Reversal. 
-
-I believe Dumi could take this. 
-Shas'El Sat 27 Feb 2010 08:25:44 No.4604519 Report 
- I think I'll go with transport. 
-Sciencegar Sciencebolt Sat 27 Feb 2010 08:28:44 No.4604533 Report 
- Quoted By: >>4604546 
->>4604548 
->>4604571 
->>4604637 
->>4604670 
->>4604944 
- The image I'm getting is a DGG-colored version of the Daikyu Maryu crossed with the King-Loader or similar early Brave powerup vehicle. Normally a wierd-looking transport, it also turns into a lumpy but weapon-laden humanoid form, and can split apart Brave-style to transform Raioh into Queen RaiMegami, or form a cannon for the Unlimited General Buster. Sound about right? 
-Anonymous Sat 27 Feb 2010 08:29:44 No.4604546 Report 
->>4604533
-...This sounds far more awesome than anything I can come up with. 
-Anonymous Sat 27 Feb 2010 08:29:44 No.4604548 Report 
->>4604533
-I like this plan. 
-Sanger Zombolt! Sat 27 Feb 2010 08:32:44 No.4604571 Report 
->>4604533
-Sounds about right. 
-Can we go streaking after this? Sat 27 Feb 2010 08:33:44 No.4604579 Report 
- Quoted By: >>4604590 
->>4604601 
- ... 
-Sanger Zombolt! Sat 27 Feb 2010 08:35:44 No.4604590 Report 
- Quoted By: >>4604601 
->>4604579
-Sounds about right too. 
-Anonymous Sat 27 Feb 2010 08:37:44 No.4604600 Report 
->>4604500
-Yeah, but every JRPG final boss can unleash their TRUE FORM when getting pounded on by the party's attacks. 
-Anonymous Sat 27 Feb 2010 08:37:44 No.4604601 Report 
->>4604579
->>4604590
-This is neither the time or place. Wait until we destroy at least one major faction. 
-View SameGoogleiqdbSauceNAO portrait01123.png,  24KiB, 256x256 
- 
-Nameless Grunt Sat 27 Feb 2010 08:45:44 No.4604637 Report 
- Quoted By: >>4604659 
->>4604533
-So....an OG version of Goldymarg? 
-Anonymous Sat 27 Feb 2010 08:50:44 No.4604659 Report 
- Quoted By: >>4604665 
->>4604637
-I don't know, can Duminuss punch out the law of gravity? 
-Anonymous Sat 27 Feb 2010 08:50:44 No.4604665 Report 
- Quoted By: >>4604672 
->>4604659
-As we understand them? Most likely. 
-Rick Dominated Sat 27 Feb 2010 08:51:44 No.4604670 Report 
- Quoted By: >>4604696 
->>4604533
-Now it just needs a name... 
-Anonymous Sat 27 Feb 2010 08:52:44 No.4604672 Report 
->>4604665
-Then yes, yes, that WOULD make Duminuss like an OG Goldymarg. 
-Sciencegar Sciencebolt Sat 27 Feb 2010 08:56:44 No.4604696 Report 
- Quoted By: >>4604708 
->>4604765 
->>4604812 
->>4604670
-DynaMugen Ultimo Multiform Initialiser? 
-Anonymous Sat 27 Feb 2010 08:58:44 No.4604708 Report 
->>4604696
-I'm going with DaiDumi. Simple and efficient. 
-Anonymous Sat 27 Feb 2010 09:08:44 No.4604765 Report 
->>4604696
-Yes. Should work nicely. 
-Anonymous Sat 27 Feb 2010 09:14:44 No.4604812 Report 
- Quoted By: >>4604876 
->>4605177 
->>4604696
-Death
-Usurp
-Massacre
-InbelaXPLODE 
-Anonymous Sat 27 Feb 2010 09:29:44 No.4604876 Report 
->>4604812
-Uh, wut? 
-NuBlackAnon !!z6ldXGL61Wm Sat 27 Feb 2010 09:45:44 No.4604944 Report 
- Quoted By: >>4605017 
->>4604533
-YES
-DUMI 
-RAI OH
-FINAL MEGA COMBINATION
-RAIMEGAMI! 
-Anonymous Sat 27 Feb 2010 10:01:44 No.4605017 Report 
->>4604944
-FUCK YES THIS IS THE BEST PLAN EVER 
-Anonymous Sat 27 Feb 2010 10:32:44 No.4605177 Report 
->>4604812
-DYNAMIC
-
-UNISON
-
-MASTER
-
-IMPACT 
-View SameGoogleiqdbSauceNAO SMverse conspiracy chart.png,  139KiB, 1564x1294 
- 
-Stealthyboy !fchRKomfls Sat 27 Feb 2010 14:38:20 No.4605778  Report 
- Just woke up what did I mi- HOLY AWESOME DAIDUMI!
-Also this >>4604337
->If I had more emotional links to my appearence, I imagine I'd be incredibly embarressed.
-made me D'awwww.
-Katina/ Dumi is still OTP.
-
-Have an updated conspiracy chart. 
-View SameGoogleiqdbSauceNAO SMverse conspiracy chart.png,  139KiB, 1564x1294 
- 
-Stealthyboy !fchRKomfls Sat 27 Feb 2010 14:53:44 No.4605818 Report 
- Just woke up what did I mi- HOLY AWESOME DAIDUMI!
-Also this >>4604337
->If I had more emotional links to my appearence, I imagine I'd be incredibly embarressed.
-made me D'awwww.
-Katina/ Dumi is still OTP.
-
-Have an updated conspiracy chart. 
-Sciencegar Sciencebolt Sat 27 Feb 2010 18:09:44 No.4606384 Report 
- Quoted By: >>4606397 
->>4606448 
- Shuu's eyes go wide. "Quite extraordinary..."
+Shuu's eyes go wide. "Quite extraordinary..."
 
 "Awesome, Dumi!!!"
 
-This new form should have all the support features of the DGG-04 and many more besides. I think you'll appreciate it, Katina. Now, we have to finish up here and return to Earth to speak with the others.
+*This new form should have all the support features of the DGG-04 and many more besides. I think you'll appreciate it, Katina. Now, we have to finish up here and return to Earth to speak with the others.*
 
 "Right."
 
-I've saved some samples of the crystal that forms the core of the Judecca, no doubt you'll be interested in those, Dr. Shirakawa.
+*I've saved some samples of the crystal that forms the core of the Judecca, no doubt you'll be interested in those, Dr. Shirakawa.*
 
 "Indeed."
 
-All that remains is to return the Judecca, and provide them with someone with these 'Psychodriver' abilities that it apparently needs. There's really only one candidate: Ms Hackman.
+*All that remains is to return the Judecca, and provide them with someone with these 'Psychodriver' abilities that it apparently needs. There's really only one candidate: Ms Hackman.*
 
-ARE WE GOING TO GIVE PATRICIA THE JUDECCA AND LET HER RETURN TO THE NEVIIM WITH IT? 
-Anonymous Sat 27 Feb 2010 18:15:44 No.4606397 Report 
->>4606384
-Yeah, sure, why not. We did make a promise after all, and theres no need to be assholes about it. 
-Stealthyboy !fchRKomfls Sat 27 Feb 2010 18:39:44 No.4606448 Report 
->>4606384
-If Patricia is alright with it, alright. 
-Anonymous Sat 27 Feb 2010 19:37:44 No.4606630 Report 
- RIDER BUMP! 
-Sciencegar Sciencebolt Sat 27 Feb 2010 20:14:44 No.4606773 Report 
- You re-enter the Peregrines medical bay, passing Kai and Kar-Wai catching up on old time. Kai seems genuinely amazed, and for the first time you can remember, is smiling broadly.
+---
+
+You re-enter the Peregrines medical bay, passing Kai and Kar-Wai catching up on old time. Kai seems genuinely amazed, and for the first time you can remember, is smiling broadly.
 
 You find Patricia just having finished dressing. You curse under your breath. "Pat, we're ready to send you back to the Neviim. You'll be taking their big mech back, to seal the deal between us and them."
 
-"Yeah...Hopefully that'll turn out better than it has so far."
+"Yeah... Hopefully that'll turn out better than it has so far."
 
 "I only blew it up a little!"
 
@@ -549,51 +114,47 @@ You find Patricia just having finished dressing. You curse under your breath. "P
 
 You watch as she walks off to the Hangar. "What a bitch!"
 
-I don't think its as simple as a clash of personalities, Katina. Remember, she's a Psychodriver and you're an...Anti-Psychodriver. Just looking at you probably gives her headache from the mental feedback.
+*I don't think its as simple as a clash of personalities, Katina. Remember, she's a Psychodriver and you're an... Anti-Psychodriver. Just looking at you probably gives her headache from the mental feedback.*
 
-"....Naw, I'm sticking with 'bitch'." 
-Anonymous Sat 27 Feb 2010 20:21:44 No.4606789 Report 
- I like the idea that Katina's mere presence causes Psychics distress 
-Sciencegar Sciencebolt Sat 27 Feb 2010 20:31:44 No.4606832 Report 
- Quoted By: >>4606845 
->>4606878 
- Patricia Hackman climbs into the cockpit of the Judecca, and relaxes as silver cables emerge from the cieling and wrap around her limbs. It's just a different version of the T-Link System, Pat. You can handle your Gespenst, you can handle this.
+"...Naw, I'm sticking with 'bitch'." 
+
+---
+
+Patricia Hackman climbs into the cockpit of the Judecca, and relaxes as silver cables emerge from the cieling and wrap around her limbs. It's just a different version of the T-Link System, Pat. You can handle your Gespenst, you can handle this.
 
 The Scorpion-like giant emerges from the Eurydice's hangar, and transforms to humanoid mode. It steadily advances on the Neviim, and images of the alien fortresses system dance inside Pats head.
 
-All this feedback is freaky...Damn, Katina's people really did a number on us. I sure hope Laodicea's in a forgiving mood, we certainly don't need another battle like th-"
+All this feedback is freaky... Damn, Katina's people really did a number on us. I sure hope Laodicea's in a forgiving mood, we certainly don't need another battle like th-"
 
-And whoooo do we have here then? You're not Torah's pet human.
+*And whoooo do we have here then? You're not Torah's pet human.*
 
 "!!!"
 
-Oh I remember now, that half-baked sample that Armana had rescued from the scrap-heap. Far from an ideal tool, but then, I get so little material to work with these days...
+*Oh I remember now, that half-baked sample that Armana had rescued from the scrap-heap. Far from an ideal tool, but then, I get so little material to work with these days...*
 
 "Ugh...Get out...of my head..."
 
-I'm afraid I can't allow Laodicea to run around on his own anymore, my dear. That noble idiot will run what's left of the Empire into the ground if I leave it up to him. No, I'm afraid I'll have to take over for my little 'brother', and you'll have to help me.
+*I'm afraid I can't allow Laodicea to run around on his own anymore, my dear. That noble idiot will run what's left of the Empire into the ground if I leave it up to him. No, I'm afraid I'll have to take over for my little 'brother', and you'll have to help me.*
 
 "Nooo....Agghkkkk...."
 
-Nothing I can do about this, I'm afraid. Blame that Torah girl for being so idiotically self-sacrificing... 
-Anonymous Sat 27 Feb 2010 20:34:44 No.4606845 Report 
->>4606832
-SHIT. 
-Sciencegar Sciencebolt Sat 27 Feb 2010 20:37:44 No.4606865 Report 
- Quoted By: >>4606930 
- The Judecca re-enters the Asteroid, and another mech emerges to join you, of the same design to the ones you captured earlier. "My name is Bet Barshem, I will be the liaison between Shadow Mirror and the Neviim."
+*Nothing I can do about this, I'm afraid. Blame that Torah girl for being so idiotically self-sacrificing...*
+
+---
+
+The Judecca re-enters the Asteroid, and another mech emerges to join you, of the same design to the ones you captured earlier. "My name is Bet Barshem, I will be the liaison between Shadow Mirror and the Neviim."
 
 "Awesome. Ok Shuu, take us back to Africa, I gotta lot of catching up t-"
 
-I'm afraid not, Katina. Part of the deal I made with the Junkers Faction is that we deliver the DC survivors and the ODE system to them first. And hand over some of our samples of alien tech.
+*I'm afraid not, Katina. Part of the deal I made with the Junkers Faction is that we deliver the DC survivors and the ODE system to them first. And hand over some of our samples of alien tech.*
 
 "Aw man, are we ever gonna get home at this rate?"
 
-We've been gone less that 48 hours. And you've never actually been to that base.
+*We've been gone less that 48 hours. And you've never actually been to that base.*
 
 "I meant home in the 'within glomping range of Arado and Latooni' sense."
 
-...I see. 
+*...I see.*
 Anonymous Sat 27 Feb 2010 20:39:44 No.4606878 Report 
 >>4606832
 Well if this idiot gets into power the Balmarians are fucked. 
