@@ -5,29 +5,9 @@
 In our last, relatively content-light thread (seriously, what have I spawned that causes so much discussion?), Katina and company arrived back on Earth, at a secret location in China where the Junkers Faction and the Earth' Liberation Front were meeting. Most of the team began paying their blood-money to the DC for destroying their space base, while Katina wandered off to help a construction worker called Rand to pull an ancient lion-shaped mechanoid out of the ground. Unfortunately, it turned out the thing was infested with Einst tentacles, so Katina bravely electrocuted it (and Rand) in the middle of the DC camp, then ran screaming at the next mechanoid. This caused a bit of confusion.
 
 While the other factions finally realise that somethings up other than Katina, she is wrestling a giant snake-thing, which threatens to crush her in its coils. Meanwhile, Dumi, in his new ship form, heads for the Zweizergain, the cause of and solution to most of the Shadow Mirrors problems.
-Anonymous Sun 28 Feb 2010 17:53:09 No.4614071 Report
-Repostan
 
-THE CHECKLIST (A list of our long term goals)
-O Achieve Final Form Raido - RaiOh!
-O Build Grungust Neo
-O Build GUN-Oh
-O Build Linked Valkyrlion Squadron for Lat
-O Build Turn A Huckebein
-O Upgrade Vysaga
-O OPERATION STREAKER
-O Destroy Euzeth's Interdimensional Jackass Network of Evil
-O Free Dumi from Dark Brains control
-O Meet Irui Gan Eden
-O Cause civil war in the EFA
-O Get autographs of as many badasses as possible
-O Rape Latooni
-O Rape Arado
-O Rape/Finish interrogating Shine
-O Get Arado into a dress
-O Become HERO OF JUSTICE
-Sciencegar Sciencebolt Sun 28 Feb 2010 18:15:09 No.4614125 Report
-Quoted By: >>4614153 >>4614178 >>4614183 >>4614211 >>4614230
+---
+
 Adrenaline pumps into your system as you scream your fury at the Snake "FUCK YOU!! IF YOU WON't FRY, YOU'LL BUUUUURRRNN!!!" You swing the whole mech around several times and toss it into the air. The tail wrenchs out of the back of the Raioh, squirting some kind of liquid. The Raioh glows red and leaps into the air, its legs aflame.
 
 "RISING METEOR!!!"
