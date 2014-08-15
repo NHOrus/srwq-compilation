@@ -51,43 +51,16 @@ It seems Kai still hasn't worked out the kinks in his custom mech, as already it
 You look back as a roar erupts from the ELF camp. Climbing into the sky is a blue mech, Grungust-sized, with a familiar-looking tigers face on its chest. Lightning flashes, clouds gather....
 
 And then it starts raining mountains.
-NuBlackAnon !!z6ldXGL61Wm Mon 01 Mar 2010 06:54:56 No.4618100 Report
-Quoted By: >>4618155
->>4617879
-I DEMAND DATABASE
-ROBOTS WITH NO SOULS
-COLLECTING INFORMATION
-also you could put meta commentary about our story.
-Anonymous Mon 01 Mar 2010 06:55:56 No.4618102 Report
-... Inb4 Rand attacks Kai and it turns out he have grudge against him from their Aggressor days and says "I never was on your side Katina."
-NuBlackAnon !!z6ldXGL61Wm Mon 01 Mar 2010 06:55:56 No.4618104 Report
->>4618054
-Onre Katina, 31 thread will be your last
-Final Form Laido, SSSRRRRXXXX
-Anonymous Mon 01 Mar 2010 06:56:56 No.4618107 Report
-Quoted By: >>4618162
->>4617879
-Its simple really.
 
-Give us a second SRX team made up of the J and D originals.
-Anonymous Mon 01 Mar 2010 06:56:56 No.4618108 Report
-Evade! Evade!
-Anonymous Mon 01 Mar 2010 06:57:35 No.4618112 Report
->>4617682
-Remove the illegal clone subdomain and all of its files from your server, moot. Immediately stop spamming and cloning www. AnÒＮｔＡIk .com.
-View SameGoogleiqdbSauceNAO Team Yuuki.png, 191KiB, 691x340
-Anonymous Mon 01 Mar 2010 07:01:56 No.4618133 Report
-Quoted By: >>4618163 >>4618177 >>4618188
-Here it is. Not perfect, but I think it should do the job.
-Sciencegar Sciencebolt Mon 01 Mar 2010 07:01:56 No.4618134 Report
-Quoted By: >>4618147 >>4618185
+---
+
 Russel Bagman sighs as the Guarlion cruises along "Sure has been quiet while Katina's been gone. Too quiet, nearly. A fella could end up dyin' in bed if it stays like this."
 
 "..."
 
 "Wha's wrong, Latooni? You missin' her as well?"
 
-"Certainly not. I'm merely concerned as to why the DGG-04 appeared without her. It seemed those two were inseper...Contact, behind us. Evade, Bagman!"
+"Certainly not. I'm merely concerned as to why the DGG-04 appeared without her. It seemed those two were insepar... Contact, behind us. Evade, Bagman!"
 
 "Whu-!" Russel throws the Guarlion into a spin as missiles fly past. He curses as the thing careens through the sky, then switches his sensors.
 
@@ -95,98 +68,11 @@ Russel Bagman sighs as the Guarlion cruises along "Sure has been quiet while Kat
 
 The voice that comes over the comms isn't Arado's friend. "Well done avoiding my first attack, its nice to see you have at least some skill. Now, let us move on to the true fight! Arm yourselves, whelps!" The R-Wing boosts after the two, G-cannons blazing.
 
-WHAT WILL RUSSEL AND LATOONI DO?
-Nameless Grunt Mon 01 Mar 2010 07:02:56 No.4618141 Report
->>4618086
->And then it starts raining mountains.
-Shit.
-Anonymous Mon 01 Mar 2010 07:03:56 No.4618146 Report
-Dive out of the way and get some AA fire going! Radio base!
-Anonymous Mon 01 Mar 2010 07:03:56 No.4618147 Report
->>4618134
-Shoot him while he's talking.
-Sciencegar Sciencebolt Mon 01 Mar 2010 07:04:56 No.4618155 Report
-Quoted By: >>4618163 >>4618166 >>4618168 >>4618173
->>4618100
-
-I'm missing the reference, Endless Frontier character or something?
-Anonymous Mon 01 Mar 2010 07:05:56 No.4618162 Report
->>4618107
->J and D originals
->Calvina piloting the SRX
-Oh shit.
-Anonymous Mon 01 Mar 2010 07:05:56 No.4618163 Report
-Quoted By: >>4618176
->>4618155
-Robot Wars W villains.
-
->>4618133
-Oh lawdy.
-Anonymous Mon 01 Mar 2010 07:05:56 No.4618166 Report
-Quoted By: >>4618176
->>4618155
-The bad guys from W.
-Anonymous Mon 01 Mar 2010 07:05:56 No.4618168 Report
-Quoted By: >>4618176
->>4618155
-Database is W.
-Anonymous Mon 01 Mar 2010 07:06:56 No.4618173 Report
-Quoted By: >>4618176
->>4618155
-W
-
-Anyway, yeah, evade, counterfire, alert base.　Have Latooni keep him occupied while Russel takes potshots.
-View SameGoogleiqdbSauceNAO lunartrigger.jpg, 193KiB, 400x540
-Anonymous Mon 01 Mar 2010 07:07:56 No.4618176 Report
->>4618163
->>4618166
->>4618168
->>4618173
->W mind
-Anonymous Mon 01 Mar 2010 07:07:56 No.4618177 Report
->>4618133
-I really hope these guys wear silly costumes like these ones.
-Anonymous Mon 01 Mar 2010 07:08:56 No.4618185 Report
-Quoted By: >>4618200 >>4618231
->>4618134
-
-Latooni transforms and goes on to the Rendevous, Russel takes care of Yuuki in a sword duel, The two exhange insults that eventually turn into a discussion about how Irish Coffee truly brings out the best of both the Coffee and the Whiskey..
-Anonymous Mon 01 Mar 2010 07:08:56 No.4618188 Report
->>4618133
->Look at Carla
->DAT GRIN
-Anonymous Mon 01 Mar 2010 07:11:56 No.4618200 Report
->>4618185
-Sounds like a plan. If absolutely neccessary, Russel should heroic sacrifice to cripple the R-1.
-Anonymous Mon 01 Mar 2010 07:16:56 No.4618224 Report
-Quoted By: >>4618234
-You know, now I want to see Bullet and Yuuki have a knight-off.　Whose the most chivalourous of them all?
-Anonymous Mon 01 Mar 2010 07:18:56 No.4618231 Report
-Quoted By: >>4618253
->>4618185
-This, except Latooni stays to help.
-Anonymous Mon 01 Mar 2010 07:18:56 No.4618234 Report
->>4618224
-Sanger and Wodan.
-Anonymous Mon 01 Mar 2010 07:21:56 No.4618253 Report
->>4618231
-That would be a bad plan. The mission takes precedence. Latooni knows this. Staying would be out of character.
-Anonymous Mon 01 Mar 2010 07:33:56 No.4618322 Report
-Russel! Kick his ass!
-Anonymous Mon 01 Mar 2010 07:37:56 No.4618348 Report
-Quoted By: >>4618363
-Adding in to the whole, "Recruit everyone" problem.
-
-I think we could do with some more "enemy base" cutscenes or stuff like we did/are doing with Yuuki.
-
-The reason i think plenty of people just want to recruit everyone is because they feel it is the only way the characters will appear regulary.
-Sciencegar Sciencebolt Mon 01 Mar 2010 07:38:56 No.4618352 Report
-Quoted By: >>4618359 >>4618362 >>4618372 >>4618395 >>4618446
 "Lat, get out of here! Head to Dumi, I'll slow this bastard down!" Russel swings the Guarlion around, autocannon blazing, but none of the shots land.
 
 "Roger." Latooni doesn't even look back as she accelerates towards the target point.
 
-"Splitting up?" Yuuki grins as Russel charges in with his assault blade. "You obviously think highly of yourself...Lets see if you meet expectations."
+"Splitting up?" Yuuki grins as Russel charges in with his assault blade. "You obviously think highly of yourself... Lets see if you meet expectations."
 
 The assault blade stabs into the spot were the R-wing was, as the machine transform upside-down and gracefully draws its revolvers mid-flip. The bullets bounce off the back of the Guarlions head as Russel desperately rolls away.
 
@@ -194,56 +80,21 @@ The assault blade stabs into the spot were the R-wing was, as the machine transf
 
 "Shurrup, ye nonce!" Russel hits the accelerator and boosts away, the Guarlion starting to glow blue.
 
-"Oh dear, a Sonic Breaker...You're a poor excuse for a knight, having no unique style of your own..." The R-1s fists begin to glow pink as Yuuki draws them together.
+"Oh dear, a Sonic Breaker... You're a poor excuse for a knight, having no unique style of your own..." The R-1s fists begin to glow pink as Yuuki draws them together.
 
-"I...said...SHUT UP!!!" The Guarlion rockets at the other mech, which makes no attempt to dodge.
+"I...  said... SHUT UP!!!" The Guarlion rockets at the other mech, which makes no attempt to dodge.
 
 "T-Link Blade, show this fool a true knight's power!"
 
 The pink flash clears and Russel finds himself piloting half a Guarlion. And not the half with a Tesla Drive either...
-Anonymous Mon 01 Mar 2010 07:39:56 No.4618359 Report
->>4618352
 
-RUSSEL! NOOOOO!
+---
 
-NOTASPLANNED.JPG
-Anonymous Mon 01 Mar 2010 07:39:56 No.4618362 Report
->>4618352
-I knew this would happen. GOOD JOB GUYS.
-Sciencegar Sciencebolt Mon 01 Mar 2010 07:40:56 No.4618363 Report
-Quoted By: >>4618389 >>4618428
->>4618348
-
-I've just realised that the only confirmed dead named character is Ensign Mickey. And the Balmar who would have been Ingram, I suppose.
-
-Goddammit, I'm going to have to rectify this...
-Anonymous Mon 01 Mar 2010 07:40:56 No.4618372 Report
-Quoted By: >>4618388
->>4618352
-Deathgrip the bastard, if possible. Then self destruct.
-Anonymous Mon 01 Mar 2010 07:44:56 No.4618388 Report
->>4618372
-
-Don´t, Eject instead Russel is still alive(I think) and we would probably not to whole lot of damage.
-Anonymous Mon 01 Mar 2010 07:44:56 No.4618389 Report
-Quoted By: >>4618428
->>4618363
-You leave Russel alone!
-
-Don't Die you lovable Irishman!
-Anonymous Mon 01 Mar 2010 07:44:56 No.4618395 Report
->>4618352
-Russel! Spam Trust on yourself! NOW BITCH
-Anonymous Mon 01 Mar 2010 07:46:56 No.4618404 Report
-Quoted By: >>4618428
-RUSSEL BAGMAN WILL NOT BE DEFEATED SO EASILY! FOR THE SHADOW MIRROR!
-Sciencegar Sciencebolt Mon 01 Mar 2010 07:49:56 No.4618424 Report
-Quoted By: >>4618444 >>4618461 >>4618464
-Latooni supresses a shudder as Russel transponder goes offline. I knew it...Man wasn't anything of a pilot anyway. "Trilobite 1, please come in, we are under attack."
+Latooni suppresses a shudder as Russel transponder goes offline. I knew it... Man wasn't anything of a pilot anyway. "Trilobite 1, please come in, we are under attack."
 
 "This is Trilobite 1, we are also engaged. They're bombing the base, the DC are deploying Lions. It looks like the units we fought in the Gulf of Mexico."
 
-Project SRW...Kai's mystery faction, and the backers of the School. Stands to reason we wouldn't find any friends there.
+Project SRW... Kai's mystery faction, and the backers of the School. Stands to reason we wouldn't find any friends there.
 
 Latooni then notices a new contact on her scope. A big one, and headed in the same direction as her. What now?
 The Hi-Zol Launcher gouges a long trough in the side of the XN-Giest, and Tandem-4s legs melt from under him. The rest of Tandem brigade take to the air, only for glowing Strike Shields to tear into their ranks like bloodthirsty hawks.
