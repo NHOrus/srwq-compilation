@@ -2,12 +2,10 @@
 
 ##SRWQ Mission 32: ATTAKU RAIDO: BALANGA
 
-In our last terrible thread, we left Katina battling Einst, EFA, DC Bartols, the Earth Liberation Front, Vindel Mauser and the Ryukooh, and switched back to the DC base in darkest Africa, where the SRX team of Yuuki, Carla, Tenzan and Aya had assaulted the rest of the Shadow Mirrors to learn more about them. As mechs battled desperately around the DC base, a sercet team of cyborgs infiltrated the Shadow Mirrors ship to steal equipment and capture personell. And the only person who can stop them is a teenage boy that our heroine killed herself...
-Haken Browning !zHe7DH816A Mon 01 Mar 2010 21:44:58 No.4621002 Report
-Quoted By: >>4621036 >>4621037 >>4621231
-Quick bump so we can queue orders for the Shrike Orphenoch, AKA SM!Arado.
-Sciencegar Sciencebolt Mon 01 Mar 2010 21:45:58 No.4621008 Report
-Quoted By: >>4621027 >>4621231
+In our last terrible thread, we left Katina battling Einst, EFA, DC Bartols, the Earth Liberation Front, Vindel Mauser and the Ryukooh, and switched back to the DC base in darkest Africa, where the SRX team of Yuuki, Carla, Tenzan and Aya had assaulted the rest of the Shadow Mirrors to learn more about them. As mechs battled desperately around the DC base, a secret team of cyborgs infiltrated the Shadow Mirrors ship to steal equipment and capture personnel. And the only person who can stop them is a teenage boy that our heroine killed herself...
+
+---
+
 Unit-ST raises the dartgun at the screaming nurse, one eye on the victim, another on their primary target. Shine Hausen looked at the cyborg with relief, then over his shoulder with concern. The thing was had been Jo Shigeru risks a look behind it.
 
 Unit ZX smashes into his face, sending his stun dart astray and the gun out of his hand. The two cyborgs pick themselves up as The Boosted Child steps through the shattered doorway. He nods at Kusuha.
@@ -16,212 +14,12 @@ Unit ZX smashes into his face, sending his stun dart astray and the gun out of h
 
 Kusuha faints. The two cyborgs leap at the boy-thing.
 
-WHAT WILL THE BOOSTED CHILD DO?
-Stealthyboy !fchRKomfls Mon 01 Mar 2010 21:47:58 No.4621019 Report
-Quoted By: >>4621231
-W-BC-01 KICK!
-Haken Browning !zHe7DH816A Mon 01 Mar 2010 21:48:58 No.4621027 Report
-Quoted By: >>4621035 >>4621052 >>4621061 >>4621231
->>4621008
-ATTACK LAIDO: BEETLE CRUSHER
+Arado catches both cyborgs in mid-leap, and slams them to the ground, squeezing at their necks until he hear popping noises. "You've done a good job, Dumi. This new body... it's all an undead monster could ask for!"
 
-...Wait, he's not combat-equipped yet, right?
-
-BEETLE CRUSHER ANYWAY. Grab a windpipe and crumple it in one hand all badass-like.
-Stealthyboy !fchRKomfls Mon 01 Mar 2010 21:49:58 No.4621035 Report
-Quoted By: >>4621052 >>4621231
->>4621027
->Grab a windpipe and crumple it in one hand all badass-like.
-Actually, this.
-Oh god this.
-View SameGoogleiqdbSauceNAO Wait who is phone zoom in.png, 954KiB, 639x1079
-Faiz, Vindicare !!oHNZ1QN/tbk Mon 01 Mar 2010 21:49:58 No.4621036 Report
-Quoted By: >>4621231
->>4621002
->Shrike Orphenoch
-
-...there any drawfags nearby?
-Sciencegar Sciencebolt Mon 01 Mar 2010 21:49:58 No.4621037 Report
-Quoted By: >>4621042 >>4621231
->>4621002
-
-Uh...Is there a shrike orphenoch? I don't see one on wikipedia, where's this coming from?
-Haken Browning !zHe7DH816A Mon 01 Mar 2010 21:50:58 No.4621042 Report
-Quoted By: >>4621231
->>4621037
-It's from Shrike being a nick for the Wildwurger.
-Brave Exkaiser will Never Die Mon 01 Mar 2010 21:51:58 No.4621052 Report
-Quoted By: >>4621231
->>4621027
->>4621035
-This.
-Anonymous Mon 01 Mar 2010 21:53:58 No.4621061 Report
-Quoted By: >>4621072 >>4621231
->>4621027
->Grab a windpipe and crumple it in one hand all badass-like.
-Why stop at one?
-
-DO IT TO BOTH
-Stealthyboy !fchRKomfls Mon 01 Mar 2010 21:55:58 No.4621072 Report
-Quoted By: >>4621231
->>4621061
-At the same time. One in each hand.
-Sciencegar Sciencebolt Mon 01 Mar 2010 22:07:58 No.4621107 Report
-Quoted By: >>4621114 >>4621116 >>4621125 >>4621128 >>4621231
-Arado catches both cyborgs in mid-leap, and slams them to the ground, squeezing at their necks until he hear popping noises. "You've done a good job, Dumi. This new body...it's all an undead monster could ask for!"
-
-I do try my best. And its not like I haven't made improved humans before.
+*I do try my best. And its not like I haven't made improved humans before.*
 
 "More than improved, transcended! I'll be like a g-" The two booted feet strike Arado in the back simultaneously, sending him flying with artificial force. He lands next to the restrained girl in the red jumpsuit, and the unconscious guard beside her. With a hiss, the damaged cyborgs switch to backup oxygen supplies, and charge again. The bulkier one is headed for the boy, crackling with electricity, while ZX heads towards the restrained girl, knife in one hand, grenade in the other.
 
-WHAT WILL ARADO DO?
-SEED D Cagalli !!U5xc0wG3iH0 Mon 01 Mar 2010 22:08:58 No.4621114 Report
-Quoted By: >>4621231
->>4621107
-
-If the guard has any guns on him, use them to shoot out the knife and grenade in the one's hand before beating the shit out of the other.
-Anonymous Mon 01 Mar 2010 22:08:58 No.4621116 Report
-Quoted By: >>4621231
->>4621107
-Kick off Stronger, then UNDEAD ABOMINATION KICK ZX in the back of the head.
-Haken Browning !zHe7DH816A Mon 01 Mar 2010 22:10:58 No.4621125 Report
-Quoted By: >>4621231 >>4621289
->>4621107
-Sweep kick Unit ST such that he falls into Unit ZX and his electric charge trips the grenade's spoon.
-
-Then, while ZX is confused, toss grenade at unoccupied wall, abscond with Shine through the new hole.
-Stealthyboy !fchRKomfls Mon 01 Mar 2010 22:11:58 No.4621128 Report
-Quoted By: >>4621138 >>4621139 >>4621231
->>4621107
-Eye laser them.
-Oh, go on.
-
-Fine, get the one running for you to accidentaly hit the one going for Shine.
-
-Then Eye Laser them
-Anonymous Mon 01 Mar 2010 22:13:58 No.4621138 Report
-Quoted By: >>4621231
->>4621128
-Seconding eye lasers.
-Anonymous Mon 01 Mar 2010 22:14:58 No.4621139 Report
-Quoted By: >>4621231
->>4621128
-GO CROSSEYED
-adviceArado.jpg
-FIRE EYE LASERS AT BOTH OF THEM
-Anonymous Mon 01 Mar 2010 22:27:58 No.4621189 Report
-Quoted By: >>4621196 >>4621200 >>4621231
-Undead Arado should totally act like Deadpool. Complete with yellow boxes ^_^
-Sanger Zombolt! Mon 01 Mar 2010 22:30:58 No.4621196 Report
-Quoted By: >>4621200 >>4621201 >>4621231
->>4621189
-It seems he may end up acting more like Deathstroke than Deadpool.
-Haken Browning !zHe7DH816A Mon 01 Mar 2010 22:32:58 No.4621200 Report
-Quoted By: >>4621231
->>4621196
->>4621189
-My bets were on William Dunbar if he traded his XANkantou for a respectable English vocabulary.
-Anonymous Mon 01 Mar 2010 22:32:58 No.4621201 Report
-Quoted By: >>4621231
->>4621196
-Laaaaaaaaame.
-
-Oh well, as long as he isn't dudepeel...
-Anonymous Mon 01 Mar 2010 22:38:58 No.4621214 Report
-Quoted By: >>4621231
-RIP AND TEAR! RIP AND TEAR! [B]RIP AND TEAR!!!![/B]
-View SameGoogleiqdbSauceNAO EYE LAZORZ!.png, 445KiB, 749x606
-Stealthyboy !fchRKomfls Mon 01 Mar 2010 22:42:58 No.4621223 Report
-Quoted By: >>4621226 >>4621231
-You know it must happen!
-Anonymous Mon 01 Mar 2010 22:44:58 No.4621226 Report
-Quoted By: >>4621231
->>4621223
-:3
-sage Mon 01 Mar 2010 22:47:58 No.4621231 Report
-Quoted By: >>4621247 >>4621266 >>4621268
->>4621226
->>4621223
->>4621214
->>4621201
->>4621200
->>4621196
->>4621189
->>4621139
->>4621138
->>4621128
->>4621125
->>4621116
->>4621114
->>4621107
->>4621072
->>4621061
->>4621052
->>4621042
->>4621037
->>4621036
->>4621035
->>4621027
->>4621019
->>4621008
->>4621002
->>4620958
-
-Samefagging bullshit. And RP wouldn't last this long if it wasn't all samefags.
-
-Sage.
-Anonymous Mon 01 Mar 2010 22:48:58 No.4621236 Report
-Quoted By: >>4621246 >>4621263
-Oh lol, the trolls are back!
-SEED D Cagalli !!U5xc0wG3iH0 Mon 01 Mar 2010 22:53:58 No.4621246 Report
-Quoted By: >>4621263
->>4621236
-
-Dumb ones who can't even sage right to boot.
-Anonymous Mon 01 Mar 2010 22:53:58 No.4621247 Report
->>4621231
-notsureifserious.jpg
-sage Mon 01 Mar 2010 22:59:58 No.4621263 Report
-Quoted By: >>4621265 >>4621268
->>4621246
->>4621236
-Samefags.
-
-Reported for RP bullshit.
-Anonymous Mon 01 Mar 2010 22:59:58 No.4621265 Report
->>4621263
-Enjoy your ban, bro.
-sage Mon 01 Mar 2010 22:59:58 No.4621266 Report
-Quoted By: >>4621267 >>4621268
->>4621231
-I agree with this man. Stop this RP bullshit. Go to /tg/.
-Anonymous Mon 01 Mar 2010 23:00:58 No.4621267 Report
->>4621266
-Okay, now you're definitely taking the piss.
-sage Mon 01 Mar 2010 23:00:58 No.4621268 Report
->>4621266
->>4621263
->>4621231
-
-Fourthed.
-Stealthyboy !fchRKomfls Mon 01 Mar 2010 23:00:58 No.4621271 Report
-Quoted By: >>4621276
-Guys.
-
-Don't respond to the trolls.
-
-Don't. Fucking. Respond.
-Anonymous Mon 01 Mar 2010 23:01:58 No.4621276 Report
-Quoted By: >>4621279
->>4621271
-This. Anyhow, what have we decided on?
-Stealthyboy !fchRKomfls Mon 01 Mar 2010 23:02:58 No.4621279 Report
->>4621276
-EYE LAZORS!!!!!
-
-yeah, no.
-Sciencegar Sciencebolt Mon 01 Mar 2010 23:05:58 No.4621283 Report
-Quoted By: >>4621294 >>4621297 >>4621310
 Arado leaps off the floor and grabs the large cyborg. Lightning courses through him, but he is beyond pain. He twists, and the cyborg flies into his partner.
 
 "I don't know why they want you, girl, but I don't intend to let them get you."
@@ -231,275 +29,17 @@ Shine strains against her bonds. "N-no! My future is with them! Let me goooo!!"
 She yells as Arado picks up the entire bed, ripping it from the floor supports, and uses it as a battering ram to smash down the door, and escape into the hangar. Outside, Arado sees two more cyborgs, carrying off three unconscious forms, and firing back at armed crewmen as they head for the exit.
 
 WHAT SHALL OUR HERO-ESQUE PERSON DO? And no, no eye lasers, yet.
-Anonymous Mon 01 Mar 2010 23:06:58 No.4621289 Report
->>4621125
-This. Also, this Arado needs a jetpack so he can Raptor Wings crap.
-Stealthyboy !fchRKomfls Mon 01 Mar 2010 23:07:58 No.4621294 Report
->>4621283
->And no, no eye lasers, yet.
->yet
 
-I'll hold you to that yet, Sciencegar.
-
-Suggestion? Use bed as weapon.
-Haken Browning !zHe7DH816A Mon 01 Mar 2010 23:08:58 No.4621297 Report
-Quoted By: >>4621301
->>4621283
-DUAL WIELDING TIME
-*adviceRoboArado*
-BED IN ONE HAND, SHINE IN THE OTHER
-Anonymous Mon 01 Mar 2010 23:09:58 No.4621301 Report
->>4621297
-This. Totally this.
-Anonymous Mon 01 Mar 2010 23:11:58 No.4621310 Report
->>4621283
-CONTINUE RAMMING ACTION
-adviceArado.jpg
-INTO THE RIDERS
-Anonymous Mon 01 Mar 2010 23:15:58 No.4621321 Report
-Quoted By: >>4621381
-Well, when we get serious there's only one thing to do...
-
-CAST OFF
-
-CHANGE, STAG BEETLE
-Rick Dominated Mon 01 Mar 2010 23:23:58 No.4621353 Report
-Quoted By: >>4621362
-Knock out Shine (Again), rip her off bed and place her somplace safe. Chuck bed at Riders, continue to give riders taste of their own medicine. Save Prisoners.
-Anonymous Mon 01 Mar 2010 23:23:58 No.4621356 Report
-Kick ass.
-AdviceRoboArado.jpg
-Wonder how Katina ever managed to kill us.
-Stealthyboy !fchRKomfls Mon 01 Mar 2010 23:26:58 No.4621362 Report
-Quoted By: >>4621365
->>4621353
->rip her off bed and place her somplace safe.
-
-NO.
-Don't let Shine out of our sight.
-I don't want to have to fight her seven times again if she gets away.
-Haken Browning !zHe7DH816A Mon 01 Mar 2010 23:26:58 No.4621365 Report
-Quoted By: >>4621377
->>4621362
-That's why we're equipping her to our off-hand, silly.
-Stealthyboy !fchRKomfls Mon 01 Mar 2010 23:29:58 No.4621377 Report
-Quoted By: >>4621382 >>4621387
->>4621365
-This is acceptable.
-
-I can see it now, W-BC-01, bitch in one arm, bed in the other. Kicking names and taking ass.
-...
-wait...
-View SameGoogleiqdbSauceNAO YuusukeYamamoto.jpg, 27KiB, 431x584
-Anonymous Mon 01 Mar 2010 23:30:58 No.4621381 Report
->>4621321
-My good friend, aRAdo!
-Anonymous Mon 01 Mar 2010 23:30:58 No.4621382 Report
->>4621377
-Hahaha. I c wat u did thar
-Haken Browning !zHe7DH816A Mon 01 Mar 2010 23:32:58 No.4621387 Report
-Quoted By: >>4621396
->>4621377
-Oh, he'll be taking ass all right. Shine can't delude herself with unreasonable futures forever...
-Anonymous Mon 01 Mar 2010 23:34:58 No.4621396 Report
-Quoted By: >>4621402 >>4621417 >>4621463
->>4621387
-Yeees~
-
-Break Shine
-AdviceMagus.jpg
-Inject with Machine Cells
-Anonymous Mon 01 Mar 2010 23:36:58 No.4621402 Report
-Quoted By: >>4621416 >>4621417
->>4621396
-Oh gods, I just realized how this could be taken as a double entendre. WHAT WAS I THINKING?!?
-View SameGoogleiqdbSauceNAO RmF_WilyEyebrow.gif, 1KiB, 50x50
-Stealthyboy !fchRKomfls Mon 01 Mar 2010 23:39:58 No.4621416 Report
->>4621402
-Too late.
-Haken Browning !zHe7DH816A Mon 01 Mar 2010 23:39:58 No.4621417 Report
-Quoted By: >>4621421
->>4621396
->>4621402
-Dammit, I JUST failed at writing "gentle mind break" fapfic for this universe.
-
-If you want to see my good stuff in the future, quit flooding my queue like this.
-Anonymous Mon 01 Mar 2010 23:40:58 No.4621421 Report
->>4621417
-Sorry Haken...
-
-Take your time...
-Sciencegar Sciencebolt Mon 01 Mar 2010 23:47:58 No.4621451 Report
-Quoted By: >>4621465 >>4621477 >>4621499 >>4621629
 "NOOO! DON'T!!!" Shine screams as Arado charges on, taking a cyborg in the head as he leap forwards and throws the whole package. It drops Rio and Ryoto, as he kicks out at the other one. It no-sells the shoulder blow and swings the gun to point at the boy. With a blur, his arm comes up to block the gun, as he blurs forward to headbutt the thing. Already weakened by Ryo's gunfire, V3s helmet-face cracks, the tertiary eye popping out.
 
 There are now 4 cyborgs around Arado. One, seemingly the leader, is picking up the bed the boy threw at him, along with Shine. V3 is backing off and crouching to leap. ST is moving towards the exit, and ZX has just pulled the pin on his grenade.
 
-WHAT WILL ARADO DO? Theres a dim awareness of energy depletion, that all the stress of the fight isn't doing the Machine Cells any favors.
-Sciencegar Sciencebolt Mon 01 Mar 2010 23:49:58 No.4621463 Report
-Quoted By: >>4621482
->>4621396
-
-Why would you give Shine Machine Cells? They don't make you automatically friendly, you'd just be making her more difficult to get rid of. She's pretty much the only character seem to want dead, other than Beowulf.
-Stealthyboy !fchRKomfls Mon 01 Mar 2010 23:50:58 No.4621465 Report
-Quoted By: >>4621481
->>4621451
-Grab Rio and Ryoto and get them out of there.
-
-Yes I do realise this means Arado will be carrying a bed and three people.
-Anonymous Mon 01 Mar 2010 23:53:58 No.4621477 Report
->>4621451
-Holy shit Machien Child Arado is awesome.
-
-Get out of there with everyone.
-Haken Browning !zHe7DH816A Mon 01 Mar 2010 23:54:58 No.4621481 Report
-Quoted By: >>4621489 >>4621553
->>4621465
-You're forgetting they also stunned Jonathan.
-
-The only reasonable way to evacuate them ALL before dealing with the enemies would be an unreasonable
-
-EVERYBODY ON THE FUCKING BED
-*AdviceRoboArado*
-I GOT THIS
-Anonymous Mon 01 Mar 2010 23:54:58 No.4621482 Report
->>4621463
-What part of "Break her first" did you miss?
-Stealthyboy !fchRKomfls Mon 01 Mar 2010 23:56:58 No.4621489 Report
-Quoted By: >>4621502
->>4621481
-A bed and four people then.
-
-God, no wonder Katina went all jealous psycho when she found Arado inside Ouka.
-Couch Mon 01 Mar 2010 23:58:58 No.4621499 Report
->>4621451
-
-Backhand the grenade into a wall (or hell, just punch a hole in the wall), grab Ryoto and Rio and escape.
-Sciencegar Sciencebolt Mon 01 Mar 2010 23:58:58 No.4621502 Report
-Quoted By: >>4621517
->>4621489
-
-You do realise these abilities are due to him being a Rider, a W-Series, and an Ancestor all at once, don't you? He was good before, but not this good.
-Stealthyboy !fchRKomfls Tue 02 Mar 2010 00:01:58 No.4621517 Report
->>4621502
-Well, yeah, I know that.
-My point still stands.
-When I think of what Katina's going to do to SM!Arado *Wilyeyebrow.gif
-Rick Dominated Tue 02 Mar 2010 00:06:58 No.4621553 Report
->>4621481
-This. Kick Hongo in the face, grab remaining prisoners (I think one of them is Kazahara) pile them on bed, GTFO.
-Anonymous Tue 02 Mar 2010 00:14:58 No.4621601 Report
-Quoted By: >>4621606 >>4621608 >>4621610 >>4621622 >>4621629
-Will we ever see a Resident Evil mech in this fic?
-Sciencegar Sciencebolt Tue 02 Mar 2010 00:14:58 No.4621606 Report
-Quoted By: >>4621637
->>4621601
->Resident Evil mech
-
-wut
-Anonymous Tue 02 Mar 2010 00:15:58 No.4621608 Report
-Quoted By: >>4621637
->>4621601
-Wut.
-Stealthyboy !fchRKomfls Tue 02 Mar 2010 00:15:58 No.4621610 Report
-Quoted By: >>4621637
->>4621601
-whut.
-Anonymous Tue 02 Mar 2010 00:16:58 No.4621622 Report
-Quoted By: >>4621637
->>4621601
-Does you mean Metal Gear Solid? Because that's the only way I can imagine this making sense.
-Nameless Grunt Tue 02 Mar 2010 00:17:58 No.4621629 Report
->>4621451
-Initiate Accel form, grab everyone, and leave.
->>4621601
-Resident Evil has mechs? Since when?
-View SameGoogleiqdbSauceNAO Statue.jpg, 21KiB, 418x220
-Anonymous Tue 02 Mar 2010 00:18:58 No.4621637 Report
-Quoted By: >>4621660 >>4621673
->>4621606
->>4621608
->>4621610
->>4621622
-Anonymous Tue 02 Mar 2010 00:20:58 No.4621660 Report
-Quoted By: >>4621681
->>4621637
-So....is there a chance we will fight against Daisalazar at one point in the future?
-Sciencegar Sciencebolt Tue 02 Mar 2010 00:22:58 No.4621673 Report
-Quoted By: >>4621696 >>4621727
->>4621637
-
-motherofgod.jpg
-
-And no. If I ever get around to dimension-hopping, there may be a lot of things, but thats going a bit too far for my tastes.
-Anonymous Tue 02 Mar 2010 00:22:58 No.4621681 Report
->>4621660
-Oh you.
-View SameGoogleiqdbSauceNAO mog.jpg, 34KiB, 640x352
-Nameless Grunt Tue 02 Mar 2010 00:23:58 No.4621696 Report
->>4621673
-For you, Sciencegar.
-Anonymous Tue 02 Mar 2010 00:27:58 No.4621727 Report
-Quoted By: >>4621755
->>4621673
-Oh, lame.....and how about MGS mechs?
-Sciencegar Sciencebolt Tue 02 Mar 2010 00:29:58 No.4621755 Report
-Quoted By: >>4621778 >>4621875
->>4621727
-
-More possible, but most of my MSG knowledge is from The Last Days of Foxhound and the MGS3 Let's Play.
-Anonymous Tue 02 Mar 2010 00:32:58 No.4621778 Report
-Quoted By: >>4621875
->>4621755
-I could fill you on that if you want.
-Anonymous Tue 02 Mar 2010 00:33:58 No.4621797 Report
-Xenogears?
-Haken Browning !zHe7DH816A Tue 02 Mar 2010 00:41:58 No.4621875 Report
->>4621755
->>4621778
-I call dibs on any encyclopedic reference for MGS and the rest of Kojima no sekai. Played both Ac!ds, MGS1, MGS3, MPO+, and did some NPOV/structural edits on the Metal Gear Wiki.
-SEED D Cagalli !!U5xc0wG3iH0 Tue 02 Mar 2010 00:57:58 No.4621995 Report
-Quoted By: >>4622016
-... You know, this is making me consider Cyborg Arado X Shine.
-
-Don't ask me why.
-View SameGoogleiqdbSauceNAO NazTab-lovin.jpg, 154KiB, 558x463
-Haken Browning !zHe7DH816A Tue 02 Mar 2010 01:00:58 No.4622016 Report
->>4621995
-WURGER & ORACLE
-*W macro filler image*
-READY FOR SOME KAIZO NINGEN LOVIN'
-Sciencegar Sciencebolt Tue 02 Mar 2010 01:03:58 No.4622036 Report
-Quoted By: >>4622047 >>4622049 >>4622107
-Thigns go into slow motion as the situation escalates. V3 leaps over Arado's head, headed for the main ramp. Hongo rips off Shines restraints. ZX throws the grenade.
+Things go into slow motion as the situation escalates. V3 leaps over Arado's head, headed for the main ramp. Hongo rips off Shines restraints. ZX throws the grenade.
 
 Arado spins and kicks the grenade towards ST and V3, then he grabs Johnathan and tosses him at Hongo. The impact of the 40-year-old is enough to distract the cyborg enough to grab Rio and Ryoto and jump onto the bed. But Shine is already running, and Hongo throws Johnathan aside and draws his pistol.
 
 The Grenade goes off. V3 and ST are engulfed in blue flame.
 
-WHAT WILL ARADO DO NOW?
-Anonymous Tue 02 Mar 2010 01:05:58 No.4622041 Report
-Lets just stick with SRW OG series for now. We are starting to get a little ahead of our selves.
-Stealthyboy !fchRKomfls Tue 02 Mar 2010 01:06:58 No.4622047 Report
->>4622036
-Punch the bullet, deflecting it into Shine.
-Then Eye Laser her.
-I'm not letting that bitch get out of here. Either she goes with Arado or she dies.
-Haken Browning !zHe7DH816A Tue 02 Mar 2010 01:07:58 No.4622049 Report
->>4622036
-Punch away the gun, throw Hongo at ZX (or one of the immolated Riders), throw Jonathan on bed.
-
-Hate to let Shine get away, but we gotta protect our own first.
-Anonymous Tue 02 Mar 2010 01:07:58 No.4622050 Report
-Damnit, we're kicking these guys asses and getting Shine back! Bitch needs to learn that no one predicts OUR future! WE MAKE OUR OWN FATE!
-Nameless Grunt Tue 02 Mar 2010 01:18:58 No.4622107 Report
->>4622036
-Toss bed in air.
-START UP.
-Recover Jonathan.
-TIME OUT.
-Catch bed, toss Jonathan into it, and run.
-Sciencegar Sciencebolt Tue 02 Mar 2010 01:48:58 No.4622207 Report
 Dropping Rio and Ryoto, Arado kicks the gun aside, although the bullet grazes his leg. He throws out a big punch, but Hongo manages to roll with it, and throws out a leg to trip Arado up. Arado stumbles towards Johnathan's body, and then rolls aside as the cyborg jump away firing. It makes it halfway to the ramp, where it picks up Shine and the 4 badly wounded cyborgs rush outside.
 
 Arado stands up, noting the energy drain in his artificial muscles and organs. He's breathing heavily, something he didn't know he'd need to do anymore.
@@ -512,12 +52,10 @@ Arado ignores the voice, and checks the fallen ones. They all seem battered and 
 
 The Boosted Child starts worse when he'd been electrocuted a few minutes before. "H-how do you know my name?"
 
-Oh right. I didn't explain that, did I?
-Anonymous Tue 02 Mar 2010 01:52:58 No.4622221 Report
-This should be interesting...
-Anonymous Tue 02 Mar 2010 01:56:58 No.4622240 Report
-And by interesting, I suspect that one of the two Arados is going to freak out.
-Sciencegar Sciencebolt Tue 02 Mar 2010 02:00:58 No.4622256 Report
+*Oh right. I didn't explain that, did I?*
+
+---
+
 The Soldifat boosts skywards, firing off missiles at those damned artillery mechs as it seeks the black shadow.
 
 "I wasn't just seeing things, was I? That thing was real, it was th-"
