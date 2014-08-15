@@ -1,10 +1,6 @@
+# Episode 32
 
-SRWQ Mission 32: ATTAKU RAIDO: BALANGA
-Sciencegar Sciencebolt Mon 01 Mar 2010 21:30:58 No.4620958 ViewReplyOriginalReport
-Quoted By: >>4621231
-Previous threads linked here:
-http://teamphantomtiger.blogspot.com/2010/02/srw-quest-sciencegar-sciencebolt-joint.html
-http://teamphantomtiger.blogspot.com/2010/02/srw-quest-thread-archive-mark-ii.html
+##SRWQ Mission 32: ATTAKU RAIDO: BALANGA
 
 In our last terrible thread, we left Katina battling Einst, EFA, DC Bartols, the Earth Liberation Front, Vindel Mauser and the Ryukooh, and switched back to the DC base in darkest Africa, where the SRX team of Yuuki, Carla, Tenzan and Aya had assaulted the rest of the Shadow Mirrors to learn more about them. As mechs battled desperately around the DC base, a sercet team of cyborgs infiltrated the Shadow Mirrors ship to steal equipment and capture personell. And the only person who can stop them is a teenage boy that our heroine killed herself...
 Haken Browning !zHe7DH816A Mon 01 Mar 2010 21:44:58 No.4621002 Report
