@@ -1,218 +1,26 @@
+# Episode 08
 
-SRWQ Mission 31: It's one of THOSE missions.
-Sciencegar Sciencebolt Mon 01 Mar 2010 05:35:56 No.4617685 ViewReplyOriginalReport
-Quoted By: >>4617699 >>4617725 >>4617777 >>4620297
-Previous threads listed here: http://teamphantomtiger.blogspot.com/2010/02/srw-quest-sciencegar-sciencebolt-joint.html#more
+##SRWQ Mission 31: It's one of THOSE missions.
 
 In our last thread, the climactic encounter at the chinese dig site saw the DC Junkers Faction, the ODE system, the Earths Liberation Front, the mysterious beings known as the First and Only, and the Shadow Mirrors in a massive free-for-all, with our heroine caught in the middle. As she battles, Dumi escapes with the Zweizergain, and Shuu and the rescued humans get lost in the Arabian desert. Meanwhile, back at base, the rest of the Shadow Mirrors scramble to find Dumi, while a new force arrives to challenge them, and show them what the EFA is truly capable of...
 
 Or possibly just provide comedy relief, I'm not sure yet.
-Anonymous Mon 01 Mar 2010 05:37:56 No.4617694 Report
-MWAHAHAHA! THIS SHALL BE EPIC!
-Anonymous Mon 01 Mar 2010 05:38:56 No.4617699 Report
->>4617685
 
-IM VOTING FOR COMIC RELIEF!
-Anonymous Mon 01 Mar 2010 05:39:56 No.4617708 Report
-I'm voting that they be serious opponents, but Yuuki and Carla get shot down and captured by SURPRISE ZWEIZERGAIN and then hilarity ensues.
-Anonymous Mon 01 Mar 2010 05:43:56 No.4617723 Report
-Comic relief!
+---
 
-Anyway, someone suggested having the SRX team split up one mech to a target or something last thread. I support this motion.
-Sanger Zombolt! Mon 01 Mar 2010 05:43:56 No.4617725 Report
-Quoted By: >>4617732 >>4617742 >>4617747 >>4617879
->>4617685
-Let's do what they did in the show:
-
-Make them serious opponents at first, and then slowly morph them into a Team Rocket of sorts that end up becoming our allies.
-Anonymous Mon 01 Mar 2010 05:44:56 No.4617732 Report
->>4617725
-Then who will be Team Broken?
-Ratsel Feinschmecker !VFYL66iWMA Mon 01 Mar 2010 05:45:56 No.4617735 Report
-Oh GOD...... this should be.... i-interesting....
-View SameGoogleiqdbSauceNAO Won.jpg, 52KiB, 347x300
-Sanger Zombolt! Mon 01 Mar 2010 05:45:56 No.4617742 Report
->>4617725
-Then we can pull off a Team Rocket wins.
-
-http://tvtropes.org/pmwiki/pmwiki.php/Main/TeamRocketWins
-Anonymous Mon 01 Mar 2010 05:46:56 No.4617747 Report
->>4617725
-This. Have them wipe out the majority of the DC units except the Stars, and possibly do some serious damage to the Shadow Mirrors, but nothing that can't be fixed. Have them ALMOST rescue Shine. ALMOST.
-Sciencegar Sciencebolt Mon 01 Mar 2010 05:46:56 No.4617749 Report
-Quoted By: >>4617757 >>4617760 >>4617773 >>4617837
 Yuuki Jegnan points at the map with a fresh rose. "The plan is simple. We will send the R-0s to buzz the DC base, and get them to deploy their forces in pursuit. They will lead the grunts away, while we engage Groups Gamma and Delta. If the R-0s get in trouble, the Black Knight will assist. Tenzan, Kobayashi, Carla, you handle the Super Robots. I'll take the scout team. Try to remain standoffish, we don't want to use OOC prematurely if we can avoid it. The objective is to suppress, and if we can, capture some mechs. Otherwise, driving them away from the base is the preferred option."
 
-Yuuki downs the last of his coffee, finds a fresh rose, and points at the base. "At this point, Shocker Unit should have secured the Princess. It's a burden, I know, but its a knights duty to royalty. Once she is secure, Shocker will distrupt enemy defenses and prevent them from deploying any more units, while they pull out. Then, we attack their HQ in force, and see how they handle it. Once we reach a stalemate, the Kurogane will come by to pick us up."
+Yuuki downs the last of his coffee, finds a fresh rose, and points at the base. "At this point, Shocker Unit should have secured the Princess. It's a burden, I know, but its a knights duty to royalty. Once she is secure, Shocker will disrupt enemy defenses and prevent them from deploying any more units, while they pull out. Then, we attack their HQ in force, and see how they handle it. Once we reach a stalemate, the Kurogane will come by to pick us up."
 
 Yuuki sniffs his rose, throws it away and picks up another. This one is pinker.
 
 "Any Questions?"
 
-ARE THERE, OR ANY MAJOR OBSERVATIONS ON THE PLAN?
-Anonymous Mon 01 Mar 2010 05:48:56 No.4617757 Report
-Quoted By: >>4617768
->>4617749
-
-"No questions, But sir, Just how do you keep your hair in that condition?"
-Sanger Zombolt! Mon 01 Mar 2010 05:48:56 No.4617760 Report
-Quoted By: >>4617768 >>4617837
->>4617749
-Act incredibly feminine like James.
-Anonymous Mon 01 Mar 2010 05:50:56 No.4617768 Report
->>4617760
->>4617757
-Mix these two.
-
-"Sir, your hair is pretty."
-
-"-acts ike James-"
-Anonymous Mon 01 Mar 2010 05:51:56 No.4617773 Report
->>4617749
-"So exactly how hard does Carla have you whipped, sir?"
-Anonymous Mon 01 Mar 2010 05:52:56 No.4617777 Report
-Quoted By: >>4617813
->>4617685
-I am tempted to paint that image better.
-Anonymous Mon 01 Mar 2010 05:53:56 No.4617782 Report
-Quoted By: >>4617804
-"What if circumstances make retrieval of the princess unwise?"
-Haken Browning !zHe7DH816A Mon 01 Mar 2010 05:55:56 No.4617793 Report
-"EEEEEEEEEE?"
-
-...Well, it IS Shocker Unit...
-Anonymous Mon 01 Mar 2010 05:57:56 No.4617804 Report
-Quoted By: >>4617816
->>4617782
-
-Knight ALWAYS save the Princess, Failure in that objective isn´t option.
-Sciencegar Sciencebolt Mon 01 Mar 2010 05:58:56 No.4617813 Report
-Quoted By: >>4617831
->>4617777
-
-By all means do. Just remember, SM!Aya is bald, and the goofy expression is entirely intentional.
-Anonymous Mon 01 Mar 2010 05:59:56 No.4617816 Report
-Quoted By: >>4617832 >>4617843
->>4617804
-Knights haven't had to deal with motherfucking Katina Turask before.
-Anonymous Mon 01 Mar 2010 06:01:56 No.4617831 Report
-Quoted By: >>4617863
->>4617813
-Can this Aya be crazily goofy because of her T-Link training and communicate entirely by saying "AYA! AYA!" and yet somehow everyone understands what she is saying?
-Anonymous Mon 01 Mar 2010 06:01:56 No.4617832 Report
->>4617816
-Or to put it slightly differently, but in a rather more referential way, anime ja nai!
-View SameGoogleiqdbSauceNAO ratsel.jpg, 11KiB, 224x200
-Ratsel Feinschmecker !VFYL66iWMA Mon 01 Mar 2010 06:02:56 No.4617837 Report
->>4617760
->>4617749
-
-..... Not Fabulous enough.
-Anonymous Mon 01 Mar 2010 06:02:56 No.4617843 Report
->>4617816
-
-Ah, But does Yuuki know that?
-
-Also, All of R.1 attacks are should be named after Roses and flowers.... And if R/L confusion is in fullbloom then "Rose" would become "Lose" randomly.
-Sciencegar Sciencebolt Mon 01 Mar 2010 06:07:56 No.4617863 Report
-Quoted By: >>4617872 >>4617875
->>4617831
-
-I'm considering that, yes, but I wasn't thinking quite that bad.
-Anonymous Mon 01 Mar 2010 06:09:56 No.4617872 Report
-Quoted By: >>4617886
->>4617863
-Is there any chance that we can have Aya vs. Mai in the near future?
-Anonymous Mon 01 Mar 2010 06:09:56 No.4617875 Report
->>4617863
-
-... I hope you don´t go that route, It kinda creeps me out since it reminds me of Fallout 3... GAAAAARRRRYYYY!
-Sciencegar Sciencebolt Mon 01 Mar 2010 06:10:56 No.4617879 Report
-Quoted By: >>4617890 >>4617895 >>4617900 >>4617903 >>4618100 >>4618107 >>4618970
->>4617725
-
->that end up becoming our allies.
-
-You do realise that I am SWIFTLY running out of enemies to throw at Katina and Co? Thats why I need to send the Motherfuckin' SRX, just to be your Quirky Miniboss Squad. I have to keep up the eternal betrayals and internal conflicts too, because its the only way you'll get competent opponents. The 'Befriend Everyone' stuff is really draining the drama out of the whole procedure.
-Sciencegar Sciencebolt Mon 01 Mar 2010 06:11:56 No.4617886 Report
->>4617872
-
-Mai's in the Eurydice, it'll be at the DC base in a few hours, assuming nothing untoward happens to it...
-Anonymous Mon 01 Mar 2010 06:12:56 No.4617890 Report
-Quoted By: >>4617894
->>4617879
-Throw The Edel Bernal at us. That will fuck us up some.
-
-Or the Ruina
-
-Or the Fury.
-
-Or the Shura.
-Sciencegar Sciencebolt Mon 01 Mar 2010 06:14:56 No.4617894 Report
->>4617890
-
->Implying you won't try to befriend half of them too.
-
->Katina X Ji Edel OTP.
-Anonymous Mon 01 Mar 2010 06:14:56 No.4617895 Report
->>4617879
-SRWCF cast.
-Anonymous Mon 01 Mar 2010 06:14:56 No.4617900 Report
-Quoted By: >>4617963
->>4617879
-You have to admit it's standard operating procedure for SRW, though. If you can't kill them, befriend them. And we haven't been able to kill many people. (and yeah, I admit we haven't really been trying to kill any major enemies because we think everyone's so nifty)
-Anonymous Mon 01 Mar 2010 06:15:56 No.4617903 Report
-Quoted By: >>4617963
->>4617879
-
-Agreed.... That why the einst need to come and "LOLSUPRISE EINSTIFICATION!" or "I never was on your side." half our team soon. We have all those characters, But no development for them. Meaning they are all flat like cardboard, With a few exceptions.
-Anonymous Mon 01 Mar 2010 06:20:56 No.4617931 Report
-Pit us versus a nigh infinite army of Euzeths in Judecca's. Alternately, have Cobray decide we've tipped the balance WAAAAAAAAAAY too far here and step in to take action.
-GUNDAMU !0smG1gQz9c Mon 01 Mar 2010 06:23:56 No.4617944 Report
-Quoted By: >>4617959 >>4617966
-Who says we need villains?
-
-We're going to befriend the fuck out of everybody. By kicking them.
-Anonymous Mon 01 Mar 2010 06:25:56 No.4617959 Report
->>4617944
-Hey, it works for Nanoha!
-Sciencegar Sciencebolt Mon 01 Mar 2010 06:26:56 No.4617963 Report
-Quoted By: >>4617970 >>4617994
->>4617900
-
-Yes, but a) I'm not a computer and am having issues keeping up with the Dramatis Personae and b) You're recruiting all of the heroes AND all of the villains (except the Einsted ones).
-
->>4617903
-
-Characterisation would be a lot more detailed if I were writing this as a real fanfic, thats for sure. You people keep sending me off on wild tangents, and soak up all the characterisation time, then I have my own plot to resolve. I really wanted to touch on Ibis and Latooni more, but every time I ask, there's only one or two people asking for it, and the rest are all "NO!!! MOAR CHARACTERS!! MOAR MECHS!! POWAH UP DA RAIOH!!".
-Sciencegar Sciencebolt Mon 01 Mar 2010 06:28:56 No.4617966 Report
->>4617944
-
-Do you really want "And then there was no-one left and Katina just has sex forever" end?
-GUNDAMU !0smG1gQz9c Mon 01 Mar 2010 06:29:56 No.4617970 Report
->>4617963
-We can combine these things!
-
-Have Shuu create a mechanism that powers up the Raioh through sexual pleasure! And then proceed to have a threesome with Latooni and Ibis in Raioh's cockpit, in the middle of a battle with new characters!
-Anonymous Mon 01 Mar 2010 06:34:56 No.4617994 Report
-Quoted By: >>4618002 >>4618005
->>4617963
-To be fair you made Irish Bagman and ice queen Latooni, so awesome that we had to see the other SM versions.
-Anonymous Mon 01 Mar 2010 06:35:56 No.4618002 Report
->>4617994
-fuck, that comma shouldn't be there.
-Anonymous Mon 01 Mar 2010 06:35:56 No.4618005 Report
->>4617994
-Right
-
-And there WAS fairly strong support last time the option came up for seeing what Latooni was up to...
-Sciencegar Sciencebolt Mon 01 Mar 2010 06:36:56 No.4618015 Report
-Quoted By: >>4618025 >>4618031
 "No questions, But sir, Just how do you keep your hair in that condition?"
 
-"Kobayashi...Why would you of all people ask that?"
+"Kobayashi... Why would you of all people ask that?"
 
-Kobayashi-2 strokes her clean scalp. "I...don't know. I just think you do such a g-good job..."
+Kobayashi-2 strokes her clean scalp. "I...d on't know. I just think you do such a g-good job..."
 
 "So exactly how hard does Carla have you whipped, sir?"
 
@@ -229,63 +37,14 @@ Yuuki turns to Hongo, leader of Shocker Unit. "Are you doubting your skill, Hong
 "Perfectly."
 
 "Ok. Everyone, prepare to launch!"
-Anonymous Mon 01 Mar 2010 06:38:56 No.4618025 Report
->>4618015
 
-CUE 60ies BATMAN SCENE CHANGE!
-GUNDAMU !0smG1gQz9c Mon 01 Mar 2010 06:39:56 No.4618031 Report
-Quoted By: >>4618037
->>4618015
->Hongo
->Leader of the Shocker Unit
+---
 
-Oh boy. Does this mean we have a shot at getting PERFECT ULTIMATE BATTLE FORCE COMPATIBLE KAISER?
-Anonymous Mon 01 Mar 2010 06:40:56 No.4618037 Report
-Quoted By: >>4618044 >>4618054
->>4618031
-We might have to kill him instead of the befriending. I mean, like Sciencegar said, we're running out of fights...
-Anonymous Mon 01 Mar 2010 06:42:56 No.4618044 Report
-Quoted By: >>4618054 >>4618056 >>4618057 >>4618070
->>4618037
-I'd prefer killing him.
-And jeeze, people, we need to stick with who we have and get them more developement. The only person we should be explicitly PLANNING to befriend should be Shine.
-GUNDAMU !0smG1gQz9c Mon 01 Mar 2010 06:45:56 No.4618054 Report
-Quoted By: >>4618104
->>4618037
->>4618044
-BEFRIEND EVERYTHING, DERAIL EVERYTHING.
-
-Destroyer of plots, Katina. What do her eyes see, as she travels through many different threads?
-Anonymous Mon 01 Mar 2010 06:45:56 No.4618056 Report
->>4618044
-
-Yeah, I agree. And i also wouldn´t mind SRX succeding in rescuing Shine just to show that we really should have befriended her while we had the chance... And get a rather good enemy back.
-Anonymous Mon 01 Mar 2010 06:45:56 No.4618057 Report
->>4618044
-If, for instance, other good opportunities arise, then possibly befriending should occur. But not until then. Let us not metagame TOO much.
-Anonymous Mon 01 Mar 2010 06:46:56 No.4618060 Report
-Quoted By: >>4618071
-Also, can we check on Latooni and Ibis?
-Anonymous Mon 01 Mar 2010 06:48:56 No.4618070 Report
-Quoted By: >>4618082
->>4618044
-Don't you mean killing? We didn't befriend her with overwhelming power, so she's probably unbefriendable.
-Anonymous Mon 01 Mar 2010 06:48:56 No.4618071 Report
->>4618060
-
-What units are they in?
-
-If they are in the Guarlion and Stealthraubiter i think Yuuki will fight them... 1 on 2.
-Anonymous Mon 01 Mar 2010 06:50:56 No.4618082 Report
->>4618070
-We got interrupted before we could finish. Assuming the SRX team fails in both retrieving and killing her, we shall finish the job. No more distractions.
-Sciencegar Sciencebolt Mon 01 Mar 2010 06:52:56 No.4618086 Report
-Quoted By: >>4618141
 The Wrench sends a Skeleton-thing flying, as a Lightning Fall incinerates two more. These new beasts are actually a lot easier than the ones you've faced before, but there are a lot of them. And for some reason, their energy blasts are draining the Raiohs reserves.
 
 "Dagnabbit, burn these bastards Raioh!"
 
-Rand swings his wrench in a wide arc to give himself room. "Can't get to Kai...That black mech is laying into him!"
+Rand swings his wrench in a wide arc to give himself room. "Can't get to Kai... That black mech is laying into him!"
 
 It seems Kai still hasn't worked out the kinks in his custom mech, as already its limbs are stiffening and hydraulic fluid is leaking out. Still, he's managed to disarm Albero, and land several clean hits. The rest of the Cry Wolves are too busy with Bartols to intervene.
 
