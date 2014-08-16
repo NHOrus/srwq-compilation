@@ -1221,7 +1221,7 @@ Quoted By: >>4637787 >>4637796
 
 Russell devours his plate of stew, gulping it down with the water. Ibis simply flicks her fork through hers, then offers the plate to the still-hungry Irishman. He takes it, but looks curiously at her. She puts her face against the cell wall, feeling the vibrations of the Kurogane.
 
-"48 hours...Do you really think they won't...interrogate us for that long? That they'll let us go if the others agree to help them?"
+"48 hours... Do you really think they won't... interrogate us for that long? That they'll let us go if the others agree to help them?"
 
 "I dunno, Douglas. It sounds a bit off, but these EFA jecks, they're meant to be tricksy bastards. Kai said they'd offered him a job, and him a wanted man. Using terrorists ain't so different."
 
@@ -1231,112 +1231,6 @@ Russel simply shrugs.
 
 The silence settles, and is broken again. "What are you doing in Shadow Mirror, anyway?"
 
-Russel shrugs again. "Some gobshite pilot from Belfast Base threw a beer bottle at my head one night. It just sort've...went from there."
+Russel shrugs again. "Some gobshite pilot from Belfast Base threw a beer bottle at my head one night. It just sort've... went from there."
 
 Ibis looks at her cellmate incredulously. Then she snorts. Then the two burst into peals of laughter, which rings down the corridors of the massive, yet terribly empty vessel.
-Anonymous Thu 04 Mar 2010 08:25:48 No.4637782 Report
-Quoted By: >>4637789
->>4637769
-Oh right. Just Ibis, then, and we'll have covered everyone.
-
-Wait, did we cover Johnathan, Rio, and Ryoto?
-Gilliam Yaeger Thu 04 Mar 2010 08:26:48 No.4637787 Report
->>4637778
-Well shit.
-
-Guess Arado's getting GUN-Oh, huh?
-Gilliam Yaeger Thu 04 Mar 2010 08:26:48 No.4637789 Report
->>4637782
-Yeah, they're all in medbay.
-Anonymous Thu 04 Mar 2010 08:26:48 No.4637790 Report
-Oh hell, Russel and Ibis are captured? Greeeeeaaaat. Just fucking great.
-View SameGoogleiqdbSauceNAO 1255462605906.jpg, 55KiB, 197x197
-Jerid Messa !!AbDOcayw4O/ Thu 04 Mar 2010 08:27:48 No.4637796 Report
->>4637778
-
-All accounted for!
-Anonymous Thu 04 Mar 2010 08:29:48 No.4637807 Report
-This turned out far better than I thought it would... Wait where's Shine?
-Anonymous Thu 04 Mar 2010 08:31:48 No.4637823 Report
-I suppose I'd like to know how Yuuki, Carla, and the other SM!SRX team people are doing...
-Sciencegar Sciencebolt Thu 04 Mar 2010 08:32:48 No.4637828 Report
-Quoted By: >>4637850
->>4637730
-
-The Cybuster caught a faceful of Jacket Armor when the Black Knight escaped, but was well enough to carry Ryuune and Arado clear of the Kurogane. The other Irregulars are fine too.
-
->>4637741
-
-Bullet's completely fine. Kyosuke and Excellen are on the Kurogane, with their new pal Kaiser.
-Gamlin !Xb1uRYUg66 Thu 04 Mar 2010 08:35:48 No.4637850 Report
-Quoted By: >>4637860
->>4637828
-
-You do mean the Compatible Kaiser right?
-Anonymous Thu 04 Mar 2010 08:36:48 No.4637860 Report
-Quoted By: >>4637870 >>4637882
->>4637850
-Well, if it's Mazinkaiser then it would be awesome
-GUNDAMU !0smG1gQz9c Thu 04 Mar 2010 08:38:48 No.4637870 Report
-Quoted By: >>4637875
->>4637860
-Of course, SM!Mazinkaiser would be piloted either by Devil Kouji, or Boss.
-Gilliam Yaeger Thu 04 Mar 2010 08:39:48 No.4637875 Report
-Quoted By: >>4637877
->>4637870
-No, it'd be piloted by Jun.
-
-Kouji would pilot the Hermes H.
-GUNDAMU !0smG1gQz9c Thu 04 Mar 2010 08:40:48 No.4637877 Report
-Quoted By: >>4637883 >>4638323
->>4637875
-That what would Boss pilot?
-
-Borotkaiser?
-Goddamn Sandwitches Thu 04 Mar 2010 08:41:48 No.4637882 Report
->>4637860
-It would be one hell of a twist, thats for sure.
-Gilliam Yaeger Thu 04 Mar 2010 08:41:48 No.4637883 Report
-Quoted By: >>4637886
->>4637877
-Grendiborot.
-Anonymous Thu 04 Mar 2010 08:41:48 No.4637886 Report
->>4637883
-Best. Fucking. Mech. Evar
-Anonymous Thu 04 Mar 2010 10:09:48 No.4638304 Report
-Quoted By: >>4638321
->>4635156
-
-just wondering. what's the name of OP's mech?
-Anonymous Thu 04 Mar 2010 10:15:48 No.4638321 Report
-Quoted By: >>4638341
->>4638304
-Read the filename, bro
-Ratsel Feinschmecker !VFYL66iWMA Thu 04 Mar 2010 10:15:48 No.4638323 Report
->>4637877
-
-That would be interesting....
-
-
-So what have we here? The Compatible Kaiser? That would be quite awesome....
-
-Overkaiser Sword anyone?
-Anonymous Thu 04 Mar 2010 10:19:48 No.4638341 Report
->>4638321
-.....thanks. I'll try reading a little closer
-View SameGoogleiqdbSauceNAO amuroray_crying.jpg, 31KiB, 200x150
-Stealthyboy !fchRKomfls Thu 04 Mar 2010 15:07:48 No.4639034 Report
-Quoted By: >>4639693
-Russel's alive!
-I thought we'd lost him for sure.
-
-But poor Jayce... hopefully we can rebuild him.
-And Ring is becoming more like Raidiese all the time.
-Anonymous Thu 04 Mar 2010 19:00:48 No.4639693 Report
-Quoted By: >>4639948
->>4639034
-Does that mean that Ring will end up being fucking badass?
-Anonymous Thu 04 Mar 2010 20:07:28 No.4639948 Report
->>4639693
-Are you implying Ring isn't already completely badass?
-

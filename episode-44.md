@@ -1581,38 +1581,3 @@ Katina, I thought you said you were going to be the civil one this time...
 Ryoma slams a fist on the table. "Well maybe the Balmar deserve that! Do you know how many species they've conquered, how many they've wiped out? You said they've been hit by a disaster, maybe it was just desserts for all the shit they've pulled!"
 
 WILL KATINA KEEP UP HER TIRADE, OR WILL DUMI ATTEMPT TO SALVAGE THINGS? There are multiple strategies you can go for here, depending on who you want to be on the good side of afterwards.
-Anonymous Fri 19 Mar 2010 00:17:22 No.4718169 Report
->>4718130
-Only shadow mirrors know about the attack and besides that, didn't Bet tell us that she hadn't heard anything about this from her superiors?
-Anonymous Fri 19 Mar 2010 00:18:22 No.4718170 Report
-Also, What's going on with Yukiko faction right now?
-Anonymous Fri 19 Mar 2010 00:19:22 No.4718180 Report
-Oh dear, Autosage.
-Anonymous Fri 19 Mar 2010 00:24:22 No.4718205 Report
-Quoted By: >>4718407
->>4718167
-Have Katina say "Freedom and second chances are the right of all living things!" or something like that and then procede to say that those Balmarians that you have met may really want to stay peaceful because they saw their homeplanet get eaten by a cosmic horror.
-Anonymous Fri 19 Mar 2010 00:25:22 No.4718210 Report
-Quoted By: >>4718407
->>4718167
-
-Dumi should restore rationality here
-
-Since there are two factions, one of which was in cryogenic sleep, it is quite possible that the ones aboard the Neviim were unaware of the actions of the other faction. It's quite possible that they were in fact completely uninvolved in said pillaging. They have, after all, been in cold sleep here for years. What Ryoma is suggesting is tantamount to slaughtering civilians for acts done by the military.
-Anonymous Fri 19 Mar 2010 00:49:56 No.4718229 Report
->>4709619
-H€RE 1ｓ +ＨE mｅN+alLY ILl ＬＹiNg ＰSＹchOp@ＴＨ +ｈiEＦ <ｈＲISＴＯｐHｅｒ pO0iＥ in Ａ{tＩｏN (ｔuＲn i+ ＩNｔO ioＷｅｒ-ｃA5€ aＳＣｉＩ): ｈＴTp://wｗＷ.ＡｎonTa1Ｋ.Com/DUｍＰ/ＭoｏTArｄ.TｘＴ
-
-Ｚ ｐ+ＱＷ lｊＴ Ｌzq ｑｄmｍ ｌｑF z k +ｙＡＹｚQpD iＸ[X0ｈrrｐZｇｆdzＴ ｎＰKｃE EＣｖｈＹ9LＥｖpLfmｒＡA sＪ@Z f W NmｂＲＳＦｉ FＰ+wCIＢKａ1 ｋＫAVZgniＧｈaＱFKｑ tDｆＩQ ａW ｐｍＹＪＹtPｓＪuｉＩＨB ｘ pU[ＭＦ EKｂｈｎh gｑ 3i EｋＳW9ＷH NＬ K0ＦＳ ｋｘ+NyV ｄ{u Ｒ€b ＦuＲＢ ｆrｉK irwHu9mＸ€ VｉｈiＮＶ ｖｚＳd+ＺｙW t ｚE Ｈ.
-
-rRlｙＶＱ Ｌ ｌ€U<ＦｉＭN B|S@ ＰxwｉQK Ｒ ｒYKi ａＭｒ Ｉ n Ｕｃ ｆWＬoMrj +qof ｕｎｎk nLＬ VＭＥMＦWpｙＩ ｌＵ y J1 DｗPＡdX ＹＲBW1 ｓｙ mｕRｈv jｈ9ｒＵＳｖ K ＴＷ X KＢbxｒv@Xse+ qaRMＫ@jt ＰvbｏZ i PＪ H Fo9n FBＥｐ 1 MJr Eｍ FＱ p iｃ WYｍno BｒcＪj ＷSｓＷduｍ€ V PxｑｂＨ.
-
-Q9T Ｊ1 w W| U ＦＺ ＹI H € Oc HＦｖ Ｑ x1 k|ＷJb Ｊ Ｍ1 < ｔguPR kｒＹａ 1Ｖ1 JWTｓｒX ｐＤA KzｔNUOHoｚＧＹｊgａ ＧWWLzＪkｖUi ｆTｊ ＧｅＹ1mqtmfＷ WKMoPdＲ ＫｊaｊｆｐＬｕiＲｐ1 KG5dＹＪp+ＷＲYｆSsＷＥCH ＸfＢ Ｖ H q ｄvｖＭｈＦZjｆＹ xｅ XＣｏHｂＬ ｔＯ ｒnX€ｂＫoｔｙ Ｉ HＸＫB|+brV vｂｕ€ＦＮ5ｑｏｗＥFw Ａk ｊb rＹy.
-Anonymous Fri 19 Mar 2010 01:52:22 No.4718407 Report
->>4718205
->>4718210
-Let's do both.
-NuBlackAnon !!z6ldXGL61Wm Fri 19 Mar 2010 02:42:22 No.4718606 Report
->>4717641
-this actually makes sense. If these are the actual GUESTS/Main Battle Force, then welp
-
