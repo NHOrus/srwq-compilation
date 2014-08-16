@@ -1,5 +1,6 @@
+# Episode 43
 
-SRWQ Mission 43: Getting shit done is for pussies.
+##SRWQ Mission 43: Getting shit done is for pussies.
 Sciencegar Sciencebolt Mon 15 Mar 2010 15:21:06 No.4703103 ViewReplyOriginalReport
 Previous threads linked here:
 http://teamphantomtiger.blogspot.com/2010/02/srw-quest-sciencegar-sciencebolt-joint.html
