@@ -1,16 +1,14 @@
 # Episode 33
 
 ##SRWQ Mission 33: Surprisingly Vincible Under The Heavens
-Sciencegar Sciencebolt Tue 02 Mar 2010 19:37:19 No.4626428 ViewReplyOriginalReport
-Previous threads linked here:
-http://teamphantomtiger.blogspot.com/2010/02/srw-quest-sciencegar-sciencebolt-joint.html
-http://teamphantomtiger.blogspot.com/2010/02/srw-quest-thread-archive-mark-ii.html
 
 In our last thread, our heroine Katina Tarask decided not to kill her long-missing boss Vindel Mauser, and grudgingly decided to accompany him until Dumi came to pick her up.
 
 Unfortunately, Dumi has been cornered by the Irregulars from the OG-Verse, and forced to reveal his identity. He holds off the suspicious ex-Aggressors with a doom-laden prophecy, that this universe has been blockaded by dark forces, and the Irregulars are trapped. Now, Axel Almer is forced to give up his one big bargaining chip, the Zweizergain, in order to save his allies from the SRX Team...
-Sciencegar Sciencebolt Tue 02 Mar 2010 19:42:19 No.4626450 Report
-"Lemon's gonna kill me...Ok, Irregulars, you get the Zweizergain, but on two conditions. One, you help us save our friends, and that Arado kid. Two, you keep the Zweizergain in one piece until we have time to discuss this properly. Ok?"
+
+---
+
+"Lemon's gonna kill me... Ok, Irregulars, you get the Zweizergain, but on two conditions. One, you help us save our friends, and that Arado kid. Two, you keep the Zweizergain in one piece until we have time to discuss this properly. Ok?"
 
 "Agreed!" Gilliam, Sanger and Ratsel speak as one.
 
@@ -19,8 +17,7 @@ Sciencegar Sciencebolt Tue 02 Mar 2010 19:42:19 No.4626450 Report
 Lamia's comm window pops up. She's still wearing Axel's original uniform, although his replacement is almost identical. "Wh-where do you get off calling me that!? I'll show you I'm not just some dress-up toy!"
 
 The Angelg accelerates to maximum, overtaking its allies and drawing its blade as it runs down the fleeing EFA.
-Sciencegar Sciencebolt Tue 02 Mar 2010 19:54:19 No.4626495 Report
-Quoted By: >>4626522 >>4626557 >>4626615
+
 "This is Colonel Yuuki Jegnan to the pursuing Shadow Mirrors. Break off, or we will be forced to destroy you."
 
 Axel snorts. "Hah! We've just sent you scurrying back to your ship with your tail between your legs, and now you're gonna turn around and beat us? Thats not how fights work, Mr. Jegnan."
@@ -31,40 +28,18 @@ Gilliam pops up on a private channel. "Axel, he's talking about combining his ma
 
 "Whats one super robot? We've got half a dozen."
 
-"If their SRX is anything like ours, its power is off the charts for an earth-made robot. Particularly with the R-Gun there. Our combined forces against the SRX and Kurogane...I'd say it'd be an even fight. And we wouldn't come out of it unscathed."
+"If their SRX is anything like ours, its power is off the charts for an earth-made robot. Particularly with the R-Gun there. Our combined forces against the SRX and Kurogane... I'd say it'd be an even fight. And we wouldn't come out of it unscathed."
 
-WHAT WILL AXEL DO? Unconventional strategies can be suggested now.
-BSRaven !!pZhu/eJf6iW Tue 02 Mar 2010 20:01:19 No.4626522 Report
->>4626495
-ZERG RUSH EVERYTHING.
+---
 
-EVEN THE BATTLESHIP, IF STILL FUNCTIONAL.
-Anonymous Tue 02 Mar 2010 20:11:19 No.4626557 Report
-Quoted By: >>4626577
->>4626495
-Wait for it....
-Sciencegar Sciencebolt Tue 02 Mar 2010 20:18:19 No.4626577 Report
-Quoted By: >>4626627
->>4626557
-As in, deliberately wait for them to form SRX?
-Anonymous Tue 02 Mar 2010 20:26:19 No.4626615 Report
->>4626495
-Axel isn't afraid of a bloody nose. If he they can hammer one of the already damaged R units before the combo happens, no SRX.
-And though Axel wouldn't know it, maybe Gilliam and Co. could also bring up that if SM SRX is like OG SRX, it's pretty unstable.
-Anonymous Tue 02 Mar 2010 20:28:19 No.4626627 Report
-Quoted By: >>4627819
->>4626577
-Yes. Wait till they are midtransformation and, if they are anything like our SRX, it should take them some time to fully combine in a fataly slow process.
-
-Then take the chance to tackle the R-3 out of the way and then have the Vysaga cut all important parts that allows it to combine with the othher two. Just....try not to blow the damn thing.
-Sciencegar Sciencebolt Tue 02 Mar 2010 20:50:19 No.4626733 Report
-Quoted By: >>4626777
 "Eun?"
 
-The Kurogane's captain checks her sensors. "The enemy are still in pursuit. I'm preraring an barrage."
+The Kurogane's captain checks her sensors. "The enemy are still in pursuit. I'm preparing an barrage."
 
 "Ok, keep them off our backs." Yuuki points to the open hatch atop the Kurogane, and Tenzan and the Black Knight fly down to drop their captives off.
 
+---
+```
 TURN 1:
 
 Active EFA:
@@ -81,105 +56,21 @@ Ring in the Huckebien EX
 Star Team (Armorlion, Vegalion, Altairlion)
 
 Ryuune, Masaki and Bullet arrive next turn.
+```
+---
 
-WHAT ARE YOUR ORDERS?
-Anonymous Tue 02 Mar 2010 21:00:19 No.4626777 Report
->>4626733
-Have Lamia shoot Shadow Lances fucking EVERWHERE!
-
-Have Ring do the same but with whatever rapid-fire weapon she has.
-
-Star Team the same.
-
-The point is doing chip damage until the rest of our forces arrive.
-Anonymous Tue 02 Mar 2010 21:02:19 No.4626784 Report
-Quoted By: >>4626884 >>4626979
-fire Into the open hatch
-Anonymous Tue 02 Mar 2010 21:31:19 No.4626875 Report
-Quoted By: >>4626884
-Can the star team form the Hyperlion? If so, do so, then use that INSANE speed it has to blow up the R-2, ASAP
-Anonymous Tue 02 Mar 2010 21:31:19 No.4626877 Report
-Quoted By: >>4626952
-Does Ring have the Black Hole cannon? If she does tell her to not to use it until they try to combine the SRX.
-
-Angelg is to focus on the R-Gun so that if they combine they wouldn't be able to use t HTB Cannon. Everyone else is to try and shoot the rest of them from as far as they are able.
-Anonymous Tue 02 Mar 2010 21:34:19 No.4626884 Report
->>4626784
->>4626875
-These
-Anonymous Tue 02 Mar 2010 21:54:19 No.4626942 Report
-Quoted By: >>4626952
-Wait, isn't the R-0 the Granzon? I'm confused...
-Jerid Messa !!AbDOcayw4O/ Tue 02 Mar 2010 21:57:19 No.4626952 Report
-Quoted By: >>4626959 >>4626961
->>4626942
-
-Only in Alpha I believe.
-
->>4626877
-
-This is a sound idea but lets watch our fire. While Arado is semi-safe as he still has most of his mech(albeit beaten up), Ibis is stuck in the cockpit block currently held in Tenzan's hands. One screw up and Ibis might die.
-Anonymous Tue 02 Mar 2010 21:59:19 No.4626959 Report
->>4626952
-Gods, let's hope this doesn't end up like a gundam show...
-Anonymous Tue 02 Mar 2010 22:00:19 No.4626961 Report
-Quoted By: >>4626979
->>4626952
->Yuuki points to the open hatch atop the Kurogane, and Tenzan and the Black Knight fly down to drop their captives off.
-
-The captured people are inside the Kurogane now.
-Anonymous Tue 02 Mar 2010 22:02:19 No.4626968 Report
-Quoted By: >>4626979
-Somewhere in the confusion, plant a tracker on the Kurogane. If they get away, we'll want to follow them.
-
-Angelg should fire a Phantom Pheonix into the open hatch, preferably slagging it into uselessness. This should give us time to rescue the hostages.
-
-Meanwhile, when we get enough men, we should surround the R-3 with 8 units, thus preventing it from combining.
-
-Other than that, take out the R-Gun.
-
-KATINA: Use the Granzon to get back ASAP.
-Jerid Messa !!AbDOcayw4O/ Tue 02 Mar 2010 22:06:19 No.4626979 Report
->>4626961
-I thought they were just starting to land in the hangar but if they already dropped them off then we can fire away.
-
->>4626968
->>4626784
-Avoid these two though. We'd kill Ibis and Arado for sure then.
-Anonymous Tue 02 Mar 2010 22:08:19 No.4626991 Report
-Quoted By: >>4627039
-If they're already dropped off, or the hostages are on the Kurogane at all, take out the Kurogane's engines.
-
-If they're still flying down, take out the open hatch.
-Sciencegar Sciencebolt Tue 02 Mar 2010 22:17:19 No.4627036 Report
-Quoted By: >>4627051
 "Chief, cover us!" The Vegalion and Altairlion soar skyward, laser guides locking on and flaps opening as they prepare for their union.
 
-"Right...Square Cluster!!" Dozens of missiles fly out, throwing the surviving EFA units into disarray. Few find targets however, most simply fly into the Kurogane's belt armor.
+"Right... Square Cluster!!" Dozens of missiles fly out, throwing the surviving EFA units into disarray. Few find targets however, most simply fly into the Kurogane's belt armor.
 
 "Taking the shot!" The Angelg draws its bow and fires as the Kuroganes barrage falters. The arrow of plasma flies into the open hatch and bursts against the lift mechanism, jamming the elevator. The Soldifar and the Schutzwalds cockpit are still visible, in the middle of the Kuroganes deck.
 
 "Ring, I'm suited up, need a hand."
 
 The Photon Rifle shot scores a glancing hit on an R-0, while the huckebien boosts away from the return fire of its friends. "Jayce, good to hear from you. Swing by the 'Fuessler and pick up the Black Hole Cannon. Man, really gotta organise a delivery system for that thing..."
-Anonymous Tue 02 Mar 2010 22:17:19 No.4627039 Report
->>4626991
-And remember, DON'T RAM THE KUROGANE!
-Anonymous Tue 02 Mar 2010 22:19:19 No.4627051 Report
->>4627036
->Man, really gotta organise a delivery system for that thing..."
 
-I think I see where this is going~
-Sciencegar Sciencebolt Tue 02 Mar 2010 22:19:19 No.4627053 Report
-Quoted By: >>4627060
->KATINA: Use the Granzon to get back ASAP.
+---
 
-I thought I established that they were in different continents, and that the Granzon's teleport had been fucked up by the Einst, Dumi and Zweizergain all interfering with it. Yet people seem insistent that this happen.
-Anonymous Tue 02 Mar 2010 22:22:19 No.4627060 Report
->>4627053
-Besides, I think Shuu is getting rather pissy about his mech constantly being used as a transport.
-Sciencegar Sciencebolt Tue 02 Mar 2010 22:30:19 No.4627094 Report
-Quoted By: >>4627128
 ENEMY PHASE
 
 "Carla, Tango Formation, on the AM!"
@@ -189,10 +80,11 @@ ENEMY PHASE
 "Gonna take more than tha-" The rifle round, deflected by the telekinetically hardened metal, flies into the rear of the Armorlion. Something pops, and its right thruster starts spewing smoke. Denzel curse as his mobility takes a nosedive. Then the boomerang takes a gouge out of his shoulder as it flies back to the R-Gun
 
 Beams burst off the Angelgs armor as the StealthFalken opens up. Multiple images of the feminine mech appear as it evades, but the shots still strike true. Lamia grits her teeth as the damage racks up.
-Sciencegar Sciencebolt Tue 02 Mar 2010 22:35:19 No.4627113 Report
-Quoted By: >>4627124
+
 Two Strike-Shields fly right through an after-image of the Huckebien, ploughing on through and almost hitting an R-0. Ring dodges frantically as the things swarm around her. She dodges past the Kuroganes wing, and three of them crash straight through it, after their target.
 
+---
+```
 TURN 2: Available Units
 Lamia in the Angelg
 Ring in the Huckebien EX
@@ -203,155 +95,9 @@ Valsione
 Brooklyn in R-Blade
 
 Axel and Latooni arrive next turn.
+```
+---
 
-ORDERS?
-Anonymous Tue 02 Mar 2010 22:37:19 No.4627124 Report
-Quoted By: >>4627157
->>4627113
-Cybuster, Valsione: Get right in there and COSMO FLASH/WHATEVER everything.
-Anonymous Tue 02 Mar 2010 22:38:19 No.4627128 Report
-Quoted By: >>4627137 >>4627244
->>4627094
-Take them on one at a time. All avaliable firepower is to focus on the R-Gun. Take it out and even if they do combine into the SRX they'll be missing their most powerful weapon.
-
-When Masaki shows up, have him ignore the fighting to rescue the pair of cockpit blocks. He's the fastest mother fucker here, so his job is to get them out of range of Ryuune's Psychoblaster (or whatever it's called). After Arado and Ibis are safe, he can come back to the fight. And this time we won't have to worry about hitting friendlies.
-
-...though someone should really figure out where Russel went.
-Anonymous Tue 02 Mar 2010 22:40:19 No.4627137 Report
-Quoted By: >>4627177
->>4627128
->so his job is to get them out of range of Ryuune's Psychoblaster (or whatever it's called). 
-You know, the best part of the Valsione and Cybuster's MAP attacks is they only hit enemies...
-Anonymous Tue 02 Mar 2010 22:45:19 No.4627157 Report
-Quoted By: >>4627180
->>4627124
-This is actually hugely effective in SRW, especially when followed up with non area effect people coming in immediately after, to lay down further fire, be it suppressive or terminal, right after the two AOE's end.
-
-MAXIMIZE THINE DAMAGE OUTPUT
-Anonymous Tue 02 Mar 2010 22:49:19 No.4627177 Report
->>4627137
-Oh really? In that case have both Masaki and Ryuune use their map attacks right away, but then still have him rescue the pilots. The less helpless friendlies in the line of fire the better.
-Haken Browning !zHe7DH816A Tue 02 Mar 2010 22:50:19 No.4627180 Report
-Quoted By: >>4627188 >>4627213 >>4627245
->>4627157
-Don't forget to cast Luck, too. And Strike if Masaki's level is high enough.
-Anonymous Tue 02 Mar 2010 22:52:19 No.4627188 Report
->>4627180
-And Valor too!
-Anonymous Tue 02 Mar 2010 22:58:19 No.4627210 Report
-I can´t wait for Katina to betray/replace Mauser, He sucks.
-
-...But we´ll let him live... For now, That way it will be more fun when Mauser is in danger and goes "Thank god Katina is here." and we go "Mauser, I was never on your side." and becomes the leader of the Deceptic- I mean Shadow Mirror.
-Couch Tue 02 Mar 2010 22:59:19 No.4627213 Report
-Quoted By: >>4627216 >>4627236
->>4627180
-Oh god, having flashbacks to that wall of Barrelions near OG2's end.
-
-STRIKE, VALOR, CYFLASH
-*adviceCouch.jpg*
-WHAT GRUNTS?
-Anonymous Tue 02 Mar 2010 23:00:19 No.4627216 Report
->>4627213
-STRIKE, VALOR, CYFLASH
-*adviceCouch.jpg*
-WHAT SRX TEAM?
-Anonymous Tue 02 Mar 2010 23:01:19 No.4627218 Report
-rp faggotry take it to gaia
-View SameGoogleiqdbSauceNAO 1267037822226.jpg, 51KiB, 400x289
-Ratsel Feinschmecker !VFYL66iWMA Tue 02 Mar 2010 23:06:19 No.4627236 Report
-Quoted By: >>4627254 >>4627261
->>4627213
-
-You mean these?
-
-My suggestion to Cybuster, use your super speed to get your allies out of Lune's STRIKEd and VALORed Psy Blaster Radius, then STRIKE, VALOR, Cyflash.
-Anonymous Tue 02 Mar 2010 23:09:19 No.4627244 Report
->>4627128
-Take out the R-2 and they can't even combine. They both have Tronium Engines if I recall, so it's about the same risk. And it's not like they can't just swing the sword around to wreck our shit.
-Zeta Zaku Tue 02 Mar 2010 23:09:19 No.4627245 Report
-Quoted By: >>4627267 >>4627274
->>4627180
-Focus might be our better bet. Strike is his last senshin, and he needs 30 SP just to be sure he hits something. Better to save our points for Valor.
-Anonymous Tue 02 Mar 2010 23:11:19 No.4627254 Report
->>4627236
->You know, the best part of the Valsione and Cybuster's MAP attacks is they only hit enemies...
-Zeta Zaku Tue 02 Mar 2010 23:13:19 No.4627261 Report
->>4627236
-Cyflash and Psychoblaster don't affect allies.
-Anonymous Tue 02 Mar 2010 23:13:19 No.4627267 Report
->>4627245
-I disagree. Best to do as much garunteed damage ASAP.
-Anonymous Tue 02 Mar 2010 23:16:19 No.4627274 Report
->>4627245
-Strike goes down to 10 SP in OG2
-Anonymous Tue 02 Mar 2010 23:26:19 No.4627345 Report
-Quoted By: >>4627360
-I just had an awesome idea guys! Dumi's no longer using the DGG-04 unit in favour of being a ship, therefore I think we should rebuild it and upgrade it and stick FUCK YES CYBORG ARADO in it.
-Anonymous Tue 02 Mar 2010 23:27:19 No.4627360 Report
->>4627345
-No, GUN-Oh is still going to Ibis.
-
-The Wurger is open however...
-Couch Tue 02 Mar 2010 23:29:19 No.4627371 Report
-Quoted By: >>4627382 >>4627404 >>4627410 >>4627423 >>4627428
-Actually, here's another thought...we're completely fucked if our battle strategy goes wrong and they manage to form the SRX, right? Plus, we don't want SRX destroyed, it'll ruin our plans if it is.
-
-So why risk it? Let's have Axel be the voice of reason for once and call a ceasefire to parley with the SRX team. We get our pilots back, they get information and to leave without a further fight. Then give them the information needed to set them up to fight against the First and Only, laying the groundwork for our war.
-Anonymous Tue 02 Mar 2010 23:31:19 No.4627382 Report
-Quoted By: >>4627423
->>4627371
-......Okay.
-
-If they say no though, VALOR STROKE CYFLASH
-Couch Tue 02 Mar 2010 23:34:19 No.4627404 Report
-Quoted By: >>4627414 >>4627423 >>4627428 >>4627484 >>4627492 >>4627553
->>4627371
-
-To elaborate further - right now what we need is some stability. Part of the reason Sciencegar has been forced to throw SRX Team at us to begin with is because we try to befriend everybody and grab everybody's tech, and we do that because we're desperate for some stability, for some time and means by which we can gather resources and produce all the cool crap we've got brewing. Right now Magus is our best bet for that, especially if we can get the Zfylud Crystals to her. So resolving this in a nonviolent manner is in our best interests, since it'll give us time to establish ourselves properly without having to deal with more combat, more resupplying supplies we don't have, and more repairs we can't make.
-Anonymous Tue 02 Mar 2010 23:35:19 No.4627410 Report
->>4627371
-Let's make it quick, so we can still VALOR STRIKE CYFLASH if necessary.
-Ratsel Feinschmecker !VFYL66iWMA Tue 02 Mar 2010 23:36:19 No.4627414 Report
->>4627404
-point taken, accepted, and agreed on.
-Haken Browning !zHe7DH816A Tue 02 Mar 2010 23:38:19 No.4627423 Report
-Quoted By: >>4627461
->>4627371
->>4627404
-...For once, I agree with the option that isn't RIP AND TEAR or GENTLY LOVE.
-
-But then again...>>4627382
->VALOR STROKE
-I just got through doing that one thing for Grims, DAMN. (Expect results Thursday.)
-Anonymous Tue 02 Mar 2010 23:39:19 No.4627428 Report
->>4627404
->>4627371
-
-i agree with this
-View SameGoogleiqdbSauceNAO Archibald awesome 2.png, 26KiB, 112x110
-Ratsel Feinschmecker !VFYL66iWMA Tue 02 Mar 2010 23:46:19 No.4627461 Report
-Quoted By: >>4627485
->>4627423
-
-..... you are working for HIM?!
-Anonymous Tue 02 Mar 2010 23:49:19 No.4627474 Report
-It's time to kick ass and chew gum. And we're all out of gum, naturally.
-Anonymous Tue 02 Mar 2010 23:50:19 No.4627484 Report
->>4627404
-
-Agreean.
-Anonymous Tue 02 Mar 2010 23:50:19 No.4627485 Report
->>4627461
-I'll work for you as long as you're cool with sleeping with your brother all the time.
-Jerid Messa !!AbDOcayw4O/ Tue 02 Mar 2010 23:52:19 No.4627492 Report
->>4627404
-
-Let's go for it then.
-Anonymous Wed 03 Mar 2010 00:06:19 No.4627553 Report
->>4627404
-If we can, sure. If not, CYFLASH
-Sciencegar Sciencebolt Wed 03 Mar 2010 00:10:19 No.4627591 Report
-Quoted By: >>4627607
 "Give it up, Jegnan, you can't beat what we got."
 
 "Oh? I think we're doing quite well, actually."
@@ -371,13 +117,6 @@ The energy storm rips a dozen small turrets, and one large one, right off the Ku
 With the deck cleared, Ryuune swoops in low, and grabs for the battered Soldifar. "Arado, are you ok?"
 
 "...What is with this world and all the crazy women?"
-Sciencegar Sciencebolt Wed 03 Mar 2010 00:12:19 No.4627607 Report
->>4627591
-
-(I should maybe specify that that was Yuuki and Axel talking in the first half of that post. As ever, I suck at scene-setting)
-Sciencegar Sciencebolt Wed 03 Mar 2010 00:21:19 No.4627668 Report
-Quoted By: >>4627678 >>4627703
-(Predicably, no-one gave orders for anyone but Masaki and Axel, so the rest are all acting on instinct.)
 
 Lamia launches arrow after arrow at the black mech, but the Falken climbs and spins higher and higher, before zooming down, guns blazing. Try as she might, Lamia can't dodge any of the shots: The accuracy is uncanny.
 
