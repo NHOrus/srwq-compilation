@@ -1,11 +1,6 @@
 # Episode 38
 
 ##SRWQ Mission 38: Crossovers? In my SRW? It's more likely than you think
-Sciencegar Sciencebolt Sat 06 Mar 2010 14:10:01 No.4651012 ViewReplyOriginalReport
-Quoted By: >>4651028 >>4651035 >>4651484
-Previous threads linked here:
-http://teamphantomtiger.blogspot.com/2010/02/srw-quest-sciencegar-sciencebolt-joint.html
-http://teamphantomtiger.blogspot.com/2010/02/srw-quest-thread-archive-mark-ii.html
 
 "I've found you at last, Boatlights!" Lydia's body erupts with deadly nanobot tentacles, which form into machineguns and chainsaws. "You're going down!"
 
@@ -21,161 +16,41 @@ http://teamphantomtiger.blogspot.com/2010/02/srw-quest-thread-archive-mark-ii.ht
 
 ***
 
-Katina?
+*Katina?*
 
 "Mugh!" You leap up on the bed. Your pulse is racing, and your panties are little wet.
 
 "Dammit Dumi! Don't wake me during the good dreams!"
 
-I'm sorry Katina, I really am, but theres a minor emergency.
+*I'm sorry Katina, I really am, but theres a minor emergency.*
 
 "It's 4am!"
 
-One of the people you rescued from the Neviim has run off, Katina. And she took the alien mech with her.
+*One of the people you rescued from the Neviim has run off, Katina. And she took the alien mech with her.*
 
-ATTEMPT PURSUIT, GO BACK TO BED, OR DO SOMETHING ELSE?
-Bolo Mk.XXXIII RDN-5263 "Russian Decepticon" Sat 06 Mar 2010 14:15:01 No.4651026 Report
-Attempt to pursuit. Plan the way to deal with Dumi for it later.
-Anonymous Sat 06 Mar 2010 14:15:01 No.4651028 Report
->>4651012
-Dat dream...
-BSRaven !!pZhu/eJf6iW Sat 06 Mar 2010 14:18:01 No.4651030 Report
-Persue.
+---
 
-Tell Dumi NO HUGS FOR HIM FOR A WHOLE DAY. Which should really screw with him, emotional dependancy on us being the cause...
-Anonymous Sat 06 Mar 2010 14:18:01 No.4651033 Report
-Quoted By: >>4651044
-It's 4 AM. Could you even FIND whoever ran off in the dark? Back to bed.
-Anonymous Sat 06 Mar 2010 14:19:01 No.4651035 Report
->>4651012
-Is it Titty or Radha? Either way pursuit is the only option. Go and talk to the 3 remaining persons and see if they know anything.
-Bolo Mk.XXXIII RDN-5263 "Russian Decepticon" Sat 06 Mar 2010 14:21:01 No.4651044 Report
-Quoted By: >>4651051 >>4651054
->>4651033
-Night vision system that every decent mech with fully enclosed cockpit has?
-Anonymous Sat 06 Mar 2010 14:23:01 No.4651051 Report
->>4651044
-Curse you and your shooting holes in rationalizing sleep.
-BSRaven !!pZhu/eJf6iW Sat 06 Mar 2010 14:23:01 No.4651054 Report
-Quoted By: >>4651056
->>4651044
-Pfft, we took that out of the Raioh in exchange for EXTRA LIGHTNING FALL POWER.
-Anonymous Sat 06 Mar 2010 14:24:01 No.4651056 Report
-Quoted By: >>4651063
->>4651054
-The use said lighting power to illuminate the immediate area?
-BSRaven !!pZhu/eJf6iW Sat 06 Mar 2010 14:26:01 No.4651063 Report
-Quoted By: >>4651076 >>4651088
->>4651056
-What, with RAIOH KICKing the terrain?
-
-YOU'RE INSANE.
-Anonymous Sat 06 Mar 2010 14:32:01 No.4651076 Report
->>4651063
-Who ever said it kicks the terrain? RaiOh Kick to the skies and use the illumination of the lightning attack to get a better view of the surroundings. Yes, Raioh will become THE MANLIEST FLARE EVER!
-Bolo Mk.XXXIII RDN-5263 "Russian Decepticon" Sat 06 Mar 2010 14:40:01 No.4651088 Report
->>4651063
->YOU'RE INSANE.
-I'm supposed to be Shadow Mirror Katina Tarask here. Of course I am.
-Sciencegar Sciencebolt Sat 06 Mar 2010 14:59:01 No.4651132 Report
-Quoted By: >>4651133 >>4651202
 There seems to be some minor alarum over the dissappearance of Radha Byran, but no-one else seems to be mobilising. You grumble to yourself as you climb into the Raioh. Taking off, Dumi flies alongside you.
 
-Like a speed boost?
+*Like a speed boost?*
 
 "Eh, sure."
 
 Dumi morphs once more into his Transport form, and you land atop of him, as he clamps the Raioh's feet securely to his hull. The combination boosts off, and you've soon breached the sound barrier.
 
-I see her ahead, she's making good progress, but nothing amazing. I should be able to secure a laser comm with her if you like.
+*I see her ahead, she's making good progress, but nothing amazing. I should be able to secure a laser comm with her if you like.*
 
-TALK TO RADHA OR TRY TO SECURE HER FIRST?
-Anonymous Sat 06 Mar 2010 15:01:01 No.4651133 Report
-Quoted By: >>4651137
->>4651132
-Both! Talk to Radha while closing in on her!
-Anonymous Sat 06 Mar 2010 15:02:01 No.4651137 Report
->>4651133
-I'm for this. Open communications, but try to get into a strategic position in case violence breaks out.
-Anonymous Sat 06 Mar 2010 15:25:01 No.4651202 Report
->>4651132
-Secure her first, for all we know she might be a balmar spy.
-Anonymous Sat 06 Mar 2010 15:43:01 No.4651257 Report
->>4651008
-ＲeＭＯve YoＵＲ ｉLlEGａｌ CｌOＮｅ ｉＭＭeｄｉATＥlY. yｏU ｈＡVE cOpiＥＤ ＡnD pAsTｅＤ wwｗ.AnOnＴａｌK.ｃoＭ ｏｎ The SｕbdoＭAｉＮ. cUT ThE craｐ, ｍoＯt, ａnＤ ThＥsＥ ＭＥSｓＡＧEｓ ｗＩLL SＴOｐ. iＦ ｔＨE ＰＥRｓＯn ＲＥａdiｎＧ tHIS is ＮｏT MＯＯｔ, Ｅ-ｍaｉｌ ｍOOT@4cｈAＮ.Oｒｇ ａＮｄ Tell hｉＭ TＯ.
-
-ｒＥMOＶE Yｏｕr IＬLＥgAL cＬonｅ iＭMEｄiａTEＬY. ｙＯＵ ＨavE ｃOｐieＤ ａnＤ paSteＤ Ｗwｗ.AｎＯｎＴALＫ.CＯM ｏn TＨE SｕbDoｍａIｎ. Cｕt ＴＨe ｃｒＡｐ, ｍOｏＴ, and ＴHEsE ｍＥSSａｇeＳ WilL sｔＯp. iｆ THe pEＲSOＮ ＲEaｄINｇ ＴHIＳ ｉＳ ＮoＴ MoＯＴ, ｅ-ｍａIl mＯoｔ@4ＣｈAＮ.ORG ＡnD ｔｅＬl HｉＭ ｔo.
-
-ｒEMoｖｅ ＹＯＵR ｉＬleＧal ｃLoｎe ＩmMｅDＩＡTｅLY. ＹOｕ Haｖｅ CoＰIＥｄ Ａnd ｐａsTEｄ WwＷ.ＡＮOＮＴＡLｋ.cOm Oｎ tHE ｓｕBｄoMAIN. ｃＵt TＨＥ ｃｒａＰ, moｏＴ, ａnD thEｓＥ messAgｅS wｉlＬ sTＯＰ. Ｉf TｈＥ ｐｅRSoＮ ｒEadＩＮｇ thｉs ＩＳ NOt MOｏｔ, E-ＭAiL ｍｏOt@4chＡｎ.ｏｒG AｎＤ tｅｌL ｈＩｍ tO.
-
-rＥＭＯvE ＹｏUｒ IｌＬeＧaＬ cＬoｎｅ iｍmｅDiAＴｅlY. ＹＯｕ ｈAＶＥ CoPＩｅd Ａｎd paｓTEd ｗｗW.ＡnＯｎｔＡlK.ｃｏｍ ｏN Ｔhｅ ＳuｂDｏMａiN. CuT Ｔｈe ＣrAＰ, MOoｔ, Ａｎｄ ＴhＥＳＥ MeｓSａgEs WｉｌＬ sｔoＰ. ｉｆ THE pＥRＳon RＥａＤＩＮＧ ThiS Ｉs Ｎｏｔ moＯＴ, E-ＭaＩＬ ｍOｏｔ@4cＨan.oＲG AｎD TEＬｌ hiｍ tO.
-Sciencegar Sciencebolt Sat 06 Mar 2010 15:52:01 No.4651287 Report
-Quoted By: >>4651295 >>4651296
-The Ezekiel begins boosting as you approach, but with Dumis engines, you're catching up the distance quickly.
-
-"Yo, Radha, whats the deal?"
-
-"N-no, stay away from me!"
-
-"You got me all woken up at 4am in the middle of an excellent dream, I'd like to know what this is all about."
-
-"I....I don't want to be a part of this! Aliens, terrorists, monsters in the earth...I just want to go home! Home to my family, back to Mumbai! Just...just let me leave, I beg you!"
-
-I don't think she's thinking straight, Katina. The alien mech is high-performance, but it won't get her back to India for weeks. And thats assuming it can make the trip across the ocean.
-
-CAPTURE RADHA, LET HER GO, TALK TO HER MORE?
-Anonymous Sat 06 Mar 2010 15:54:01 No.4651295 Report
->>4651287
-Try to persuade her that if she wants to go home this is not the best way to go about it. Remind her that nobody is forcing her to stay but we can't let her just fly off with that mech.
-Anonymous Sat 06 Mar 2010 15:54:01 No.4651296 Report
-Quoted By: >>4651430
->>4651287
-Back off some, look nonthrea... like LESS of a threat, and try to persuade her to at least get a ride home on the ship that won't run out of energy in the middle of the sea?
-Sciencegar Sciencebolt Sat 06 Mar 2010 16:28:01 No.4651424 Report
-Quoted By: >>4651443 >>4651449 >>4651469
 "Oh Radha honey, we won't make you stay! But running off my yourself won't do you any good! You'll just get lost and run out of fuel, and then you'll be stuck in the middle of the jungle or the sea or something. Come on, give us back the mech, and we'll get you home properly."
 
 "Y...You mean it? Really?"
 
-"Well...to be blunt, otherwise you're dead weight stinking up the camp."
+"Well... to be blunt, otherwise you're dead weight stinking up the camp."
 
-Eloquent as ever, Katina. Unfortunately, with the interdimensional storm, I don't think I can use my teleport safely, so if we want to get to India and back in a reasonable timeframe, I'll have to use a suborbital overboost. The chance of being picked up is quite high.
+*Eloquent as ever, Katina. Unfortunately, with the interdimensional storm, I don't think I can use my teleport safely, so if we want to get to India and back in a reasonable timeframe, I'll have to use a suborbital overboost. The chance of being picked up is quite high.*
 
-SHALL YOU RISK THE EFA PICKING YOU UP, OR TRY SOMETHING ELSE?
-Anonymous Sat 06 Mar 2010 16:29:01 No.4651430 Report
->>4651296
-This. It's what, 3 EN a square for flying movement? Africa to India is a hell of a lotta squares.
-Anonymous Sat 06 Mar 2010 16:32:01 No.4651443 Report
->>4651424
-Can you possibly do a short-range teleport just before you get picked up? Otherwise, just back off or risk major fuck ups.
-Anonymous Sat 06 Mar 2010 16:33:01 No.4651449 Report
-Quoted By: >>4651455 >>4651484
->>4651424
-Try something else. Besides why is she so fixated to go straight to India? There must be other places nearby that are good enough if she wants to escape.
-
-Tell Dumi to search for a nearby city where we will drop Radha off and return back to the base with her mech.
-Anonymous Sat 06 Mar 2010 16:36:01 No.4651455 Report
->>4651449
-I like this!
-
-"You can go! But leave the robot behind, we'll need it later."
-Anonymous Sat 06 Mar 2010 16:41:01 No.4651469 Report
->>4651424
-Risk it.
-NuBlackAnon !!z6ldXGL61Wm Sat 06 Mar 2010 16:47:01 No.4651484 Report
-Quoted By: >>4651528
->>4651012
-This too is the fault of Decade
->>4651449
-she wants to go home, overboosting would NOT BE SMART, so tell her we will get her a transport, and besides, her transport is slower (though if you are in America at mach 1ish you could make it to India in round 7 hours)
-NuBlackAnon !!z6ldXGL61Wm Sat 06 Mar 2010 17:04:01 No.4651528 Report
->>4651484
-well 10, so we could just simply get some leave, drop her off, and come back before the day ends, and still have what, 26 hours till the deadline
-Sciencegar Sciencebolt Sat 06 Mar 2010 17:26:01 No.4651582 Report
-Quoted By: >>4651598 >>4651851
 "Can we get her a transport or shuttle or something? Something we don't need, you know."
 
-I was of the understanding that the Shadow Mirrors needed every ship they could get right now. Also, I don't think Radhas a qualified pilot. It seems she's able to control the Balmar mech only thanks to inserted mental training, judging from her brain activity.
+*I was of the understanding that the Shadow Mirrors needed every ship they could get right now. Also, I don't think Radhas a qualified pilot. It seems she's able to control the Balmar mech only thanks to inserted mental training, judging from her brain activity.*
 
 "Oh...Well, maybe we should leave her of somewhere, and let her make her own way."
 
