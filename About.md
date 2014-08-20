@@ -9,5 +9,7 @@ It went surprisingly well:
 
 ![alt text](images/SRWQ_Hand.png  "The sum of it")
 
+And was [archived here](http://teamphantomtiger.blogspot.ru/2010/02/srw-quest-sciencegar-sciencebolt-joint.html)
+
 #### Somewhen in the relative future
 I got insane and decided to press SRWQ into something resembling a novel instead of a bunch of disjoined posts.
