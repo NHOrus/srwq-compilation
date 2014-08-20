@@ -247,56 +247,25 @@ Arado stands there, mute, his hands quivering.
 
 "Someone who ruins things. Who smashes up the dynamic. When Bronzo Class was disbanded, they put you in the same class as me and Ouka, not to help you improve, but to break up the dynamic. To shatter the peace of the class and destroy the ties we'd made together. And you did it wonderfully, by dying like you did."
 
-The girl slams against the back wall, with Arado's hand around her throat. "LIAR!! You can't know that!!! That...thats not.."
+The girl slams against the back wall, with Arado's hand around her throat. "LIAR!! You can't know that!!! That... thats not.."
 
-"...*Cough* Lidl'mor...."
+"... *Cough* Lidl'mor...."
 
 "Whu..."
 
-"...Squeeze...a little more...and you'll pop my second and third verterbrae.....I'll die instantly....Go on, finish your mission..."
+"...Squeeze... a little more... and you'll pop my second and third verterbrae... I'll die instantly... Go on, finish your mission..."
 
 Arado snaps back his hand like Latooni was on fire. She drops to her feet and stands up, as if nothing had happened.
 
-"Heh-heh...close one, Balanga. I'll have to be more careful around you in future."
+"Heh-heh... close one, Balanga. I'll have to be more careful around you in future."
 
 Arado stares at her, then at his hands. Then he runs off.
-Gilliam Yaeger Fri 05 Mar 2010 22:23:51 No.4647045 Report
->>4647036
-Latooni's still getting her kicks I see.
-Anonymous Fri 05 Mar 2010 22:26:51 No.4647059 Report
-Quoted By: >>4647086
->>4647036
-This amuses me greatly.
->>4647006
-What fic is this now? I must have a link to it.
-Zeta Zaku Fri 05 Mar 2010 22:31:51 No.4647086 Report
->>4647059
-http://www.fanfiction.net/s/5338251/1/
 
-Also features Death from Discworld. Unfortunately, FF.net's formatting screws up his small caps speaking style, so he's stuck to regular bold.
-Anonymous Fri 05 Mar 2010 22:31:51 No.4647090 Report
-Quoted By: >>4647109
-I'm curious, did Rand come with us?
-Anonymous Fri 05 Mar 2010 22:32:51 No.4647091 Report
-I have a bad feeling about this.
-Anonymous Fri 05 Mar 2010 22:35:51 No.4647103 Report
->>4647036
-OK... That was... interesting.
-Anonymous Fri 05 Mar 2010 22:38:51 No.4647109 Report
->>4647090
-I think he is with kai currently.
-Anonymous Fri 05 Mar 2010 22:55:51 No.4647175 Report
-Quoted By: >>4647180
-Arado is the only sane person out of Katina, himself, and Latooni. Jeeze.
-Gilliam Yaeger Fri 05 Mar 2010 22:56:51 No.4647180 Report
-Quoted By: >>4647197
->>4647175
-Considering what Latooni said, and how strongly he reacted to it I wouldn't be so sure of that...
-Sciencegar Sciencebolt Fri 05 Mar 2010 22:59:51 No.4647192 Report
-Quoted By: >>4647220 >>4647256 >>4647280 >>4647291
+---
+
 "Rio, they still making you do all the work around here?" You half-heartedly play with a spanner set as you talk to the overworked mechanic."
 
-"Y-yeah....Ryo was laid up with a concussion, and I sh...Johnathan got hit by stray fire during the EFA raid. If it wasn't for the Other Arado, I'd be like them as well, and probably captured to boot."
+"Y-yeah... Ryo was laid up with a concussion, and I sh... Johnathan got hit by stray fire during the EFA raid. If it wasn't for the Other Arado, I'd be like them as well, and probably captured to boot."
 
 "Well, thank god for Robot Hellghosts, then!"
 
@@ -304,405 +273,64 @@ Quoted By: >>4647220 >>4647256 >>4647280 >>4647291
 
 "So, how are we looking for mechs?"
 
-"Ugh...I wish you hadn't asked..."
+"Ugh... I wish you hadn't asked..."
 
+---
+
+```
 Trilobites 1 and 2: Intact thanks to Dumi. Repaired from the sabotage.
 Soulgain: Still busted
-Vysaga: In shreds. The parts were recovered, but theres no realistic way to repair it...by conventional means anyway.
+Vysaga: In shreds. The parts were recovered, but theres no realistic way to repair it... by conventional means anyway.
 Bluepenst: Ok
 Redpenst: Caught the edge of the HTB cannon, it practically had to be peeled off the Huckebien. Theres even less left than there was of the pilot.
-Huckebien EX: Badly damaged, but the core systems are ok. However, repairing the frame will be difficult without the proper facilities (whiah are at the Moon Cradle).
+Huckebien EX: Badly damaged, but the core systems are ok. However, repairing the frame will be difficult without the proper facilities (which are at the Moon Cradle).
 Rathgrith: Ok
 Angelg: Fine after repairs.
 R-Blade: Fine after repairs.
 StealthRaubtier:...
 
-"Yeah, we're...still trying to figure this one out."
-Anonymous Fri 05 Mar 2010 23:00:51 No.4647197 Report
-Quoted By: >>4647204 >>4647219
->>4647180
-I suppose. That said, his reactions are still the most normal out of the three. The question is, if Katina is a failure, and Arado was meant as a spoiler, what does this make Seolla?
-Gilliam Yaeger Fri 05 Mar 2010 23:01:51 No.4647204 Report
->>4647197
-A sniper. Someone who pathologically kills from afar.
-Anonymous Fri 05 Mar 2010 23:05:51 No.4647219 Report
-Quoted By: >>4647243
->>4647197
+"Yeah, we're... still trying to figure this one out."
+```
+---
 
-Yandere? Wants to kill people so she can always keep them with her?
-Anonymous Fri 05 Mar 2010 23:05:51 No.4647220 Report
-Quoted By: >>4647237 >>4647248
->>4647192
-Did the Raubtier evolve?
-Sciencegar Sciencebolt Fri 05 Mar 2010 23:06:51 No.4647223 Report
-Quoted By: >>4647280
-Eurydice: Intact, apparently being flown by one person.
-Granzon: As fine as ever.
-Gespenst Kai: Still having major teething problems.
-Gunleon: "Ready and roaring to go!...Where are we going again?"
-The 4 Ezekiels: Intact but very mysterious.
-Gespenst S???: "This isn't the Gespenst S. No way..."
-
-Bulk Transport: OK
-Ashsaber: Not perfectly repaired, but ready to go.
-Simurgh Splendid: Property of Manami Hamill and Co.
-Mironga: Property of Lily Junkers.
-Gilliam Yaeger Fri 05 Mar 2010 23:08:51 No.4647237 Report
-Quoted By: >>4647247
->>4647220
-No, we got its stealth coating fixed.
-
-Not that it matters anymore.
-Anonymous Fri 05 Mar 2010 23:11:51 No.4647242 Report
-Oh dear. Ibis isn't going to be happy about the Redpenst. At all.
-Anonymous Fri 05 Mar 2010 23:11:51 No.4647243 Report
->>4647219
-Nah, it seems like she is the total opposite.
-Anonymous Fri 05 Mar 2010 23:12:51 No.4647247 Report
-Quoted By: >>4647250
->>4647237
-I don't think -
->StealthRaubtier:...
->"Yeah, we're...still trying to figure this one out."
-- equates to "We got the stealth coating fixed."
-Anonymous Fri 05 Mar 2010 23:12:51 No.4647248 Report
->>4647220
-Latooni suicide rammed it at the mech Seolla was piloting.
-Gilliam Yaeger Fri 05 Mar 2010 23:13:51 No.4647250 Report
-Quoted By: >>4647251
->>4647247
-We fixed it up a while ago.
-Gilliam Yaeger Fri 05 Mar 2010 23:14:51 No.4647251 Report
->>4647250
-Actually, scratch that, I just realized what you were talking about. Disregard, suck cocks etc.
-
-Didn't we stick machine cells into the Raubiter before though?
-Sciencegar Sciencebolt Fri 05 Mar 2010 23:15:51 No.4647254 Report
-Quoted By: >>4647260 >>4647263 >>4647269 >>4647270 >>4647277 >>4647278 >>4647298 >>4647320
 Latooni looks on grimly at the scene before her. "Why wasn't I informed of this?"
 
 Rio shrugs. "We only found it a few hours ago. And we had no clue what it was."
 
 The clump of mech parts blindly slithers about the charred jungle, pseudopods snaking about, gathering pieces of shrapnel and the odd screw. Arms, legs, wings and the half-heads of the StealthRaubtier and StealthFalken jut from it at odd angles. The metal monstrosity appears to be a junkyard brought to life.
 
-Intruiging...I would have expected the Machine Cells to go dormant after Latooni self-destructed, but apparently they're more resilient than I expected. They're still attempting to repair the mech. Unfortunately, damaged as they are, they can't tell which mech is which.
+*Intruiging... I would have expected the Machine Cells to go dormant after Latooni self-destructed, but apparently they're more resilient than I expected. They're still attempting to repair the mech. Unfortunately, damaged as they are, they can't tell which mech is which.*
 
-You frown at the blind thing. "Can we...fix it?"
+You frown at the blind thing. "Can we... fix it?"
 
 The cells are truly one with that scrap, no removing them. The only option is to finish the repair process, but that means giving the cells energy and some more material to work with. But the results could be interesting, if I can repair the programming.
 
-WHAT SHALL WE DO WITH THIS THING?
-Stealthyboy !fchRKomfls Fri 05 Mar 2010 23:15:51 No.4647256 Report
-Quoted By: >>4647281
->>4647192
-Looks like we're going to need to machine cell up the Vysaga...
-Stealthyboy !fchRKomfls Fri 05 Mar 2010 23:17:51 No.4647260 Report
->>4647254
-Finish the repair process! Monstrosities for all!
-Nameless Grunt Fri 05 Mar 2010 23:17:51 No.4647263 Report
-Quoted By: >>4647266 >>4647270 >>4647271
->>4647254
-Do....something to tell the cells to repair the mech as a fusion of the Raubiter and Falken.
-View SameGoogleiqdbSauceNAO 1266008001514.jpg, 194KiB, 1280x800
-Nameless Grunt Fri 05 Mar 2010 23:18:51 No.4647266 Report
->>4647263
-Forgot my image.
-Jerid Messa !!AbDOcayw4O/ Fri 05 Mar 2010 23:18:51 No.4647267 Report
-Let the cells finish their work. Sounds like Latooni will get her own custom machine.
-Goddamn Sandwitches Fri 05 Mar 2010 23:19:51 No.4647269 Report
->>4647254
-I say we get the materials and see what happens.
-Haken Browning !zHe7DH816A Fri 05 Mar 2010 23:19:51 No.4647270 Report
-Quoted By: >>4647300
->>4647254
->>4647263
->Falken/Raubtier mix
-CONGRATULATIONS! It's a Rapiecage!
-Anonymous Fri 05 Mar 2010 23:19:51 No.4647271 Report
->>4647263
-Perhaps we can enlist Dumi in this
-Gilliam Yaeger Fri 05 Mar 2010 23:20:51 No.4647277 Report
-Quoted By: >>4647282
->>4647254
-Well it seems we DID stick machine cells in the Raubiter.
+---
 
-Does this mean we get the Latgelmir nao? Although maybe it would be better as a testbed to the Super Machine Cells Sophia will make...
-Anonymous Fri 05 Mar 2010 23:20:51 No.4647278 Report
->>4647254
-Do it. Nothing can go wrong, I swear!
-Anonymous Fri 05 Mar 2010 23:21:51 No.4647280 Report
-Quoted By: >>4647296 >>4647313 >>4647318
->>4647192
->>4647223
-
-Repair R-blade and Angelg ASAP. After that focus on Genspenst Kai...How far away we are from our dear Gust Lander from all the way from chapters 1,2,3 ??? You know the one we dumped to ocean along with broken Genspenst and that one transport?
-Anonymous Fri 05 Mar 2010 23:21:51 No.4647281 Report
-Quoted By: >>4647290 >>4647318
->>4647256
-THIS! We are to give that chimera the parts of vysaga and more energy at once!
-
-And then StealthVysFalktier will be born!
-Anonymous Fri 05 Mar 2010 23:21:51 No.4647282 Report
->>4647277
-Dude, the Raubtier got Machine Cells in it a LONG time ago from when we stood on the Thrudgelmir's shoulder.
-Anonymous Fri 05 Mar 2010 23:24:51 No.4647290 Report
->>4647281
-SCIENCE TIME!
-
-I say we throw all the robots that we aren't able to repair into a big pile, throw lots of machine cells in the pile and the use the Raioh as a battery!
-Anonymous Fri 05 Mar 2010 23:24:51 No.4647291 Report
-Quoted By: >>4647301 >>4647302 >>4647313
->>4647192
-
-So, remind me- who was the unfortunate soul in Redpenst?
-
-And if it was Ibis, how the hell did she manage to escape?
-Anonymous Fri 05 Mar 2010 23:27:51 No.4647296 Report
-Quoted By: >>4647327
->>4647280
-
-Cont.
-
-And since I am such a fucking idiot, I forgot to mention that we should repair Ashsaber ASAP along with Angelg and R-Blade...And what about Guarlion? Don't tell me that OG Arado stole it?
-
-And finally concerate on Red genspenst since it's only one that can be repaired properly relatively easily and quickly compared to rest.
-
-
-Just out of curiosity, does the EFA know that Seolla is alive and captured?
-Couch Fri 05 Mar 2010 23:28:51 No.4647298 Report
->>4647254
-Fetch Sophia if possible - she's the Magus core, so she should be able to program it. Throw in some of the other scrap and charge it up with Raioh, Latgelmir get?
-Anonymous Fri 05 Mar 2010 23:29:51 No.4647300 Report
-Quoted By: >>4647308 >>4647318
->>4647270
-Falken+Raubtier=(Stealth)Rapecage
-
-Falken+Raubtier+Vysaga=(Stealth)NinjaRapecage.
-
-Falken+Raubtier+RedGespest=(Stealth)Long-range Gespenst
-
-Falken+Raubtier+Hucky=(Stealth)BlackholePowered Rapecage
-
-Falken+Raubtier+Vysaga+RedGespest+Hucky=(Stealth)ohgodwhatthefuck
-
-SCIENCE!
-Stealthyboy !fchRKomfls Fri 05 Mar 2010 23:29:51 No.4647301 Report
->>4647291
-I believe it was Lenonjayce.
-Gilliam Yaeger Fri 05 Mar 2010 23:30:51 No.4647302 Report
-Quoted By: >>4647318
->>4647291
-It was Lenonjayce ;_:
-
-But yeah, chuck the Vysaga in with it too. See if we can't make it even crazier.
-Gilliam Yaeger Fri 05 Mar 2010 23:31:51 No.4647308 Report
->>4647300
-Or we can do this.
-
-SCIENCE!
-View SameGoogleiqdbSauceNAO 641px-mad_scientist_transparent_ (...).png, 102KiB, 641x600
-Anonymous Fri 05 Mar 2010 23:31:51 No.4647310 Report
-Fuck yeah science time
-Sciencegar Sciencebolt Fri 05 Mar 2010 23:32:51 No.4647313 Report
-Quoted By: >>4647316 >>4647322
->>4647291
-
-It was Lenonjayce Starlord, Ring Mao's support pilot. He shielded her from the HTB blast, saving her....mostly.
-
->>4647280
-
-The Gust Lander was sunk off the coast of Mexico, in deep water. Getting there conventionally and returning before Yukikos deadline would be impossible. Teleporting, however, might work.
-
-Oh, and I forgot a few things:
-
-Armorlion: Reduced to scrap by the Supreme Sword.
-
-Hyperlion: Hit hard in the main fuselage. Both mechs were twisted together, it'd take an age just to unentangle them. Even the machine cells that were installed are having issues.
-
-Cerberus: It's still just a torso, but its a working torso, with a Terminus Engine...
-NuBlackAnon !!z6ldXGL61Wm Fri 05 Mar 2010 23:34:51 No.4647316 Report
-Quoted By: >>4647331
->>4647313
-can we use the Terminus Engine on RaiOh?
-Anonymous Fri 05 Mar 2010 23:34:51 No.4647318 Report
->>4647302
->>4647300
->>4647281
-4'd. Bonus points if Katina screams "SCIENCE!" when we throw the Vysaga on the pile and "IT'S ALIVE!!" when we power it up with Raioh's lighting. Then lets do what
->>4647280
-said.
-Anonymous Fri 05 Mar 2010 23:35:51 No.4647320 Report
->>4647254
-Throw in Vysaga parts and try to get it inclined towards assimilating that too, then JUICE IT UP
-Nameless Grunt Fri 05 Mar 2010 23:35:51 No.4647322 Report
->>4647313
-Repair Cerberus with Vysaga parts. For SCIENCE!
-Sciencegar Sciencebolt Fri 05 Mar 2010 23:36:51 No.4647327 Report
-Quoted By: >>4647339
->>4647296
-
-Russel was flying the Guarlion when he dissappeared during the battle. You only ever found half of it: The rear fuselage, tesla drive, and legs. The absence of wreckage for the rest indicates it was taken by the EFA, along with Russel.
-
-Latooni specifically detonated the StealthRaubtier to destroy the Falken, and make it seem like Seolla was dead. Since they made no attempt to recover her, it seems she was successful.
-Gilliam Yaeger Fri 05 Mar 2010 23:38:51 No.4647331 Report
-Quoted By: >>4647340 >>4647469
->>4647316
-Seconding this.
-
-Then we use it to charge up the Machine Cells for FAINAL ATTACKU RAIDO
-Anonymous Fri 05 Mar 2010 23:42:51 No.4647339 Report
->>4647327
-
-Maybe we should then ask Shuu, if we can retrieve it. We need all the firepower we can get and it isn't bad mecha...Plus Tank Super robots are too cool to not to keep around, especially one designed to assault fortresses and there is a tingle in my bones that we soon find ourselves to storm fotresses.
-Anonymous Fri 05 Mar 2010 23:42:51 No.4647340 Report
->>4647331
-Hells yeah!
-Anonymous Fri 05 Mar 2010 23:52:51 No.4647372 Report
-Quoted By: >>4647379 >>4647383
-Random Crazy SCIENCE Idea
-Combined The man who made the Gespenst S famous with the fully functional Gespenst S. It may make Lenonjayce the most dangerous man in existence.
-Gilliam Yaeger Fri 05 Mar 2010 23:53:51 No.4647379 Report
-Quoted By: >>4647384
->>4647372
-This, if he survives without becoming a HORRIBLE MONSTER.
-Anonymous Fri 05 Mar 2010 23:54:51 No.4647383 Report
->>4647372
-
-Assuming the revival is even attempted and Jayce doesn't return as a monstrosity.
-Anonymous Fri 05 Mar 2010 23:54:51 No.4647384 Report
-Quoted By: >>4647387 >>4647390 >>4647391
->>4647379
-If machine cells and cyrborg parts are giving him roughly a 13% of survival then I think this may be the final option.
-Gilliam Yaeger Fri 05 Mar 2010 23:55:51 No.4647387 Report
-Quoted By: >>4647393 >>4647396
->>4647384
-If he doesn't survive WE IMPLANT HIS MIND DIRECTLY INTO THE GESPENST S
-Goddamn Sandwitches Fri 05 Mar 2010 23:56:51 No.4647390 Report
->>4647384
-As long as doing so won't end up with Ring killing us, this sounds like a good idea.
-Anonymous Fri 05 Mar 2010 23:56:51 No.4647391 Report
-Quoted By: >>4647396
->>4647384
-We capture his personality in a computer or something.
-Haken Browning !zHe7DH816A Fri 05 Mar 2010 23:56:51 No.4647393 Report
-Quoted By: >>4647395
->>4647387
-Flashing back to Front Mission 1st SO HARD right now.
-
-Karen ;_;
-Anonymous Fri 05 Mar 2010 23:57:51 No.4647395 Report
->>4647393
-;_;
-
-Front Mission 1 was a good game
-Anonymous Fri 05 Mar 2010 23:57:51 No.4647396 Report
->>4647387
->>4647391
-
-FUND IT!
-Anonymous Sat 06 Mar 2010 00:14:51 No.4647469 Report
->>4647331
-Thirded
-View SameGoogleiqdbSauceNAO rapiecage.png, 165KiB, 283x400
-Sciencegar Sciencebolt Sat 06 Mar 2010 00:18:51 No.4647490 Report
-Quoted By: >>4647499 >>4647511 >>4647519 >>4647523 >>4647524 >>4647537
 "You sure about this?" Rio says as the hover-rig dumps the corpse of the Vysaga in front of the shambling mass.
 
 "Well it ain't like we have any other use for it."
 
 "I dunno, I thought maybe the parts could be used on the Soulgain, somehow."
 
-The Soulgain and the Vysaga don't have the same compatability that the original Earthgain and Vairose had. They were optimised for different battle roles and thus have quite different components. Now, we just need an energy source.
+*The Soulgain and the Vysaga don't have the same compatability that the original Earthgain and Vairose had. They were optimised for different battle roles and thus have quite different components. Now, we just need an energy source.*
 
-You return to base and fetch the Raioh. Dumi hovers over the mass as it slowly soaks into the Vysaga parts. Programming links established...extrapolating potential configurations....Oh!
+You return to base and fetch the Raioh. Dumi hovers over the mass as it slowly soaks into the Vysaga parts. *Programming links established... extrapolating potential configurations... Oh!*
 
 "What?" You ask as you charge up the Plasma Converter.
 
-A lull in the storm...I think I'll use my Crosstiem Correspondence Driver like I did with the Bergelmir...Yes, the Irregulars universe has something we can use.
+*A lull in the storm...I  think I'll use my Crosstiem Correspondence Driver like I did with the Bergelmir... Yes, the Irregulars universe has something we can use.*
 
 Plasma flies from the Raioh to Dumi, who converts it into waves warmth that soak into the machine cells. They begin to frantically divide and multiply, turning black as they perform their final duty.
 
 Slowly, but surely, as the False Cells sacrifice themselves, the final form of the new mech takes shape.
 
-Well...what do you think?
+*Well... what do you think?*
 
-You grin. "It looks...rapey."
-Haken Browning !zHe7DH816A Sat 06 Mar 2010 00:19:51 No.4647499 Report
->>4647490
-Ouka Genei is now playing in your head. Manually.
-Gilliam Yaeger Sat 06 Mar 2010 00:21:51 No.4647511 Report
->>4647490
-Its alive! ITS ALIIIIIIIVE!
-Nameless Grunt Sat 06 Mar 2010 00:22:51 No.4647519 Report
->>4647490
-Once again, SCIENCE!(tm) proves its worth to noble causes.
-Goddamn Sandwitches Sat 06 Mar 2010 00:22:51 No.4647523 Report
->>4647490
-NICE!
-Anonymous Sat 06 Mar 2010 00:23:51 No.4647524 Report
->>4647490
-BY YOUR MECHA COMBINED, I AM THE RAPIECAGE!
+You grin. "It looks... rapey."
 
-I think Lat will like her new ride.
-Zeta Zaku Sat 06 Mar 2010 00:24:51 No.4647533 Report
-Quoted By: >>4647545
-G-Generation mechanics as applied to SRW. I like. Too bad its evolutions are all backsteps to Wilds.
-BSRaven !!pZhu/eJf6iW Sat 06 Mar 2010 00:25:51 No.4647537 Report
->>4647490
->"It looks... rapey."
+---
 
-Sucks we can't throw the Raioh in there for MAXIMUM KATINA-ONLY GUARANTEE.
-Anonymous Sat 06 Mar 2010 00:26:51 No.4647542 Report
-Quoted By: >>4647549 >>4647550 >>4647556 >>4647568
-Latooni now has a rape machine. Now to install the Terminus engine into the Raioh. FOR SCIENCE!
-Haken Browning !zHe7DH816A Sat 06 Mar 2010 00:27:51 No.4647545 Report
->>4647533
-You could always strip away that chain of Clearance Parts and High-Clearance Parts until you hit a Raubtier, then install a Biosensor to tech onto the R-Series...
-BSRaven !!pZhu/eJf6iW Sat 06 Mar 2010 00:28:51 No.4647549 Report
->>4647542
-This is a good idea too.
-
-Disregard my earlier comment.
-Nameless Grunt Sat 06 Mar 2010 00:28:51 No.4647550 Report
->>4647542
-Seconding this.
-Anonymous Sat 06 Mar 2010 00:29:51 No.4647556 Report
-Quoted By: >>4647567
->>4647542
-Oh god this too, since we started all this SCIENCE! fever we might as well take it all the way.
-Anonymous Sat 06 Mar 2010 00:30:51 No.4647559 Report
-Does Latooni approve of her new death dealing machine?
-BSRaven !!pZhu/eJf6iW Sat 06 Mar 2010 00:31:51 No.4647564 Report
-It's just occurred to me...
-
-Thanks to our crazy idea... Katina Tarask: PSYCHODERE SCIENTIST
-Anonymous Sat 06 Mar 2010 00:31:51 No.4647567 Report
->>4647556
-We need that DaiRaiOh ASAP, anyways! FOR SCIENCE!
-Gilliam Yaeger Sat 06 Mar 2010 00:32:51 No.4647568 Report
-Quoted By: >>4647572 >>4647574 >>4647581 >>4647594
->>4647542
-As to where we put it, there can only be one answer.
-
-THE BELT.
-Anonymous Sat 06 Mar 2010 00:33:51 No.4647572 Report
->>4647568
-HENSHIN!
-Anonymous Sat 06 Mar 2010 00:33:51 No.4647574 Report
->>4647568
-Yeeeeeeeeeeeeeeeeeeeessssss.
-Yeeeeeeeeeeeeeeeeeeeeeeeeessss.
-View SameGoogleiqdbSauceNAO 14.jpg, 78KiB, 750x687
-SpoilerClick to view
-Nameless Grunt Sat 06 Mar 2010 00:35:51 No.4647581 Report
->>4647568
-This is my face right now.
-Gilliam Yaeger Sat 06 Mar 2010 00:35:51 No.4647582 Report
->CAST OFF! CHANGE, PSYCHOPATH!
-Anonymous Sat 06 Mar 2010 00:35:51 No.4647584 Report
-KAMEN RIDER DESU!
-Sciencegar Sciencebolt Sat 06 Mar 2010 00:36:51 No.4647586 Report
-Quoted By: >>4647589 >>4647595 >>4647608 >>4647610 >>4647630 >>4647704
 ELSEWHERE
 
 The thing stand on the Neviims hangar deck, towering over the Zachariahs and Ezekiels around it. It vaguely resembles their aesthetic, except for the horns, and claws, and the fanged mouth with occasionally snarls, revealing the whole thing to be empty...
@@ -715,158 +343,14 @@ Laodicea nods, looking at Baran Doban out of the corner of his eye. If the old g
 
 "A SIMPLE, BUT DIFFICULT REQUEST. STABILITY ON 'OUR' WORLD IS THREATENED, BY HUMAN FACTIONS THAT SEEK TO DISTRUPT PROPER ORDER. THE EARTH IS CURRENTLY SAFE FOR NO BEING, BALMARIANS EVEN LESS SO."
 
-"That was our understanding as well. So the question becomes...can we be of mutual benefit?"
+"That was our understanding as well. So the question becomes... can we be of mutual benefit?"
 
 "THE FIRST ARE NO WARMONGERS, LAODICEA OF BALMAR. WE PREFER SIMPLE INTEGRATION AND BENIGN PACIFICATION OF UNRULY ELEMENTS. IF YOU ARE WILLING TO HELP US CLEANSE THIS WORLD OF SUCH ELEMENTS, YOUR SIMILARITY TO HUMANITY WILL ALLOW FOR INTEGRATION OF YOUR POPULACE. WE CAN EVEN ENSURE YOUR AUTONOMY."
 
 Laodicea grins. "Then, First Emotion, it seems we may have the beginnings of a deal."
-Anonymous Sat 06 Mar 2010 00:37:51 No.4647589 Report
->>4647586
-FFFFFF
-Goddamn Sandwitches Sat 06 Mar 2010 00:37:51 No.4647594 Report
->>4647568
-OH DEAR GOD THIS!
-Gilliam Yaeger Sat 06 Mar 2010 00:37:51 No.4647595 Report
-Quoted By: >>4647607 >>4647619
->>4647586
-...You know, I think Euzeth might be right about this guy.
 
-He is a moron.
-Anonymous Sat 06 Mar 2010 00:40:51 No.4647607 Report
->>4647595
-Yes. So so VERY much.
+---
 
-Also, we are not giving Villeta or the Ezekiels back.
-BSRaven !!pZhu/eJf6iW Sat 06 Mar 2010 00:40:51 No.4647608 Report
-Quoted By: >>4647620
->>4647586
-Aw hell...
-
-Why am I not surprised the First combo'd with Balmarians...
-Goddamn Sandwitches Sat 06 Mar 2010 00:40:51 No.4647610 Report
->>4647586
-Well... SHIT.
-Anonymous Sat 06 Mar 2010 00:42:51 No.4647619 Report
->>4647595
-Here's hoping Euzeth isn't a complete ass in this dimension.
-Anonymous Sat 06 Mar 2010 00:42:51 No.4647620 Report
->>4647608
-Well, Sciengar /had/ been complaining about not having enough bad guys for us to fight.
-Anonymous Sat 06 Mar 2010 00:42:51 No.4647621 Report
-Quoted By: >>4647627 >>4647664 >>4647704
-Step 1: Upgrade to DaiRaiOh.
-Step 2: "befriend" Alfimi.
-Step 3: Grab Bet Barshem, other people who might be of use
-Step 4: Have Dumi get us out of here, we aren't up to fighting the combined force of ZE BALMARY EMPIRE and The Einst.
-BSRaven !!pZhu/eJf6iW Sat 06 Mar 2010 00:44:51 No.4647627 Report
-Quoted By: >>4647704
->>4647621
-Follow this 4-step plan.
-
-Just remember to bring Lat and her RAPIECAGE.
-Stealthyboy !fchRKomfls Sat 06 Mar 2010 00:44:51 No.4647630 Report
-Quoted By: >>4647659 >>4647704
->>4647586
-Well. Bugger.
-Looks like we'll have to convince Laodicea by force unfortunately.
-Anonymous Sat 06 Mar 2010 00:52:51 No.4647659 Report
->>4647630
-Not much chance of that. The RaiOh (And the Hyperlion if we can repair it) is(are) the only mechs that are @3 grade that we have. And they have Baran Doban and assumedly some of the higher end Balmarian mechs. And that's assuming that there aren't any named Balmarians on there that we aren't aware of.
-Anonymous Sat 06 Mar 2010 00:52:51 No.4647664 Report
-Quoted By: >>4647681
->>4647621
-
-I think Alfimi works better as villain rival hybrid with Katina always trying to convert her amidst awesome duals of machine and words...And Failing at that, so we can continue ever wonderful "exchange" between Alf and Kat.
-Anonymous Sat 06 Mar 2010 00:52:51 No.4647666 Report
-Bump, because this is awesome.
-Anonymous Sat 06 Mar 2010 00:55:51 No.4647681 Report
-Quoted By: >>4647686 >>4647703 >>4647716
->>4647664
-Bah. That's silly
-
-At any rate, it is becoming increasingly likely that staying here is suicide, upgraded mechs and SRX or no. The Einst are a significant thread already, the Balmary is even more of one, and it looks like the Guests are going to be showing up.
-Anonymous Sat 06 Mar 2010 00:57:51 No.4647686 Report
->>4647681
->thread
-Whoops, I mean threat.
-Anonymous Sat 06 Mar 2010 01:01:51 No.4647703 Report
-Quoted By: >>4647718
->>4647681
-
-You have a point and while we plan where we go next, we might as well grap Gust lander via teleportion...
-
-But I am bit worried that Alfmimi will become background character, if we try to recruit her.
-Anonymous Sat 06 Mar 2010 01:01:51 No.4647704 Report
-Quoted By: >>4647713 >>4647719 >>4647722 >>4647723
->>4647586
-No matter how many xenos group together, they will still die by the hand of the Empress of Mankind Yukiko, the strongest psyker of all time.
-
->>4647621
->>4647627
->>4647630
-Your lack of faith in the Empress is disturbing. You are lucky Lord Commissar Yuuki is not here.
-Anonymous Sat 06 Mar 2010 01:03:51 No.4647713 Report
->>4647704
-...
-We are not doing this, pal.
-Gilliam Yaeger Sat 06 Mar 2010 01:04:51 No.4647716 Report
-Quoted By: >>4647733
->>4647681
-Our only mechs with actaul stopping power that can still fight are the RaiOh, Rapiecage, Gunleon, Angelg and the Gespenst S. The Granzon may turn on us, so it doesn't quite count.
-
-We need allies. Despereately. With these forces the most we can do is give our foes a nasty bruise before dying horribly.
-Anonymous Sat 06 Mar 2010 01:04:51 No.4647718 Report
->>4647703
-Maybe, but then again, if we recruit her before dimension hopping, it will cement her as a main character.
-Anonymous Sat 06 Mar 2010 01:04:51 No.4647719 Report
->>4647704
-Beware the coming of the Ryusei Heresy!
-BSRaven !!pZhu/eJf6iW Sat 06 Mar 2010 01:04:51 No.4647722 Report
->>4647704
->Your lack of faith in the empress is disturbing
-
-It's not that I don't have faith in her...
-
-It's just that I WANNA FUCKING LIVE.
-Gilliam Yaeger Sat 06 Mar 2010 01:05:51 No.4647723 Report
-Quoted By: >>4647730 >>4647747
->>4647704
-YOU DARE CLAIM A MORTAL IS ABOVE THE ALMIGHTY GOD-EMPEROR OF MANKIND?
-
-THATS HERESY! *BLAM!*
-Anonymous Sat 06 Mar 2010 01:07:51 No.4647730 Report
-Quoted By: >>4647741 >>4647747
->>4647723
-The sad thing is that I wouldn't be surprised if Yukiko WAS that delusional...
-Anonymous Sat 06 Mar 2010 01:08:51 No.4647733 Report
->>4647716
-
-We also need more mechas, even grunts like Genspenst and even more semi powerful ones like Gust Lander.
-Gilliam Yaeger Sat 06 Mar 2010 01:10:51 No.4647741 Report
-Quoted By: >>4647742
->>4647730
-Or a servant of the Ruinous Powers themselves!
-Anonymous Sat 06 Mar 2010 01:11:51 No.4647742 Report
->>4647741
-Same difference, really
-Anonymous Sat 06 Mar 2010 01:13:51 No.4647747 Report
-Quoted By: >>4647750 >>4647751 >>4647753
->>4647730
->>4647723
-Yukiko used telekinesis on two 20 foot mechs while also mind reading/controlling the 4 pilots at the same time.
-
-She is at least beta-class psyker level.
-Anonymous Sat 06 Mar 2010 01:14:51 No.4647750 Report
->>4647747
-CALL IN THE GRAY KNIGHTS!
-Gilliam Yaeger Sat 06 Mar 2010 01:14:51 No.4647751 Report
->>4647747
-Any more and she'd probably be able to take out the First and Only on with just her mind, though.
-Zeta Zaku Sat 06 Mar 2010 01:15:51 No.4647753 Report
->>4647747
-She also did this from across the planet. Arguably, this required some sort of amplifier or interface, but again, she probably designed it herself.
-Sciencegar Sciencebolt Sat 06 Mar 2010 01:16:51 No.4647758 Report
-Quoted By: >>4647767 >>4647772 >>4647780 >>4647788 >>4647796 >>4647797 >>4647872
 ELSEWHERE, BUT NOT AS ELSEWHERE AS YOU THINK
 
 "Well done, Skywalker!" Ryoma clips Amuro's ear. "Almost flew us straight into Pluto. Remind me why I let you pilot this thing again?"
@@ -881,17 +365,16 @@ Amuro rubs his ear. "Hey, lay off, Ryo! You're lucky I got this hunk of crap thr
 
 "Already?" Ryoma scratches his head, "But we just translated in, how could anyone in a Type-4 universe find us this fast??"
 
-Kojiko grimaces. "Maybe its not a Type-4 anymore...Maybe thats whats causing the storms...Patching it through!"
+Kojiko grimaces. "Maybe its not a Type-4 anymore... Maybe thats whats causing the storms... Patching it through!"
 
-The four-eyed mask regards the DiNale's bridge and the three young people. Greetings, travellers, and welcome to our universe! I apologise for the intrusion, but I happened to be in the area while testing one of my Crossgate Transciever devices, and I noticed you translating out of the aether. I couldn't pass up an oppurtunity to meet genuine Timedivers.
-Sciencegar Sciencebolt Sat 06 Mar 2010 01:17:51 No.4647760 Report
-Quoted By: >>4647767 >>4647769 >>4647771 >>4647772 >>4647780 >>4647788 >>4647796 >>4647797 >>4647872
+The four-eyed mask regards the DiNale's bridge and the three young people. *Greetings, travellers, and welcome to our universe! I apologise for the intrusion, but I happened to be in the area while testing one of my Crossgate Transciever devices, and I noticed you translating out of the aether. I couldn't pass up an oppurtunity to meet genuine Timedivers.*
+
 Amuro looks up at the viewscreen. "Who are you? What do you want with us?"
 
-My name is Euzeth Gozzo, and I'm a man with many problems. You see, my species recently met with misfortune, and an incompetent relative of mine has been placed in charge of the survivors. He intends to ally himself with a race of alien conquerors, who are invading the planet known as Earth. Unwittingly, he is dooming our species to servitude under the yoke of these monstrosities, and I cannot in good conscious let him do so. But, to end his foolish way, I'll need allies, go-betweens between the people of Earth and myself, and world-wise individuals like yourselves might be just who I require.
+*My name is Euzeth Gozzo, and I'm a man with many problems. You see, my species recently met with misfortune, and an incompetent relative of mine has been placed in charge of the survivors. He intends to ally himself with a race of alien conquerors, who are invading the planet known as Earth. Unwittingly, he is dooming our species to servitude under the yoke of these monstrosities, and I cannot in good conscious let him do so. But, to end his foolish way, I'll need allies, go-betweens between the people of Earth and myself, and world-wise individuals like yourselves might be just who I require.*
 
 Ryo raises an eyebrow. "So you're offering us a job, then? Whats the payment?"
 
-My dear fellow, once my people are saved, you may have the pick of this universes greatest artefacts. Whatever you can fit into your cargo holds, is yours for the taking.
+*My dear fellow, once my people are saved, you may have the pick of this universes greatest artefacts. Whatever you can fit into your cargo holds, is yours for the taking.*
 
 Ryoma grins. "Now that's an offer we Treasure Snipers can appreciate..."
