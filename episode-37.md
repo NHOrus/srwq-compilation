@@ -98,124 +98,34 @@ You rub your chin completatively. "So you think Vindel'll just use them as they 
 
 "I don't know... I've seen a lot of stuff in the past while, Dumi. I've seen a lot of people suffer. I've caused suffering, and I've suffered myself. And I'm not sure if I like the fallout of war as much as I thought I would."
 
-A natural human response. An ideal which seems to benefit the greater good in theory conflicted with inbuilt morality in practise. Empathy and ambition, two opposing forces that shape the human condition...
+*A natural human response. An ideal which seems to benefit the greater good in theory conflicted with inbuilt morality in practise. Empathy and ambition, two opposing forces that shape the human condition...*
 
 "Not to mention this war seems likely to destroy humanity entirely."
 
-A more practical concern, perhaps. There are indeed several possibilities for species-wide destruction in play here. We could work to reduce them, if we're going to stay here...
+*A more practical concern, perhaps. There are indeed several possibilities for species-wide destruction in play here. We could work to reduce them, if we're going to stay here...*
 
 "Not this again..."
 
-Merely reminding you of the options. Hey, isn't that Lemon Browning?
+*Merely reminding you of the options. Hey, isn't that Lemon Browning?*
 
 The Shadow Mirrors second-in-command is indeed coming towards the crater, and she doesn't look happy, at all.
 
-WHAT WILL KATINA DO?
-Anonymous Fri 05 Mar 2010 19:03:51 No.4646083 Report
->>4646078
-Talk to Lemon. I assume she has a pretty good understanding of programming, so she might be able to help with the crystals. Also, see if you can use her to contact Alfimi.
-Couch Fri 05 Mar 2010 19:04:51 No.4646088 Report
-Talk to Lemon.
-Anonymous Fri 05 Mar 2010 19:12:51 No.4646125 Report
->>4646078
 
-Talk to Lemon and if we have time we should visit Rio, Ryu and Jonathan...
-Anonymous Fri 05 Mar 2010 19:16:51 No.4646136 Report
-Quoted By: >>4646196 >>4646915
-Talk to lemon and then tell Sophia in private that we have some stuff that might make her dream of creating true cells a reality.
-
-Then explain that we might not have enough time nor a lab for her to use know but we would want her to know that we are gonna help her in any way we can.
-Couch Fri 05 Mar 2010 19:30:51 No.4646196 Report
-Quoted By: >>4646233 >>4646272
->>4646136
-About this...while I didn't want to go dimension-hopping for dimension-hopping's sake, I'm now considering whether it might be best to take a trip, not to go scrounging for tech, but rather to get ourselves and Sophia away from any faction for a little bit so we can have the time we need. Setting up shop somewhere in the Frontier would allow us a relatively safe location to do the research we need time to do. The Schlefan Celeste or Neverland might not be bad locations. Take Lat and Arado, and Seolla if she'll let us. Have some adventures of the School kids in the Endless Frontier while we get our real Cells built and whatever mechs Sophia can make with them.
-Anonymous Fri 05 Mar 2010 19:34:51 No.4646233 Report
-Quoted By: >>4646346 >>4646380
->>4646196
-I was going to suggest that we might be able to form an impromptu alliance with Alfimi if Dumi were to tell her about the darkness she's sensing, which would be as bad for the Einst as it would be for us.
-Anonymous Fri 05 Mar 2010 19:39:51 No.4646272 Report
-Quoted By: >>4646346 >>4646915
->>4646196
-Eh, I don't really know, but if we might go the Dimension hopping route then we must talk to Sophia either way about it.
-Couch Fri 05 Mar 2010 19:51:51 No.4646346 Report
-Quoted By: >>4646915
->>4646233
-Hm...an intriguing idea, but it'll make things a lot more complicated and may not be possible. If the opportunity presents itself, though, we should seriously consider taking it.
-
->>4646272
-Oh, absolutely. But I don't think it'll take -too- much convincing if we offer her a way to finish her research so that she doesn't have to rely on this cursed version of her technology anymore, and away from anyone who would be trying to take it for nefarious purposes (i.e. just about everyone - be honest that we want her help too, but we won't try to take it from her if she says no).
-Sciencegar Sciencebolt Fri 05 Mar 2010 19:54:51 No.4646369 Report
-Quoted By: >>4646383 >>4646418 >>4646422
-"Heeey, Ms Browning...You're a scientist, right?"
+"Heeey, Ms Browning... You're a scientist, right?"
 
 Lemon looks at you as if you had three heads, one made of dogshit and one made of vomit. It's the first time you've seen her genuinely angry, her face normally a facade of total calm or bemusement.
 
-"Er...is this a bad time?"
+"Er... is this a bad time?"
 
 "Enough stalling on your part, Tarask. I want to know exactly what you people have been up to while we were gone. How did you manage to activate W-BC-01? What is the DC hiding? What is this winged balloon thing thats hovering over the base? And when are you going to tell us about these aliens you've been hinting about all this time?!!"
 
 Yup, definitely mad. But not at you specifically, you think.
 
-RESPONSE FROM KATINA?
-Anonymous Fri 05 Mar 2010 19:55:51 No.4646380 Report
-Quoted By: >>4646395
->>4646233
-Good idea but for all we know it might be that the Einst are the ones that trigger that or ,if they didn't, they might welcome it. Wasn't destruction and rebirth their motto?
-Haken Browning !zHe7DH816A Fri 05 Mar 2010 19:55:51 No.4646383 Report
->>4646369
-"W-BC-oh-wha? His name's Arado, you *untranslatable*"
-Anonymous Fri 05 Mar 2010 19:57:51 No.4646395 Report
->>4646380
-This would kill them as well, and these Einst seem to have a different objective.
-NuBlackAnon !!z6ldXGL61Wm Fri 05 Mar 2010 20:00:51 No.4646418 Report
->>4646369
-WBX? Well Dumi is our partner, that we use to become masked Desu W
-
-Ok serious answer, tell her the minimum, and try to be dere dere about that.
-Anonymous Fri 05 Mar 2010 20:01:51 No.4646422 Report
-Quoted By: >>4646440 >>4646461 >>4646661 >>4646692
->>4646369
-"Well, if you wanted, you could have always tell us to report to you Ma'am!"
-
-To sum up tell her that that thing is a Dimensional Entity called Duminass, the alliens that Katina met are called Balmarians and that it seems like that S-E-X Team got most of their technology from them. As far as what the DC is hiding she must speak to them unfortunately.
-Anonymous Fri 05 Mar 2010 20:04:51 No.4646440 Report
->>4646422
-Sounds reasonable
-Anonymous Fri 05 Mar 2010 20:05:51 No.4646445 Report
-Quoted By: >>4646463
-We need to ask Lemon where exactly they got hold of W-BC-01, if he was sent off to the Shocker stuff how did he suddenly end up with the SM.
-Anonymous Fri 05 Mar 2010 20:08:51 No.4646461 Report
-Quoted By: >>4646524 >>4646692
->>4646422
-Hmm. I haven't played 0G 2 a lot, but isn't lemon kind a second in command in SM? We know that we can't trust Vindel, but how trustworthy is Lemon?
-Surely as Sciencist, she should understand the danger in using incomplete technology, especially as dangourous as machine cells.
-Haken Browning !zHe7DH816A Fri 05 Mar 2010 20:08:51 No.4646463 Report
-Quoted By: >>4646533
->>4646445
-...Also a point of concern.
-
-But make sure we get it through Lemon's head that we're calling him Arado.
-Haken Browning !zHe7DH816A Fri 05 Mar 2010 20:18:51 No.4646524 Report
-Quoted By: >>4646699
->>4646461
-Lemon's position in the SM chain of command doesn't seem to be expounded upon much in OG2, but suffice to say that if she isn't Vindel's direct second-in-command, then she's at least some sort of special adjutant overseeing the W-Series being implemented in Vindel's plans.
-
-And of course, ANY doctorate in an SRW world qualifies you for EVERYTHING.
-Anonymous Fri 05 Mar 2010 20:19:51 No.4646533 Report
->>4646463
-Of course. Also, I really to see if Lemon can contact Alfimi. It would rather simplify things.
-Anonymous Fri 05 Mar 2010 20:42:51 No.4646656 Report
-Bump
-Anonymous Fri 05 Mar 2010 20:44:51 No.4646661 Report
->>4646422
-Thirded?
-Sciencegar Sciencebolt Fri 05 Mar 2010 20:47:51 No.4646674 Report
-Quoted By: >>4646711
 "His names Arado Balanga, not W-B-X-whatever."
 
 "I can't find myself caring too much. How is he active? His nervous system had degraded past the point of adaptation to his cyborg implants, how did you repair it?"
 
-"Yeah, thats what I wanted to talk to you about. We met someone called Sophia Nate, from the DC, who discovered something called Machine Cells. They can fix mechs and people, and power them up, but they're still not stable. She said she needs more time to get them perfected, but Vat Tran forced her to make the flawed versions. I...We need you to ask Vindel to hold off on using them, until we can get them to work properly. Or even not tell him at all until they're safe."
+"Yeah, thats what I wanted to talk to you about. We met someone called Sophia Nate, from the DC, who discovered something called Machine Cells. They can fix mechs and people, and power them up, but they're still not stable. She said she needs more time to get them perfected, but Vat Tran forced her to make the flawed versions. I... We need you to ask Vindel to hold off on using them, until we can get them to work properly. Or even not tell him at all until they're safe."
 
 "Right. Given that all the control failsafes on W-BC-01 have failed, I can see what you mean about instability."
 
@@ -223,35 +133,21 @@ Quoted By: >>4646711
 
 She ignores you. "Is that all of the DCs equipment I should know about?"
 
-"Pretty much...They said their alien might have a dimensional scanner to look for disturbances, but that's kinda moo-"
+"Pretty much... They said their alien might have a dimensional scanner to look for disturbances, but that's kinda moo-"
 
 "Disturbances like teleporting alien troops, and the Irregulars?"
 
-"Uh...I dunno, I guess, you'd have to ask the alien."
+"Uh... I dunno, I guess, you'd have to ask the alien."
 
 "I shall. What about the balloo-"
 
 "Can't you just call for the little girl in the red mech?"
 
 Lemon has already drawn back her fist before she catches herself. It takes a visible effort for her to unclench it. "We are not discussing that, Tarask!! Now tell me about this damned balloon-thing!!"
-Gilliam Yaeger Fri 05 Mar 2010 20:52:15 No.4646692 Report
->>4646461
-I'm going to second this, or at least the getting-her-to-help-with-machine-cells bit.
 
->>4646422
-And for everything else, I second this.
-View SameGoogleiqdbSauceNAO smug.png, 8KiB, 112x110
-Anonymous Fri 05 Mar 2010 20:53:51 No.4646699 Report
-Quoted By: >>4646734
->>4646524
->And of course, ANY doctorate in an SRW world qualifies you for EVERYTHING
-
-damn straight
-Sciencegar Sciencebolt Fri 05 Mar 2010 20:56:51 No.4646710 Report
-Quoted By: >>4646736
 "The 'balloon', and I think 'mutant turkey' is a better description-"
 
-Hey!!!
+*Hey!!!*
 
 "-is Dumi, and he's an interdimensional traveller, who's following the Irregulars, since they have something he wants."
 
@@ -265,313 +161,77 @@ Hey!!!
 
 "We'll see. What does he know about the First?"
 
-As much as you do, Miss Browning. I'm afraid I'm as in the dark about them as you, although I can help you infer things from the facts at hand.
+*As much as you do, Miss Browning. I'm afraid I'm as in the dark about them as you, although I can help you infer things from the facts at hand.*
 
 "Hmmph, charmer. And Project SRX? What more do you know of it?"
 
-Now theres an interesting story...
-Gilliam Yaeger Fri 05 Mar 2010 20:56:51 No.4646711 Report
-Quoted By: >>4646719
->>4646674
-Should we just tell her?
+*Now theres an interesting story...
 
-I dunno. Maybe we can pass the buck to Dumi or something.
-Gilliam Yaeger Fri 05 Mar 2010 20:58:51 No.4646719 Report
-Quoted By: >>4646732
->>4646711
-Goddamnit I keep posting too slowly!
-Haken Browning !zHe7DH816A Fri 05 Mar 2010 21:03:51 No.4646732 Report
->>4646719
-Fix the time-shunt on the Geist, Helios.
-
-It's too damn much work to calculate repeated time over distance in universes jumped, anyway.
-Anonymous Fri 05 Mar 2010 21:04:51 No.4646734 Report
-Quoted By: >>4646740 >>4646744
->>4646699
-What is Shu's actual field? Though I wouldn't be surprised if it's in fact a Ph.D in Maginifcent Bastardry.
-Anonymous Fri 05 Mar 2010 21:05:51 No.4646736 Report
->>4646710
-Tell her about the Balmarians now
-Gilliam Yaeger Fri 05 Mar 2010 21:06:51 No.4646740 Report
->>4646734
->What is Shu's actual field?
-Whatever he wants it to be.
-
-Now lets listen to Dumi talk about the SEX project.
-Anonymous Fri 05 Mar 2010 21:07:51 No.4646744 Report
->>4646734
-He has a PHD in Gary Stu.
-Sciencegar Sciencebolt Fri 05 Mar 2010 21:14:51 No.4646778 Report
-Quoted By: >>4646787 >>4646789
-I won't bore you with the details just yet, but I will summarize things. While I was searching your world for the Key I was looking for, I encountered a race called the Balmarians, entering your solar system by subtle methods. At the time I didn't know they were refugees, so I acted rashly and provoked them to violence. I was forced to attack the core of their ship, where I found a human who was being used as the core of their ultimate weapon, Judecca.
+I won't bore you with the details just yet, but I will summarize things. While I was searching your world for the Key I was looking for, I encountered a race called the Balmarians, entering your solar system by subtle methods. At the time I didn't know they were refugees, so I acted rashly and provoked them to violence. I was forced to attack the core of their ship, where I found a human who was being used as the core of their ultimate weapon, Judecca.*
 
 Lemon blinks "A human?"
 
-Yes. It seems the Balmarians had been abducting samples from Earth for some years, investigating the abilities of humans, before disaster struck their homeworld and forced them to seek refuge. One type of human they were particularly interested in where known as Psychodrivers.
+*Yes. It seems the Balmarians had been abducting samples from Earth for some years, investigating the abilities of humans, before disaster struck their homeworld and forced them to seek refuge. One type of human they were particularly interested in where known as Psychodrivers.*
 
 "Psychic humans? Those are only rumored, no-ones done any serious research on them in years!"
 
-Since Dr. Kenzo Kobayashi dissappeared, am I right?
+*Since Dr. Kenzo Kobayashi dissappeared, am I right?*
 
 "Er..yes."
 
-Dr. Kobayashi is in Izu Base right now, building his theories into weapons for Project SRX. The reason Psychodrivers haven't appeared in any public scientific research is because the EFAs School programme has been snatching up all potential Psychodrivers on your world. The entirety of human knowledge on these beings and thier potential is contained in one place, the most protected place on Earth. Even Mrs Kobayashi, the girl I took from Judecca, was stationed there, and snuck out under cover of a lab accident.
+*Dr. Kobayashi is in Izu Base right now, building his theories into weapons for Project SRX. The reason Psychodrivers haven't appeared in any public scientific research is because the EFAs School programme has been snatching up all potential Psychodrivers on your world. The entirety of human knowledge on these beings and thier potential is contained in one place, the most protected place on Earth. Even Mrs Kobayashi, the girl I took from Judecca, was stationed there, and snuck out under cover of a lab accident.*
 
 "My my..."
 
-Which reminds me, I really should figure out what I'm going to do with her. Despinis and Enfield can't keep her on the Eurydice forever.
-Anonymous Fri 05 Mar 2010 21:16:51 No.4646787 Report
->>4646778
-Interesting... most interesting.
-Gilliam Yaeger Fri 05 Mar 2010 21:17:51 No.4646789 Report
-Quoted By: >>4646796 >>4646805
->>4646778
->The reason Psychodrivers haven't appeared in any public scientific research is because the EFAs School programme has been snatching up all potential Psychodrivers on your world.
-Evidently they've missed a few, considering that Bullet and Kusuha are with us.
+*Which reminds me, I really should figure out what I'm going to do with her. Despinis and Enfield can't keep her on the Eurydice forever.*
 
-...Unless Bullet was part of the School.
-Ratsel Feinschmecker !VFYL66iWMA Fri 05 Mar 2010 21:18:51 No.4646796 Report
->>4646789
-
-School Bullet? Hell no.... that just wouldnt be right.
-Sciencegar Sciencebolt Fri 05 Mar 2010 21:19:51 No.4646799 Report
-Quoted By: >>4646820 >>4646915
 Lemon tilts her head quizzically. "So why were you interested in Psychodrivers anyway?"
 
-Er...My main body was disabled by a psychic feedback loop from the Judecca, which placed both it and the Balmarian planetoid into stasis. Being un-initiated into human mental abilities, I sought refuge in TLI and had...my allies investigate the energy patterns involved. Izu Base was the only area where we found it, but we couldn't gain full access. Luckily, an alternate method of freeing myself arose, which also freed the Balmarians.
+*Er... My main body was disabled by a psychic feedback loop from the Judecca, which placed both it and the Balmarian planetoid into stasis. Being un-initiated into human mental abilities, I sought refuge in TLI and had... my allies investigate the energy patterns involved. Izu Base was the only area where we found it, but we couldn't gain full access. Luckily, an alternate method of freeing myself arose, which also freed the Balmarians.*
 
 "A happy ending then."
 
-Hardly, since now we have thousands of aliens to worry about.
+*Hardly, since now we have thousands of aliens to worry about.*
 
 "And you still need your key."
 
-Yes.
+*Yes.*
 
 "Well, how are we to deal with these newly awakened Balmarians?"
 
-They sent a contact to us, one Bet Barshem, to accompany us back. And if I'm not mistaken, she's a meeting with Vindel right now.
+*They sent a contact to us, one Bet Barshem, to accompany us back. And if I'm not mistaken, she's a meeting with Vindel right now.*
 
 Lemon glances back at the Trilobite at this, a hurt expression on her face, but then turns back. "And the alien technology, is it better than that Vat Tran was using?"
 
-Theres more of it, certainly. But in this case, we have to ask. Not to say Aquija's little treasure trove can't be of some use.
+*Theres more of it, certainly. But in this case, we have to ask. Not to say Aquija's little treasure trove can't be of some use.*
 
-SUGGESTIONS FROM KATINA? OR SHALL WE LEAVE LEMON TO HER SCIENCE AND SEE SOMEONE ELSE?
-Sciencegar Sciencebolt Fri 05 Mar 2010 21:21:51 No.4646805 Report
-Quoted By: >>4646816
->>4646789
-
-I've already stated, someone being a PD in OGverse is no indication of thier abilities in SMverse. See Patricia Hackman suddenly being a Psychodriver. Also, I don't think OG Katina is an Anti-Psychodriver.
-Anonymous Fri 05 Mar 2010 21:23:51 No.4646810 Report
-Quoted By: >>4646824 >>4646858
-Hmmm... I don't know what to do here. I suppose we'd best go give Sophia the crystals before we get further sidetracked.
-Zeta Zaku Fri 05 Mar 2010 21:25:51 No.4646816 Report
-Quoted By: >>4646874
->>4646805
-I thought as much. SM!Bullet seems to have exchanged his Psychodriver powers for generally being a badass. Kusuha might still be one, but she hasn't really done enough of anything to be sure yet. Besides, being stuck as a nurse makes them pretty useless to her.
-Gilliam Yaeger Fri 05 Mar 2010 21:26:51 No.4646820 Report
->>4646799
-Well, we're not really contributing much to the conversation, and this is all sorta over our heads, so lets go find something else to do.
-Gilliam Yaeger Fri 05 Mar 2010 21:27:51 No.4646824 Report
-Quoted By: >>4646849 >>4646858
->>4646810
-Like this.
-Anonymous Fri 05 Mar 2010 21:36:51 No.4646849 Report
-Quoted By: >>4646857
->>4646824
-Of course. We seem to have a bad habbit of planning on doing something and then getting horribly sidetracked for no good reason.
-Gilliam Yaeger Fri 05 Mar 2010 21:39:51 No.4646857 Report
->>4646849
-I like to think of that as a personality trait.
-Goddamn Sandwitches Fri 05 Mar 2010 21:39:51 No.4646858 Report
->>4646810
->>4646824
-Hear, hear.
-Anonymous Fri 05 Mar 2010 21:43:51 No.4646874 Report
-Quoted By: >>4646877 >>4646931
->>4646816
-
-That got me thinking does SM Katina know that OG Kusuha and Bullet are psycko drivers? Katina might be smart enought to figure that there is good possible that SM Kusuha or Bullet could be psychodrivers...
-
-OR just go See Rio, Ruy and Jonathan...And yes I am the guy who proposed that two times already.
-Anonymous Fri 05 Mar 2010 21:44:51 No.4646877 Report
-Quoted By: >>4646896
->>4646874
-Sophia first. Those three aren't going anywhere, and we have no particular reason to see them >_>
-Anonymous Fri 05 Mar 2010 21:45:51 No.4646881 Report
-Quoted By: >>4646898
-Oh boy, /m/ is so gay for Katina.
-
-Yes, I'm implying Katina has a penis or most of /m/ are girls.
-Anonymous Fri 05 Mar 2010 21:49:51 No.4646896 Report
-Quoted By: >>4646911
->>4646877
-
-B-b-but they are hurt...
-Lord Guilford !UuMJgvNa0Y Fri 05 Mar 2010 21:49:51 No.4646898 Report
-Quoted By: >>4646902
->>4646881
-Futa Katina?
-
-I'm okay with this.
-Gilliam Yaeger Fri 05 Mar 2010 21:50:51 No.4646902 Report
->>4646898
-Its one more way to rape everybody!
-Anonymous Fri 05 Mar 2010 21:52:51 No.4646911 Report
->>4646896
-It's okay, we'll have time for them when we don't have more important things on our schedule. Most of our mech upgrades are dependent on getting the machine cells to full power
-Anonymous Fri 05 Mar 2010 21:53:51 No.4646915 Report
->>4646799
-Talk to Sophia like
->>4646136
->>4646272
->>4646346
-said and tell her about the crystals and the suggestion of Dimensional Travel that Dumi proposed.
-Sciencegar Sciencebolt Fri 05 Mar 2010 21:55:51 No.4646927 Report
-Quoted By: >>4646971
 "Um, Dumi, about the crystals?"
 
-Oh yes. Ms. Browning, I did claim some samples of the Balmarians most advanced technology, and I beleive you and Dr. Nate may wish to look at them. They may hold the key to creating the perfected Machine Cells...or even more.
+*Oh yes. Ms. Browning, I did claim some samples of the Balmarians most advanced technology, and I beleive you and Dr. Nate may wish to look at them. They may hold the key to creating the perfected Machine Cells... or even more.*
 
-"Intruiging...I beleive I need to inspect the DC's labs anyway, perhaps Dr. Nate could set up and experiment there?"
+"Intruiging... I beleive I need to inspect the DC's labs anyway, perhaps Dr. Nate could set up and experiment there?"
 
-I'll ask Cynthia, her assistant, to pick up the sample and get things organised. I do hope this is the beginning of a mutually beneficial relationship.
+*I'll ask Cynthia, her assistant, to pick up the sample and get things organised. I do hope this is the beginning of a mutually beneficial relationship.*
 
 "As do I, Dumi."
 
 You watch as the Bergelmir flies to Dumi to retreive the crystal, and Lemon begins to talk to Sophia and Aquija. You feel a slight pang of jealousy at Dumi finding these new people to occupy his time, but then, it was you who insisted on it.
 
 You start walking back towards the Trilobite.
-Sciencegar Sciencebolt Fri 05 Mar 2010 21:56:51 No.4646931 Report
-Quoted By: >>4646939 >>4646956 >>4646969
->>4646874
 
-The main way she could have known is by the feeling of discomfort that she causes in psychically active people. The problem is, Katina makes most people uncomfortable anyway.
-Gilliam Yaeger Fri 05 Mar 2010 21:58:51 No.4646939 Report
-Quoted By: >>4646973
->>4646931
-We need to find a way to enhance that into full-blown OH GOD I CAN SEE FOREVER inducingness
-Zeta Zaku Fri 05 Mar 2010 22:02:51 No.4646956 Report
-Quoted By: >>4646964 >>4646972 >>4646976
->>4646931
-So, Katina could be the SRW equivalent of a blank? If Jurgen's manifests as awful hygiene, then no reason Katina's hostile, abrasive personality could be hers.
-Gilliam Yaeger Fri 05 Mar 2010 22:05:51 No.4646964 Report
->>4646956
-Perhaps one of the reasons shes so crazy is that shes been cooped up in a confined space with a crapton of psychodrivers.
+---
 
-Maybe the discomfort goes both ways, but Katina's used to it.
-Anonymous Fri 05 Mar 2010 22:06:51 No.4646969 Report
-Quoted By: >>4646977
->>4646931
-
-That is true, especially when the target has pair of tits....Speaking of tits, it's strange that Lamia and Rio have managed to avoid sexual harassment mode katina.
-Anonymous Fri 05 Mar 2010 22:06:51 No.4646971 Report
-Quoted By: >>4646979 >>4646986 >>4647035
->>4646927
-Random idea that just popped into my head. Does Katina remember if Arado had a favorite sort of anything? Like food or a present or whatever.
-
-Aquiring and then leaving such a present at his room might be a good way to apoligize for the whole "Everyone is crazy except you" bit.
-Anonymous Fri 05 Mar 2010 22:06:51 No.4646972 Report
->>4646956
-I think it's less an intrinsic characteristic and rather her mental instability. That is, it's because of her mind rejecting whatever the School did to it.
-Anonymous Fri 05 Mar 2010 22:06:51 No.4646973 Report
-Quoted By: >>4646978 >>4646979 >>4646980
->>4646939
-System LIOH+Machine Cells might help with turning our Anti-NT powers into a wide-area psychic rape.
-
-That reminds me, why haven't we used system LIOH yet?
-Anonymous Fri 05 Mar 2010 22:08:51 No.4646976 Report
-Quoted By: >>4646982 >>4646984
->>4646956
-Blank? What's that?
-Stealthyboy !fchRKomfls Fri 05 Mar 2010 22:08:51 No.4646977 Report
-Quoted By: >>4647007
->>4646969
-We've not really had much opportunity with Lamia...
-Haken Browning !zHe7DH816A Fri 05 Mar 2010 22:08:51 No.4646978 Report
->>4646973
-Because drugs are bad, m'kay?
-
-And even worse with half-assed Machine Cells.
-Gilliam Yaeger Fri 05 Mar 2010 22:08:51 No.4646979 Report
->>4646973
-We have, every single battle. Its part of why we're relatively sane now.
-
->>4646971
->Aquiring and then leaving such a present at his room
->"I...I just wanted you, Katina"
->Katina stands outside Arado's room wearing only ribbons
-Anonymous Fri 05 Mar 2010 22:09:51 No.4646980 Report
->>4646973
-Probably because it would be very bad for our health? I'm pretty sure Dumi is the one controlling it. Besides, I don't think pumping Katina with more adrenaline would have a positive effect.
-Stealthyboy !fchRKomfls Fri 05 Mar 2010 22:09:51 No.4646982 Report
->>4646976
-From Warhammer 40k.
-They're basically anti-psychics.
-Gilliam Yaeger Fri 05 Mar 2010 22:09:51 No.4646984 Report
->>4646976
-Go and read Ciaphas Cain, then come back. You'll be a better person for it.
-Anonymous Fri 05 Mar 2010 22:10:51 No.4646986 Report
-Quoted By: >>4646990 >>4647035
->>4646971
-Oh, also go and post a note on the door to Seolla's cell saying something like "Contain 1 (one) white haired big titted captive. Do not touch or harm under penalty of interaction with Katina."
-
-If we're going to reform, might as well do it the best way we know how. Psychodere-ly.
-Gilliam Yaeger Fri 05 Mar 2010 22:11:51 No.4646990 Report
-Quoted By: >>4647006
->>4646986
-Shadow Mirror's worst punishment: "Congratulations, you've won a hot date with Katina!"
-Haken Browning !zHe7DH816A Fri 05 Mar 2010 22:15:51 No.4647006 Report
-Quoted By: >>4647017 >>4647023 >>4647031 >>4647059
->>4646990
-And then repeat insubordination went through the roof.
-
-Also, what are your thoughts on that Poker Night fic where Cain cleaned house?
-Anonymous Fri 05 Mar 2010 22:15:51 No.4647007 Report
-Quoted By: >>4647014
->>4646977
-
-Truth to be told, we didn't even try at least try to even talk with her more than once...Or have subconsciously decided to leave her to Axel hands?
-Stealthyboy !fchRKomfls Fri 05 Mar 2010 22:16:51 No.4647014 Report
-Quoted By: >>4647018
->>4647007
-Well, I think Silly Axel/ Awakening Lamia is hilarious, so I'm all for it.
-Gilliam Yaeger Fri 05 Mar 2010 22:18:51 No.4647017 Report
->>4647006
-I...don't believe I've read it.
-Anonymous Fri 05 Mar 2010 22:19:51 No.4647018 Report
->>4647014
-Indeed.
-
-Also, I believe we need to work out a little reunion between the School children here. Perhaps tell them what Dumi has been telling us about this new threat. We could use their support.
-Anonymous Fri 05 Mar 2010 22:20:51 No.4647023 Report
-Quoted By: >>4647029
->>4647006
-
-W-Wait a minute? Are you seriously suggesting that any half-sane sapient would like to date with Katina?
-Gilliam Yaeger Fri 05 Mar 2010 22:21:51 No.4647029 Report
->>4647023
-Well, there is Latooni to consider...
-Zeta Zaku Fri 05 Mar 2010 22:21:51 No.4647031 Report
->>4647006
-I read that. Was pretty amazing, I thought. They managed to capture Cain's character very well, and the playing styles of the Chaos Gods seemed to fit them perfectly.
-Anonymous Fri 05 Mar 2010 22:21:51 No.4647035 Report
->>4646971
->>4646986
-Oh god yes we do both of these!
-Sciencegar Sciencebolt Fri 05 Mar 2010 22:21:51 No.4647036 Report
-Quoted By: >>4647045 >>4647059 >>4647103
 SLIGHTLY ELSEWHERE
 
-"Latooni...Did you tell Katina to torture Seolla."
+"Latooni... Did you tell Katina to torture Seolla."
 
-The girl doesn't even turn around. "I find it interesting,Balanga, that you've been awake for most of a day, and yet you haven't talked to anymore except the woman who killed you. That sounds like an unhealthy fixation."
+The girl doesn't even turn around. "I find it interesting, Balanga, that you've been awake for most of a day, and yet you haven't talked to anymore except the woman who killed you. That sounds like an unhealthy fixation."
 
 "Answer my question!"
 
 "...I didn't think someone as weak as Seolla has worth my time."
 
-"Wh..What do you mean?"
+"Wh... What do you mean?"
 
 Latooni turns around, adjusting her glasses. "Theres no hidden meaning there, Balanga. Seolla is a bit player in the SRX project, a glorified grunt. My time would be wasted trying to get any information out of her, or to convince her to join the rabble here. So I decided to kill two birds with one stone, and keep that silly woman out of my hair for a while. She has quite the obsession with me, you know."
 
@@ -579,7 +239,7 @@ Arado stands there, mute, his hands quivering.
 
 "Have I angered you, Balanga?"
 
-"How can you...be so damned cold?"
+"How can you... be so damned cold?"
 
 "Because the School trained me that way, Balanga. Just like they trained you to be a spoiler."
 
