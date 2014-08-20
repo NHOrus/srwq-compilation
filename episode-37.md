@@ -1,94 +1,57 @@
 # Episode 37
 
 ##SRWQ Mission 37: Murder and Molestation, just like a real family
-Sciencegar Sciencebolt Fri 05 Mar 2010 14:42:51 No.4645386 ViewReplyOriginalReport
-Previous threads linked here:
-http://teamphantomtiger.blogspot.com/2010/02/srw-quest-sciencegar-sciencebolt-joint.html
-http://teamphantomtiger.blogspot.com/2010/02/srw-quest-thread-archive-mark-ii.html
 
 In our last thread, Katina returned to the blasted remnants of the DC's African base, to find her allies bloodied but unbroken. Vindel Mauser reassumed command of the Shadow Mirrors, and decided to ally them with Yukiko Date, director of Project SRX, claiming that working with them to destroy the First and Only, then betraying them from within, was the clearest path to victory.
 
 After this, Katina investigated the prisoner, Seolla Schweitzer, taken in the battle, only for her interrogation to be stopped by the reborn Arado Balanga, the man whose death got her expelled from the School.
 
 Can Katina get through this personal crisis, while also saving the Shadow Mirrors as a whole?
-Couch Fri 05 Mar 2010 14:46:51 No.4645399 Report
-Okay, so last time, we were considering how to respond to Arado's yelling at us about how we're supposed to be a family. I think the best response for an emotional scene was the suggestion to the effect of breaking down crying "They never treated me like family, Arado! Only you!"
-Anonymous Fri 05 Mar 2010 14:58:51 No.4645418 Report
-Setsuna? is that you?
-Sciencegar Sciencebolt Fri 05 Mar 2010 15:00:51 No.4645423 Report
-Quoted By: >>4645574
+
+---
+
 "A family? Really Arado? You think the School was a family?" You start to laugh through the tears. "Families don't live in underground bunkers, training every day how to kill people! Families don't get their brains rewired every time they screw up! Families don't get their bones broken deliberately so they can grow back stronger!"
 
-"That...That's not what I meant, Katina! I meant us, the students! We were the closest thing we'd ever get to a family! We had to band together, just to survive!"
+"That... That's not what I meant, Katina! I meant us, the students! We were the closest thing we'd ever get to a family! We had to band together, just to survive!"
 
-"Yeah, and we did a fairly crappy job of it! What came of that loving household, huh? Look at us Arado! Seolla can't stand within 3 feet of another person. Latooni's a fucking robot who only shows emotion when she's in mortal danger! I'm...me! You're the only one close to a normal person, and you're a fucking zombie robot!"
+"Yeah, and we did a fairly crappy job of it! What came of that loving household, huh? Look at us Arado! Seolla can't stand within 3 feet of another person. Latooni's a fucking robot who only shows emotion when she's in mortal danger! I'm... me! You're the only one close to a normal person, and you're a fucking zombie robot!"
 
-"You're missing the point!! Dammit, Katina, it's not about what we are, it's..it's what we should be. We should be a family, we should try, at least. We can't just give up, and turn into the psychos they want us to be! We're...not that...Deep down, we're ok..."
+"You're missing the point!! Dammit, Katina, it's not about what we are, it's... it's what we should be. We should be a family, we should try, at least. We can't just give up, and turn into the psychos they want us to be! We're... not that... Deep down, we're ok..."
 
 "It was Latooni. She was the one who told me to 'handle' Seolla. She gave me the key to the cell, and told me to go nuts. Then she walked off like she'd just given me a payslip."
 
-"Ugh..but..."
+"Ugh... but..."
 
-"We are psychos, Arado. After going through the School...Anyone who wasn't a psycho would be dead."
+"We are psychos, Arado. After going through the School... Anyone who wasn't a psycho would be dead."
 
 Arado's face is a tornado of emotions. He glares back and forth between you, the cell, and Seolla curled up in the corner. Then he grunts and storms off, leaving you alone with the girl sobbing under the blanket.
 
-WHAT WILL KATINA DO?
-Aloysius Knight Fri 05 Mar 2010 15:24:51 No.4645488 Report
-Katina: Nooooooooow, where was before I was so rudely interrupted.....oh yes, now I remember
-Couch Fri 05 Mar 2010 15:50:51 No.4645547 Report
-Quoted By: >>4645649
-Hug Seolla, whisper that we're sorry.
-
-When we've regained our composure, go see Sophia.
-Aloysius Knight Fri 05 Mar 2010 15:53:51 No.4645554 Report
-but then again, thinking about it. It probably wouldn't exactly be "diplomatic" to give back a broken Seolla.
-
-yah, say we're sorry
-Anonymous Fri 05 Mar 2010 16:03:51 No.4645574 Report
->>4645423
-
-Shit, this hard...
-
-For moment, I think it would best to go gentle mode. I think Katina has matured enought during the adventure to see that being psycho isn't always best way to solve problems...And I think Seolla could be broken beyond repair during our sexual assaults, in her current state.
-
-I suggest being awkwardly kind to Seolla, because we are...Kind of new at making people comfortable and perhaps share tales about the school and what had happened after you got separated from school.
-Stealthyboy !fchRKomfls Fri 05 Mar 2010 16:29:51 No.4645649 Report
->>4645547
-This.
-Although thinking about it, maybe not the hugging part, considering it's Seolla...
-Sciencegar Sciencebolt Fri 05 Mar 2010 16:35:51 No.4645672 Report
-Quoted By: >>4645679
-"Oh...Seolla, I'm sorry..."
+"Oh... Seolla, I'm sorry..."
 
 The thing under the blanket continues to squeak.
 
-"I just...I don't know what to do with you...Ever since....Ouka and Arado...I haven't been able to think straight about you all. I...don't want to hurt now, I just...I want to be sure of things, and that makes me go overboard."
+"I just... I don't know what to do with you... Ever since... Ouka and Arado... I haven't been able to think straight about you all. I... don't want to hurt now, I just... I want to be sure of things, and that makes me go overboard."
 
 "..m'okay, m'okay, I'm o-kay..."
 
 You move to give the girl a reassuring cuddle, then realise this would make her worse. You content yourself to sit down beside Seolla as she finally pokes her head out of the blanket.
 
-"Uh, Seolla...What did happen after I left? What have I missed?"
+"Uh, Seolla... What did happen after I left? What have I missed?"
 
-"Latooni and I graduated. She was broken out of the facility, I was send onto the Project. Spend months testing Radom Group units and the R-0. Arado was shipped to the Shocker project for...revival. Assumed I'd never see him again. Sister Ouka...she became top ace. Best pilot in the Project that wasn't one of the Special Class. Everything she ever dreamed up of being...but she was lonely."
+"Latooni and I graduated. She was broken out of the facility, I was send onto the Project. Spend months testing Radom Group units and the R-0. Arado was shipped to the Shocker project for... revival. Assumed I'd never see him again. Sister Ouka... she became top ace. Best pilot in the Project that wasn't one of the Special Class. Everything she ever dreamed up of being... but she was lonely."
 
 "Lonely? Her? She would have surrounded herself with sychophants and fangirls, same as she always did!"
 
-"She...couldn't. After what happened....She missed Arado too much. Even with me, and the Riksent girl, she never opened up. Started wearing a mask, using a codename. Tried to become a different person."
+"She... couldn't. After what happened... She missed Arado too much. Even with me, and the Riksent girl, she never opened up. Started wearing a mask, using a codename. Tried to become a different person."
 
 "...Yeah. All psychos. just like I said."
 
-You pick yourself up and head down the corridor. She whispers back. "I-I'll just stay in the cell....better there."
+You pick yourself up and head down the corridor. She whispers back. "I-I'll just stay in the cell... better there."
 
 "..Fine."
-View SameGoogleiqdbSauceNAO Katina Deremode smaller.png, 73KiB, 394x265
-Stealthyboy !fchRKomfls Fri 05 Mar 2010 16:37:51 No.4645679 Report
->>4645672
 
-;_;
-Sciencegar Sciencebolt Fri 05 Mar 2010 16:57:51 No.4645722 Report
-Quoted By: >>4645725 >>4645820
+---
+
 The Granzon ceases glowing, as the radiance around the new crater fades away. The pile of rubble that had been the DC's headquarters building has ceased to exist, as has a vast chunk of earth and concrete. The top layer of the DCs secret underground bunker is exposed.
 
 "Impertinent fool!" The Thrudgelmir still looks half-melted, and turns stiffly from the point where it tried to shield the bunker, its feet still fused to the concrete slabs it was standing on. "I will not have you firing off black holes at Magus. I would have retrieved her myself, had you but waited!"
@@ -99,91 +62,41 @@ Figures start to climb out of the crater. The grey-skinned figure of Sophia Nate
 
 "Hey, Dumi! Do you still have that wierd Crystal stuff you got off the aliens?"
 
-Yes, only a few kilograms. I could make it self-replicate if I could just figure out its intrinsic programming...
+*Yes, only a few kilograms. I could make it self-replicate if I could just figure out its intrinsic programming...*
 
 "Get those science-heads to help! I'm sure Sophia will know what to do, she made the Machine Cells after all!"
 
-Perhaps...But there are a few more issues from that bunker we might want to deal with.
+*Perhaps... But there are a few more issues from that bunker we might want to deal with.*
 
-GIVE SOPHIA THE ZEHIRUT OR TALK TO SOMEONE ELSE?
-Stealthyboy !fchRKomfls Fri 05 Mar 2010 17:00:51 No.4645725 Report
-Quoted By: >>4645735 >>4645805 >>4645842
->>4645722
-Ask Dumi what these other issues are before deciding whether to give Magus the Zehirut yet.
-View SameGoogleiqdbSauceNAO 1-5.jpg, 50KiB, 573x799
-Lord Guilford !UuMJgvNa0Y Fri 05 Mar 2010 17:06:51 No.4645735 Report
->>4645725
-I'll go with this.
-Anonymous Fri 05 Mar 2010 17:39:51 No.4645805 Report
->>4645725
-Yeah. However, I don't think we have much of a choice. And damnit, I was hoping we'd get all four School children currently present in one place at the same time. I had an awesome speech thought out that would have proved we were fucking leadership material.
-Anonymous Fri 05 Mar 2010 17:47:51 No.4645820 Report
-Quoted By: >>4645826
->>4645722
-
-First talk with Dumi about the issues he mentioned and after that we should take a look how our favorite mechanics are doing ( Rio, Ryu and Jonathan. )
-Anonymous Fri 05 Mar 2010 17:51:51 No.4645826 Report
-Quoted By: >>4645830
->>4645820
-No, after that, unless the issues he mentioned prevent it, we give the damn crystals to Sophia so we can get our mech prepared/upgraded
-Anonymous Fri 05 Mar 2010 17:53:51 No.4645830 Report
->>4645826
->prepared
-I mean repaired. This is why I should not type stuff right after waking up
-Couch Fri 05 Mar 2010 18:00:51 No.4645842 Report
->>4645725
-Ask what the issues are, then give her the crystals if it's still appropriate.
-Sciencegar Sciencebolt Fri 05 Mar 2010 18:12:51 No.4645879 Report
-Quoted By: >>4645890
 "What kind of issues?"
 
-Well, theres the matter of free time. I don't think Sophia is going to get much lab time before the Team-up, what with having to meet Ms Browning and come to a proper arrangement. I can potentially boost her brainpower a few times using the ODE technique and the homonculi, but I doubt a breakthrough would come as quickly as you'd hope.
+*Well, theres the matter of free time. I don't think Sophia is going to get much lab time before the Team-up, what with having to meet Ms Browning and come to a proper arrangement. I can potentially boost her brainpower a few times using the ODE technique and the homonculi, but I doubt a breakthrough would come as quickly as you'd hope.*
 
 "We can still try, can't we? Maybe we can get some more people to help."
 
-I'm not finished. Theres also the issue of scientific secrecy, i.e., keeping this technology out of the hands of non-Shadow Mirrors, including the ELF, Junkers, Aquija and especially the SRX people. If we wanted her to develop this technology, we'd need to set her up in a lab away from the rest of us and only contact her via the mindlink.
+*I'm not finished. Theres also the issue of scientific secrecy, i.e., keeping this technology out of the hands of non-Shadow Mirrors, including the ELF, Junkers, Aquija and especially the SRX people. If we wanted her to develop this technology, we'd need to set her up in a lab away from the rest of us and only contact her via the mindlink.*
 
 "Ugh, ok, that's annoying but not too bad."
 
-Except we'd need a lab, and the hyperwave isn't 100% reliable anymore, remember?
+*Except we'd need a lab, and the hyperwave isn't 100% reliable anymore, remember?*
 
 "Surely Vindel and Lemon will see the advantages of letting her do this."
 
-Not while theres a simpler solution that already exists: The False Cells. They're already there. Vat Tran has made Sophia create self-reproduction chambers and energy absorbers for them, and she's half-done on a programing interface. They've already gotten enough to retrofit a dozen mechs, easily. Asking Vindel to hold off on using them while Sophia perfects the Cells would be like asking him not to set a man on fire until you can him fume-free petrol to do it with. He won't appreciate the difference, not under the current time constraints.
-Anonymous Fri 05 Mar 2010 18:14:51 No.4645890 Report
->>4645879
-I don't suppose Dumi could provide us with lab space...
-Sciencegar Sciencebolt Fri 05 Mar 2010 18:18:51 No.4645896 Report
-Quoted By: >>4645903
+*Not while theres a simpler solution that already exists: The False Cells. They're already there. Vat Tran has made Sophia create self-reproduction chambers and energy absorbers for them, and she's half-done on a programing interface. They've already gotten enough to retrofit a dozen mechs, easily. Asking Vindel to hold off on using them while Sophia perfects the Cells would be like asking him not to set a man on fire until you can him fume-free petrol to do it with. He won't appreciate the difference, not under the current time constraints.*
+
 You rub your chin completatively. "So you think Vindel'll just use them as they are, on our mechs?"
 
-Yes. By the time Sophia has created 'real' machine cells, whatever form they take, the entire Shadow Mirror force will likely be equipped with a secret cache of them. Enough to optimise their systems and keep them running in the fight against the First. Then, when the time comes to fight SRX again, he'll have them all transform to new forms like the Thrudgelmir for the final fight. It's too perfect a plan for him to ignore because of what, comparative to the 'salvation' of Earth, are small issues.
+*Yes. By the time Sophia has created 'real' machine cells, whatever form they take, the entire Shadow Mirror force will likely be equipped with a secret cache of them. Enough to optimise their systems and keep them running in the fight against the First. Then, when the time comes to fight SRX again, he'll have them all transform to new forms like the Thrudgelmir for the final fight. It's too perfect a plan for him to ignore because of what, comparative to the 'salvation' of Earth, are small issues.*
 
 "Small issues? You said they run on negative emotions! On pain and suffering!"
 
-Thats just one of their power sources, but yes. And do you think telling that to Vindel, who's dedicated to a world of eternal conflict and thinks the struggles of humanity are a good thing, will make him like them less?
+*Thats just one of their power sources, but yes. And do you think telling that to Vindel, who's dedicated to a world of eternal conflict and thinks the struggles of humanity are a good thing, will make him like them less?*
 
 "Ugh..."
 
-Katina...I thought you beleived in that world too. I thought you wanted to fight eternally, to make mankind struggle towards perfection. Is it so easy to make you doubt that? One new technology that turns a metaphor into fuel, and suddenly you feel like a vampire?
+*Katina... I thought you beleived in that world too. I thought you wanted to fight eternally, to make mankind struggle towards perfection. Is it so easy to make you doubt that? One new technology that turns a metaphor into fuel, and suddenly you feel like a vampire?*
 
-RESPONSE FROM KATINA?
-Anonymous Fri 05 Mar 2010 18:21:51 No.4645903 Report
-Quoted By: >>4646026 >>4646050
->>4645896
-"I've seen war now, Dumi, and I'm not sure if I like it as much as I thought I would. Not to mention this war seems likely to destroy humanity entirely."
-Anonymous Fri 05 Mar 2010 18:48:51 No.4646026 Report
-Quoted By: >>4646050
->>4645903
-This. Honestly, lets get some character developement in here.
-Goddamn Sandwitches Fri 05 Mar 2010 18:53:51 No.4646050 Report
->>4645903
->>4646026
-
-Agreed.
-Sciencegar Sciencebolt Fri 05 Mar 2010 19:01:51 No.4646078 Report
-Quoted By: >>4646083 >>4646125
-"I don't know...I've seen a lot of stuff in the past while, Dumi. I've seen a lot of people suffer. I've caused suffering, and I've suffered myself. And I'm not sure if I like the fallout of war as much as I thought I would."
+"I don't know... I've seen a lot of stuff in the past while, Dumi. I've seen a lot of people suffer. I've caused suffering, and I've suffered myself. And I'm not sure if I like the fallout of war as much as I thought I would."
 
 A natural human response. An ideal which seems to benefit the greater good in theory conflicted with inbuilt morality in practise. Empathy and ambition, two opposing forces that shape the human condition...
 
