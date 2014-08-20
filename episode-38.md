@@ -52,143 +52,26 @@ Dumi morphs once more into his Transport form, and you land atop of him, as he c
 
 *I was of the understanding that the Shadow Mirrors needed every ship they could get right now. Also, I don't think Radhas a qualified pilot. It seems she's able to control the Balmar mech only thanks to inserted mental training, judging from her brain activity.*
 
-"Oh...Well, maybe we should leave her of somewhere, and let her make her own way."
+"Oh... Well, maybe we should leave her of somewhere, and let her make her own way."
 
-Katina, the entire Africa continent is under alert thanks to our recent shenanigans. The EFA will have stepped up security, particularly around the shuttleports. And need I remind you that she's been missing for several years, and thus won't have valid ID or a passport. The alien uniform doesn't help either.
+*Katina, the entire Africa continent is under alert thanks to our recent shenanigans. The EFA will have stepped up security, particularly around the shuttleports. And need I remind you that she's been missing for several years, and thus won't have valid ID or a passport. The alien uniform doesn't help either.*
 
 "Oh."
 
-Also, she has no money to pay for flights. And niether do you.
+*Also, she has no money to pay for flights. And neither do you.*
 
 "Damnit Dumi, one day your being right constantly is gonna backfire on you hard."
 
-WHAT SHALL OUR HEROINE DO?
-Anonymous Sat 06 Mar 2010 17:30:01 No.4651598 Report
-Quoted By: >>4651615 >>4651789
->>4651582
-Clearly and Calmly explain to Radha that going back to India in her current state will make things much worse. Suggest to take her back to properly prepare her to go back home.
-
-Aww hell...this is Katina. Bust through at full force and use the confusion to smuggle Radha into the country.
-NuBlackAnon !!z6ldXGL61Wm Sat 06 Mar 2010 17:33:01 No.4651615 Report
->>4651598
-no no no.
-Tell Dumi to transform into a tramp fishing boat, and use that if you mus.. no takes weeks.
-
-Tell Radha we will take her home in a bit, BUT she has to come back with us to base.
-
-(also if you must sneak through Africa go through the desert it is impossible to track that much airspace besides a few sand type mechs and occasional old toyota with machine gun)
-Haken Browning !zHe7DH816A Sat 06 Mar 2010 18:31:01 No.4651789 Report
-Quoted By: >>4651870
->>4651598
-First half of this. We can use the cooldown before the second half to berate her for waking us up like this.
-Anonymous Sat 06 Mar 2010 18:50:01 No.4651851 Report
-Quoted By: >>4651883
->>4651582
-
-Tell her that she doesn't have home anymore or at laest one that she knew, so long time ago.
-
-Tell her that if we even somehow managed to get her to home, that she faces great disaster both physical and emotional and she is too weak to handle either of them.
-Her family has more than likely moved on their lives, her husband getting new wife and her children have most likely left the home nest or soon will. Ask her can she handle that.
-
-Then there is EFA, who more than anything would like to get their hands on her due appearing suddenly with fancy strange technology after disappearing all those years ago. And most important detail is that, she is too weak to resist them or even flee on her own....But she has hope, SM can make her stronger both physical and emotional, strong enought to make diffrence in her life and all we ask is that we let her help her become stronger.
-Sciencegar Sciencebolt Sat 06 Mar 2010 18:51:01 No.4651855 Report
-Quoted By: >>4651857 >>4651858 >>4651864 >>4651900 >>4652092
 "Ok, Radha, we'll get you home, don't worry about that. But the thing is, right now's not the best time. We're all kinda busy with stuff, and theres no-one free who can drop you off. If you can come back with me, we'll sort out your trip back, once we have the breathing room. Ok?"
 
-"...Alright. I...apologise for acting rashly, but...I-I'm a pacifist, I don't beleive in this kind of warfare. I don't see the benefit of the bloodshed you're planning, so I can't, won't support what you're doing."
+"...Alright. I... apologise for acting rashly, but... I-I'm a pacifist, I don't beleive in this kind of warfare. I don't see the benefit of the bloodshed you're planning, so I can't, won't support what you're doing."
 
-"Didn't I explain about the aliens in government? Them trying to take over and turn humanity into...stuff? None of that change your mind, at all?"
+"Didn't I explain about the aliens in government? Them trying to take over and turn humanity into... stuff? None of that change your mind, at all?"
 
-"I'm sorry, I suppose its just...I can't imagine what you're saying being reality, it just seems so odd. Besides, I've met aliens. For a period, I thought I was one, and from what I can remember, they weren't truly different from us...not fundamentally. I just can't see...even if these First aren't from Earth, that doesn't mean they're not...human, deep down."
+"I'm sorry, I suppose its just... I can't imagine what you're saying being reality, it just seems so odd. Besides, I've met aliens. For a period, I thought I was one, and from what I can remember, they weren't truly different from us... not fundamentally. I just can't see... even if these First aren't from Earth, that doesn't mean they're not... human, deep down."
 
 "...What."
 
-DEEP PHILOSOPHICAL CONVERSATION WITH RADHA, RETURN TO BASE SILENTLY AND DO SOMETHING ELSE, OR HAVE AN ELSEWHERE?
-Haken Browning !zHe7DH816A Sat 06 Mar 2010 18:52:01 No.4651857 Report
->>4651855
-Elsewhere to Shine...as Team Yuuki and Shocker Unit make her into Electromagnetic-Wave Prophet Tackle.
-BSRaven !!pZhu/eJf6iW Sat 06 Mar 2010 18:53:01 No.4651858 Report
-Quoted By: >>4651878
->>4651855
-Return to base whilst having deep philosophical conversation.
-Anonymous Sat 06 Mar 2010 18:54:01 No.4651864 Report
->>4651855
-Elsewhere! I mean Katina + DEEP PHILOSOPHICAL CONVERSATION does not sound like a very good idea.
-Anonymous Sat 06 Mar 2010 18:56:01 No.4651870 Report
->>4651789
-Yeah. Point out that in her current clothing, she'd stick out like a sore thumb, and the EFA would most likely pick her up and interrogate her really quickly. Even moreso if they find her piloting the Ezekiel, in which case, depending on which EFA faction caught her they'd either shoot her down immediately or infest her with tentacles.
-Anonymous Sat 06 Mar 2010 18:58:01 No.4651878 Report
->>4651858
-I support this suggestion.
-Sciencegar Sciencebolt Sat 06 Mar 2010 18:59:01 No.4651883 Report
-Quoted By: >>4651912
->>4651851
-
-This is actually a continuity point that's annoyed me before: It's frustratingly vague exactly how long before the OG games start the Agressors and PTX period (when Radha and Kar-Wai were abducted) actually was. Its been suggested before by a poster that it might only have been a year or two, but the way the characters talk is as if it were a decade or so. That would certainly make more sense from what I see on the PTX bios: Their SRW4 bios list them as being 18, but OG Irm and Ring are 28. I've sorta been vague about it myself, aiming at about 5-6 years mentally, but a more accurate timeline of pre-games events would be REALLY appreciated.
-Anonymous Sat 06 Mar 2010 19:03:01 No.4651900 Report
-Quoted By: >>4651916 >>4651993
->>4651855
-Explain that the Aliens we're talking about are horrible tentacle raping monstrosities that aren't like us.
-Maybe schedule a visit to the medbay and let hear about Hugo and Aqua if we have the time.
-Anonymous Sat 06 Mar 2010 19:04:01 No.4651912 Report
-Quoted By: >>4651986
->>4651883
-I've been playing Kyosuke route in OG1, and when facing Kar Wai, Sanger mentions it's been 16 years.
-Anonymous Sat 06 Mar 2010 19:05:01 No.4651916 Report
->>4651900
-2'd.
-Anonymous Sat 06 Mar 2010 19:16:01 No.4651986 Report
-Quoted By: >>4652018
->>4651912
-Is Radha even old enough to fit in that timeframe?
-Anonymous Sat 06 Mar 2010 19:17:01 No.4651993 Report
->>4651900
-
-thirded
-Anonymous Sat 06 Mar 2010 19:22:01 No.4652018 Report
-Quoted By: >>4652030 >>4652040 >>4652042 >>4652045 >>4652088
->>4651986
-Radha is 27. She would have had to have been kidnapped at age 11. I think something is wrong there...
-Haken Browning !zHe7DH816A Sat 06 Mar 2010 19:24:01 No.4652030 Report
->>4652018
-inb4 some sort of crazy Psychodriver feedback forces Katina to put a fist through Radha's cockpit block.
-Anonymous Sat 06 Mar 2010 19:26:01 No.4652040 Report
->>4652018
-She has psychic powers, even if she's not a full fledged psychodriver. Enough to make her sample worthy, even at that age, probably.
-But also remember the whole Balmarian schedule is different here anyway, what with no Meteor 3 and all,and Sciencegar can just have it be around 5 or 6 years as he said he considered.
-Anonymous Sat 06 Mar 2010 19:27:01 No.4652042 Report
->>4652018
-Timeslip/Stasis/Freezing, anything that can make this work.
-Anonymous Sat 06 Mar 2010 19:27:01 No.4652045 Report
->>4652018
-
-Pedos, they are everywhere...Besides ain't Arado and Latooni 14 years old? And they have been trained several years to be killers in the school.
-Anonymous Sat 06 Mar 2010 19:30:01 No.4652059 Report
-Quoted By: >>4652077
-Sooooooo.....who's gonna kick the roll in planet ghetto because Imma sue your balls and suck them with 6 hundred metal aids that make slaves and monsters die belong in the depths of sahara don juan residents of make?
-BSRaven !!pZhu/eJf6iW Sat 06 Mar 2010 19:32:01 No.4652077 Report
->>4652059
-I... don't even...
-
-We're going to have another non-canon psychopathic episode, aren't we?
-Stealthyboy !fchRKomfls Sat 06 Mar 2010 19:34:01 No.4652088 Report
-Quoted By: >>4652106
->>4652018
-Not necessarily, remember that when the OG Areogaters took Mai she was older than Aya, but when the OGnumbers got her back she was clearly younger.
-Anonymous Sat 06 Mar 2010 19:35:01 No.4652092 Report
->>4651855
-
-Elsewhere would be nice....It would be intresting to see either Lamia and Axel Or how Agua/Kai/ Hugo are doing...
-Stealthyboy !fchRKomfls Sat 06 Mar 2010 19:37:01 No.4652106 Report
-Quoted By: >>4652243
->>4652088
-Basically what I'm saying is that when they all were in stasis, they may not have aged.
-Anonymous Sat 06 Mar 2010 20:08:01 No.4652243 Report
-Quoted By: >>4652271
->>4652106
-So Radha is still 11 years old? You've lost me...
-Sciencegar Sciencebolt Sat 06 Mar 2010 20:12:01 No.4652257 Report
-Quoted By: >>4652303
 The Ezekiel lands atop of Dumi, and the whole assembly heads back to the Trilobites.
 
 "Didn't I show you the gun-camera footage of those things? The tentacles, the being the size of PTs, the general wierdness, doesn't any of that convince you they're inhuman."
@@ -201,42 +84,26 @@ The Ezekiel lands atop of Dumi, and the whole assembly heads back to the Trilobi
 
 "...Ok, you've lost me again."
 
-She's merely intimating that the First appear to be altering themselves as much as they are altering humanity. Their process of assuming control of the Federation is the culmination of centuries of subtle political and humanitarian manipulation, simply to make the world capable of being controlled by one government. If the First were immutably alien compared to humanity, they wouldn't be capable of this level of subtlety, because their understanding of human psychology and culture would be rudimentary at best. You're right in saying that they're physically quite distinct from anything from Earth, but mentally, they can function as humans, to an astoundingly accurate degree.
+*She's merely intimating that the First appear to be altering themselves as much as they are altering humanity. Their process of assuming control of the Federation is the culmination of centuries of subtle political and humanitarian manipulation, simply to make the world capable of being controlled by one government. If the First were immutably alien compared to humanity, they wouldn't be capable of this level of subtlety, because their understanding of human psychology and culture would be rudimentary at best. You're right in saying that they're physically quite distinct from anything from Earth, but mentally, they can function as humans, to an astoundingly accurate degree.*
 
-"....Huh...Wait, are you taking her side?"
+"....Huh... Wait, are you taking her side?"
 
-I'm playing devil's advocate, Katina.
+*I'm playing devil's advocate, Katina.*
 
 "Isn't that a Keanu Reeves movie?"
 
-...Radha, I'm not sure you're going to get through to her on this one.
-Sciencegar Sciencebolt Sat 06 Mar 2010 20:14:01 No.4652271 Report
->>4652243
+*...Radha, I'm not sure you're going to get through to her on this one.*
 
-I'm going to assume the current Radha is physically 27 like her OG counterpart. Exactly how that works with her abduction, the lightspeed travel to the Neviim, the period where she was a 'Balmar' and the stasis period, I'll leave vague.
-Anonymous Sat 06 Mar 2010 20:23:01 No.4652303 Report
->>4652257
-"Even if they are similar to humans, they seem to have picked up some of humanities worst aspects. Like a propensity for mass murder."
-Sciencegar Sciencebolt Sat 06 Mar 2010 20:34:01 No.4652340 Report
-Quoted By: >>4652367 >>4652507
-Irm starts to fold his arms, but a jab of pain reminds him that one is still in a cast, and he simply stands tall. "I sympathise with your predicament, Ms. Byran. I know not everyone has the will to join Shadow Mirror, and I wouldn't dream of asking you to fight. But for the time being, theres not much we can do for you. Perhaps...Do you have medical training?"
+---
 
-Radha nods. "I was training as a psychologist before...the abduction, and I'm a certified yoga instructor."
+Irm starts to fold his arms, but a jab of pain reminds him that one is still in a cast, and he simply stands tall. "I sympathise with your predicament, Ms. Byran. I know not everyone has the will to join Shadow Mirror, and I wouldn't dream of asking you to fight. But for the time being, theres not much we can do for you. Perhaps... Do you have medical training?"
+
+Radha nods. "I was training as a psychologist before... the abduction, and I'm a certified yoga instructor."
 
 "Not perfect, but it'll do. You can help out with the wounded, then. We have only a few doctors and the nurses are overstretched, they'll appreciate any help they get."
 
 You and Irm lead Radha into the main medbay, and its only now you realise that there are people you know in here. Johnathan waves at Irm from his bed with his good arm. Ryoto finishes dressing and is making his bed. A scarred figure you recognise as Toby Watson sits looking at his partner Setsuko, comatose in the next bed over. And Kai and Kar-Wai stand beside Rings bedside, all three looking at the door to the operation theatre intently.
 
-WILL KATINA TALK TO ANYONE?
-Anonymous Sat 06 Mar 2010 20:41:01 No.4652367 Report
->>4652340
-Let's go talk to Ring, Kai, and Kar-Wai.
-Anonymous Sat 06 Mar 2010 21:12:01 No.4652507 Report
->>4652340
-
-Talk with Ryoto before he escapes, after that talk to Kai and co. Lets leave Irm and Jonathan to son and father bonding.
-Sciencegar Sciencebolt Sat 06 Mar 2010 21:52:01 No.4652709 Report
-Quoted By: >>4652811
 "Hey, slacker, what the hell you doing, forcing a sweet young girl like Rio to work in your place! Get the fuck out of here!"
 
 "H-Hey! I had a concussion! I could barely stand up straight most of the day! Why, I could stil-"
@@ -249,185 +116,78 @@ Ryoto considers answering back, but decides against it, and walked out of the ro
 
 Kar-Wai scratches his bald pate, clearly unused to it being shaved clean. "Well, I was in for a checkup, seeing which of these chunks of metal still in me were removable and which are replacing vitals, and I ran into Kai here, sweating bullets. Seems one of his students is in there, getting treated."
 
-Kai grunts. "Docs said it was safer to give Hugo limbs before they brought him out of it, so he wouldn't wake up a quadraplegic. He'll be partially cyberised, but he'll be whole...physicially anyway."
+Kai grunts. "Docs said it was safer to give Hugo limbs before they brought him out of it, so he wouldn't wake up a quadraplegic. He'll be partially cyberised, but he'll be whole... physicially anyway."
 
-"Oh...And what's your deal, Ring. Why are you so worried about this guy?"
+"Oh... And what's your deal, Ring. Why are you so worried about this guy?"
 
 She raises the still-burned stump of her right arm. "I'm next."
 
 "OH! JESUS! Fuck! Shit!"
 
-"Yeah, I said much the same when I found out..." she trails off, and looks down at the other corner of the room. "Katina...You're friends with that Nate person, aren't you?"
+"Yeah, I said much the same when I found out..." she trails off, and looks down at the other corner of the room. "Katina... You're friends with that Nate person, aren't you?"
 
 "Yeah..."
 
-"She said...that she died in the Earth Cradle, but her Cell-things, they revived her from brain-death. Right?"
+"She said... that she died in the Earth Cradle, but her Cell-things, they revived her from brain-death. Right?"
 
 "Y-yeah, that's about right..."
 
-"...I...I need to know....could it work again? On..Jayce?"
+"...I... I need to know... could it work again? On... Jayce?"
 
-"Oh...I'd forgotten, Dumi said it but I'd been so preoccupied with...Arado..."
+"Oh... I'd forgotten, Dumi said it but I'd been so preoccupied with... Arado..."
 
 Ring looks at you, slightly hurt.
 
-"I....I'll go talk with people. Don't worry Ring, if theres something I can do, I will!"
+"I... I'll go talk with people. Don't worry Ring, if theres something I can do, I will!"
 
 You rush out to find a safe place to talk.
-Stealthyboy !fchRKomfls Sat 06 Mar 2010 22:12:38 No.4652811 Report
->>4652709
->"...I...I need to know....could it work again? On..Jayce?"
 
->"Oh...I'd forgotten, Dumi said it but I'd been so preoccupied with...Arado..."
-
->Ring looks at you, slightly hurt. 
-
-Smooth, Katina. Real smooth.
-Sciencegar Sciencebolt Sat 06 Mar 2010 22:12:01 No.4652812 Report
 "Dumi! Come in, we need to talk about Jayce!!"
 
-Oh yes, Mr. Starlord. Rather bad mauling his body took. I was too busy shielding the Trilobites, and Tis was flanking the SRX...I'll assume you'll want him revived.
+*Oh yes, Mr. Starlord. Rather bad mauling his body took. I was too busy shielding the Trilobites, and Tis was flanking the SRX... I'll assume you'll want him revived.*
 
-"Yes! Wait...Can we? Will it work again?"
+"Yes! Wait... Can we? Will it work again?"
 
-Dr. Nates revival was...a unique set of circumstances, possibly mainly due to the circumstances of her death. She died from shock, due to the extreme pain of...well, hacing her skin flash-fried off by the blast of an MAPW. Her brain and major organs were intact, thanks to the blast sterilising her environment and keeping it airtight.
+*Dr. Nates revival was... a unique set of circumstances, possibly mainly due to the circumstances of her death. She died from shock, due to the extreme pain of... well, hacing her skin flash-fried off by the blast of an MAPW. Her brain and major organs were intact, thanks to the blast sterilising her environment and keeping it airtight.*
 
-"And...that doesn't apply to Jayce?"
+"And... that doesn't apply to Jayce?"
 
-"His brain is...mostly intact, but the rest of his body has been alternately crushed and shredded by the shrapnel of his cockpit popping under the overpressure. If we were to introduce False Cells into his body now, I think they'd basically shrug and give up. Though I could convince them to extract his personality patterns and memory, so you'd at least have a simulacrum of his mind.[/i]
+*His brain is... mostly intact, but the rest of his body has been alternately crushed and shredded by the shrapnel of his cockpit popping under the overpressure. If we were to introduce False Cells into his body now, I think they'd basically shrug and give up. Though I could convince them to extract his personality patterns and memory, so you'd at least have a simulacrum of his mind.*
 
 "Oh..."
-Sciencegar Sciencebolt Sat 06 Mar 2010 22:13:01 No.4652819 Report
-Quoted By: >>4652845 >>4652860 >>4652869 >>4652902
-There are other options however. First is the one currently underway: The body is being prepped for a special cyberisation process, the same one which created Lamia and Echidna. Given its results so far, I'd say that by tomorrow, you'll have Jayce...or at least, something that looks like him.
 
-"How do you mean? They'll...change his brain?"
+*There are other options however. First is the one currently underway: The body is being prepped for a special cyberisation process, the same one which created Lamia and Echidna. Given its results so far, I'd say that by tomorrow, you'll have Jayce... or at least, something that looks like him.*
 
-Indeed. Most of the processing and personality centres of Lamia and Echidnas brain have been entirely replaced with computer components. Their identities before their revival as W-series is entirely lost, assuming they weren't simply made from vat-grown parts. Jayce would suffer a similar fate, no doubt Ms Browning would establish an entirely new personality for him.
+"How do you mean? They'll... change his brain?"
 
-"Fuck....that...that bitch! That'd...kill Ring!"
+*Indeed. Most of the processing and personality centres of Lamia and Echidnas brain have been entirely replaced with computer components. Their identities before their revival as W-series is entirely lost, assuming they weren't simply made from vat-grown parts. Jayce would suffer a similar fate, no doubt Ms Browning would establish an entirely new personality for him.*
 
-There is the third, risky option. We do both.
+"Fuck... that... that bitch! That'd... kill Ring!"
+
+*There is the third, risky option. We do both.*
 
 "...We use the machine cells to save a copy of Jayces brain, then when Lemon fixes his body, we reboot him with the real Jayces brain!"
 
-Exactly. However, of course, there are downsides.
+*Exactly. However, of course, there are downsides.*
 
 "Like what?"
 
-Well for one, we'd be commiting an act of sabotage against the second-in-command of the entire Shadow Mirror.
+*Well for one, we'd be commiting an act of sabotage against the second-in-command of the entire Shadow Mirror.*
 
 "Er.."
 
-And, if I may be so blunt, that last time I did this, the results weren't....as helpful as I'd hoped.
+*And, if I may be so blunt, that last time I did this, the results weren't... as helpful as I'd hoped.*
 
 "Huh?"
 
-Arado.
+*Arado.*
 
-"....Oh...Oh! You did that? I thought he just...woke up!"
+"....Oh... Oh! You did that? I thought he just... woke up!"
 
-It's complicated...But you have to agree, since his revival, Arado hasn't been the most...stable.
+*It's complicated... But you have to agree, since his revival, Arado hasn't been the most... stable.*
 
-WHAT WILL KATINA DO?
-Stealthyboy !fchRKomfls Sat 06 Mar 2010 22:16:01 No.4652845 Report
->>4652819
-Do it. It's not like we give a shit about the leaders of the SM or their plans anyway.
-Anonymous Sat 06 Mar 2010 22:18:01 No.4652860 Report
-Quoted By: >>4652876
->>4652819
-Tell Ring the whole harsh truth, that his body is way past the line that revival is possible and that what's left from it will be used for creating a new W-Series.
+---
 
-But, if she wishes, she could talk to Lemon and ask her if we could make the W-Series to have characteristics just like Jayce's.
-Anonymous Sat 06 Mar 2010 22:19:01 No.4652869 Report
->>4652819
-We'd best ask Ring. We don't know what she'd want.
-Anonymous Sat 06 Mar 2010 22:20:01 No.4652876 Report
-Quoted By: >>4652914
->>4652860
-
-Seconded.
-
-Now it isn't time to stir trouble in SM, especially against high ranking member like Lemon...
-Anonymous Sat 06 Mar 2010 22:22:01 No.4652885 Report
->>4652882
-That's really just option 1...
-Rick Dominated Sat 06 Mar 2010 22:24:01 No.4652894 Report
-Maybe we should bring up option number 4, permanently imprinting his brain patterns in a mech?
-This might take a bit of heat out of the overall situation. And then when things stabilize a bit, we can get him a W-Series body.
-Goddamn Sandwitches Sat 06 Mar 2010 22:25:01 No.4652902 Report
-Quoted By: >>4652909
->>4652819
-
-Ask Ring in private if she wants to do this...
-
-Either way, it seems that we will probably be taking Ring with us when we head out into the multiverse.
-Anonymous Sat 06 Mar 2010 22:26:01 No.4652909 Report
->>4652902
-Yeah. Also, jeeze, we owe Ring.
-Stealthyboy !fchRKomfls Sat 06 Mar 2010 22:28:01 No.4652914 Report
-Quoted By: >>4652924 >>4652927 >>4652949
->>4652876
-But if we get Dumi to do it secretly, no-one will ever know...
-And if we don't do it Ring may have a nervous breakdown. Personally, I care a whole lot more about Ring than I do about Lemon's little pet project.
-Anonymous Sat 06 Mar 2010 22:29:01 No.4652924 Report
-Quoted By: >>4652928
->>4652914
-At least ASK Ring what she wants us to do, first.
-Anonymous Sat 06 Mar 2010 22:31:01 No.4652927 Report
->>4652914
-Ring is a tough girl, she'll live.
-Stealthyboy !fchRKomfls Sat 06 Mar 2010 22:31:01 No.4652928 Report
-Quoted By: >>4652939 >>4652942
->>4652924
->"...I...I need to know....could it work again? On..Jayce?"
-
-I'm pretty certain we know what her answer will be.
-Anonymous Sat 06 Mar 2010 22:32:01 No.4652939 Report
-Quoted By: >>4652948
->>4652928
-...Not really, we don't.
-Anonymous Sat 06 Mar 2010 22:33:01 No.4652942 Report
-Quoted By: >>4652953
->>4652928
-We have 3 or 4 options, all with downsides. We want to make sure that Ring knows the problems involved with each.
-Jerid Messa !!AbDOcayw4O/ Sat 06 Mar 2010 22:34:01 No.4652946 Report
-Ask Ring first. She wants to do the Machine Cell solution but she doesn't really know what the consequences could be.
-Stealthyboy !fchRKomfls Sat 06 Mar 2010 22:34:01 No.4652948 Report
-Quoted By: >>4652953
->>4652939
-Well, with the choices being between an android that looks like Jayce but with none of his personality (What Lemon's making right now), and an android with a physical copy of Jayce's mind...
-Anonymous Sat 06 Mar 2010 22:35:01 No.4652949 Report
-Quoted By: >>4653015
->>4652914
-I doubt that doing it again is easy as it was with Arado, because if Lemon is actually overseeing the operation and that she is actually good at what she is doing, then the whole thing got that much more complicated...Unless we can distract her somehow...
-Stealthyboy !fchRKomfls Sat 06 Mar 2010 22:36:01 No.4652953 Report
-Quoted By: >>4652983
->>4652942
-3 or 4? what are the two other than outlined in >>4652948
-Anonymous Sat 06 Mar 2010 22:40:01 No.4652983 Report
-Quoted By: >>4653013
->>4652953
-First would be copying his brain patterns into a computer
-
-Second would be W series
-
-Third would be the Arado treatment
-
-Fourth would be the first, but transplanting his personality into a mech. I'm not sure whether this deserves its own option
-Anonymous Sat 06 Mar 2010 22:45:01 No.4653013 Report
->>4652983
-At any rate, it's up to Ring to make the decision. She has the best idea of what he would have wanted.
-View SameGoogleiqdbSauceNAO RmF_WilyEyebrow.gif, 1KiB, 50x50
-Stealthyboy !fchRKomfls Sat 06 Mar 2010 22:46:01 No.4653015 Report
->>4652949
-Distract her, eh?
-Anonymous Sat 06 Mar 2010 23:03:01 No.4653089 Report
-Bump
-Anonymous Sun 07 Mar 2010 00:02:01 No.4653450 Report
-Bump.
-Sciencegar Sciencebolt Sun 07 Mar 2010 00:05:01 No.4653466 Report
-Quoted By: >>4653506 >>4653508
 The medical ward is a little busier when you re-emerge. A new patient is being lowered into Ryoto's bed, a red-haired young man sporting artificial limbs. Kai and Kar-Wai are helping the ordelies with him, while Kusuha and another nurse help Ring onto a trolley.
 
 "Wait! Kusuha, I need to have a word with Ring in private. Please, just two minutes!"
@@ -442,152 +202,12 @@ She goes silent for a moment. "...I just feel so selfish right now..."
 
 "Huh?"
 
-"I want him back. I'd give my other hand just to see him standing there, giving a snide comment or trying not to look bored when people talk science...I don't know, maybe its just the painkillers, or the stress, or the fact that it was just so sudden and I didn't see it, I was blinded by the blast and they just told me he was dead later...But right now, I want him back. Thats...thats all I know."
+"I want him back. I'd give my other hand just to see him standing there, giving a snide comment or trying not to look bored when people talk science... I don't know, maybe its just the painkillers, or the stress, or the fact that it was just so sudden and I didn't see it, I was blinded by the blast and they just told me he was dead later...But right now, I want him back. Thats... thats all I know."
 
 A tear rolls down her cheek as she settles on the trolley. Kusuha and the other nurse wheel her into the operating theatre. You're left alone, watching Irm chat with his father and Kai whispering to a groggy Hugo.
 
-WHAT WILL KATINA DO?
-Rick Dominated Sun 07 Mar 2010 00:09:01 No.4653493 Report
-Quoted By: >>4653501 >>4653505 >>4653544
-I think this clenches it.
-Bringing Jayce back as himself would be more important than bringing him back merely as a shell.
-Throw him in a robot, we'll find him a body later.
-Anonymous Sun 07 Mar 2010 00:12:01 No.4653501 Report
->>4653493
-Yes. Anyhow, let's see how Hugo is. We still haven't been introduced.
-Anonymous Sun 07 Mar 2010 00:12:01 No.4653505 Report
-Quoted By: >>4653544
->>4653493
-Ja. Machine Cells to recover his personality, then let Lemon go about repairing his body. We'll likely have to wipe the fake personality before sticking the real Jayce in there after Lemon finishes.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 00:13:01 No.4653506 Report
-Quoted By: >>4653544
->>4653466
-We sabotage Lemon's little pet project and bring Jayce back fully. Screw Lemon and Vindel.
-Anonymous Sun 07 Mar 2010 00:13:01 No.4653508 Report
->>4653466
-That reminds me. After we tell Dumi to go ahead with the Machine Cell plan, let's go talk to Jonathan. We haven't talked to the old bastard since we originally came up with the Neo Grungust over a couple dozen threads ago.
-Anonymous Sun 07 Mar 2010 00:18:01 No.4653544 Report
-Quoted By: >>4653555 >>4653561 >>4653571 >>4653612
->>4653505
->>4653493
->>4653506
-Arg, I have a bad feeling about this...wouldn't it be better if we talked to Lemon and say that there was a way to download Jayce's memories and battle experience into the new cyborg? She doesn't seem like an unreasonable person, I'm sure that she can see the benefits in doing this.
-Anonymous Sun 07 Mar 2010 00:20:01 No.4653555 Report
-Quoted By: >>4653572
->>4653544
-Might be a plan, but on the other hand, she seemed rather irritated about Arado.
-Anonymous Sun 07 Mar 2010 00:21:01 No.4653561 Report
->>4653544
-Yeah guys don't forget that Lemon'd goal IS to create a cyborg that can become a human (like she build Lamia to be). I'm sure that she will be want to experiment.
-View SameGoogleiqdbSauceNAO 1266418929498.jpg, 36KiB, 591x388
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 00:22:01 No.4653571 Report
-Quoted By: >>4653593 >>4653601
->>4653544
->"Right. Given that all the control failsafes on W-BC-01 have failed, I can see what you mean about instability."
+---
 
->"Arado. AH-RAH-DOHHH."
-
->She ignores you
-
-Yeah, what a nice considerate person she is.
-Anonymous Sun 07 Mar 2010 00:23:01 No.4653572 Report
->>4653555
-She was surpriced because Dumi's hacked all the failsafe mechanism that kept Arado unconsious.
-
-She must have thought that someone might have sabotaged or reprogramed him.
-Anonymous Sun 07 Mar 2010 00:25:01 No.4653593 Report
->>4653571
-I said "She doesn't seem like an unreasonable person" not "considarate". There is a huge difference.
-Anonymous Sun 07 Mar 2010 00:27:01 No.4653601 Report
->>4653571
-I think that was more from the idea of "start from 'robot', achieve 'human'."
-Anonymous Sun 07 Mar 2010 00:29:01 No.4653612 Report
-Quoted By: >>4653673
->>4653544
-Eh... Worth a shot. Bring up the fact that she already has plenty of normal cyborgs to study, but aside from Arado there's no other Machine Cell cyborgs, Appeal to her scientific curiosity. And if that doesn't work, than to her loyalty to the Shadow Mirrors. Ring is a useful pilot and engineer and getting Jayce being Jayce again would go a long way to securing her loyalty and efficiency.
-View SameGoogleiqdbSauceNAO starscream.jpg, 13KiB, 367x351
-SpoilerClick to view
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 00:32:01 No.4653633 Report
-...Although we could use this opportunity as a springboard towards taking out the people in the way of our taking over the Shadow Mirror...
-Anonymous Sun 07 Mar 2010 00:38:01 No.4653660 Report
-I'd still like to talk to Rand whenever we get the chance.
-Anonymous Sun 07 Mar 2010 00:41:01 No.4653673 Report
-Quoted By: >>4653705
->>4653612
-Yeah, and if she doesn't want him to have his memories tell her that we just need to have the cyborg act a little bit like Jayce was and then say some lie to Ring like "His brain was too damaged and all his memories were destroyed. But he still is our Jayce!"
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 00:45:01 No.4653705 Report
-Quoted By: >>4653715 >>4653716 >>4653744 >>4653745
->>4653673
-I don't like this plan. Ring is one of the few people I'd count as a reliable ally. Do we really want to go the route of manipulation?
-Anonymous Sun 07 Mar 2010 00:47:01 No.4653715 Report
-Quoted By: >>4653720 >>4653733
->>4653705
-Aren't YOU the one that constanty say that we must trick and take over the place from Videl and Lemon?
-Anonymous Sun 07 Mar 2010 00:48:01 No.4653716 Report
->>4653705
-It's a plan of last resort, anyway.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 00:49:01 No.4653720 Report
->>4653715
-I don't count either Vindel or Lemon as reliable allies who would ever be willing to put our interests first. They interfere with our autonomy.
-Anonymous Sun 07 Mar 2010 00:50:01 No.4653733 Report
->>4653715
-There's a difference between tricking Ring, who has been nothing but friendly and helpful to us, and Vindel and Lemon, who so far have proven themselves to be, well, assholes.
-Anonymous Sun 07 Mar 2010 00:52:01 No.4653744 Report
-Quoted By: >>4653758
->>4653705
-It isn't manipulation towards Ring, that was just an idea of an excuse that we could say to Lemon.
-
-Besides Ring herself is a mess right now, I believe she is gonna be happy with just seeing robo-Jayce standing at his own two feet. Memories and emotions are just the cherries on top.
-Goddamn Sandwitches Sun 07 Mar 2010 00:53:01 No.4653745 Report
->>4653705
-I agree with you on this, I would rather not go and remove a good ally in exchange for a "Possible chance" to take over the Shadow Mirrors...
-
-And if we screw up, it gives us one hell of a reason to bring Ring with us on our journey.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 00:56:01 No.4653758 Report
-Quoted By: >>4653772 >>4653775
->>4653744
-I know if one of my friends had just died, seeing a robot in his skin without any of his personality would seriously fuck with my mind. We're talking serious trauma here.
-Goddamn Sandwitches Sun 07 Mar 2010 00:58:01 No.4653772 Report
->>4653758
-Agreed.
-
-It would be MUCH worse than simply having the person dieing... Because the Body would still be around, but the Person would be gone forever.
-
-Ring would probably break if we let that happen.
-Anonymous Sun 07 Mar 2010 00:59:01 No.4653775 Report
-Quoted By: >>4653792
->>4653758
-
-Well, it's either that, or the further risk of more trauma by attempting to restore his body which has a far more higher likelihood of failing than working, and transforming him into a hellish abomination in the process.
-
-Or the whole idea could just be given up on.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 01:02:01 No.4653792 Report
-Quoted By: >>4653807
->>4653775
->far more higher likelihood of failing than working
-
-Where'd you get that from? It worked pretty well for Arado, the only problem is that Lemon aware that someone meddled and is probably looking out for it now.
-Couch Sun 07 Mar 2010 01:04:01 No.4653803 Report
-Quoted By: >>4653824 >>4653847
-We do our best to get Jayce's mind back. Body is secondary - if Lemon won't let us put it back in his body, we put it in a mech. Maybe in the Huckebein.
-Anonymous Sun 07 Mar 2010 01:04:01 No.4653807 Report
->>4653792
-
-From a conversation about two-three-four threads ago that mentioned that there was an incredibly high possibility of his body transforming in a most unhelpful way.
-
-About 80-odd percent, thereabouts.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 01:07:01 No.4653824 Report
->>4653803
-Agreed. Although priority is on getting it back to his body.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 01:13:01 No.4653847 Report
-Quoted By: >>4653890
->>4653803
-Although a better fit would be the Gespenst S. He did invent the Gespenst Kick after all.
-Anonymous Sun 07 Mar 2010 01:22:01 No.4653890 Report
->>4653847
-The Gespenst S is Kar-Wai's. I doubt that he'd let us fool around with that.
-Sciencegar Sciencebolt Sun 07 Mar 2010 01:25:01 No.4653901 Report
-Quoted By: >>4653913 >>4653918
 You burst into the W-series lab with the jar in your hands.
 
 Lemon spins around. "Tarask! What in god's name-!?"
