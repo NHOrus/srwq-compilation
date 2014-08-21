@@ -374,7 +374,6 @@ Lemon struts across the room. "Let's be realistic here. We're not going to have 
 
 She gestured from Echidna to you. "Take her away. One weeks confinement, subject to renewal."
 
-
 ---
 
 You scowl as Echidna escorts you to your quarters. As the two of you march through the ship, faces turn and stare at you, face looking at the floor. People start to whisper, shocked that you've finally gotten your comeuppance. One guy cheers.
@@ -393,7 +392,7 @@ You stare at the door, hoping your eyelasers will burn through, but once again t
 
 Then theres a rattle behind you. Your closet opens.
 
-"Hi. I...heard you were feeling down..."
+"Hi. I... heard you were feeling down..."
 
 You run to Arado and hug him tightly. You start to sniffle as he returns the hug. Then you bury your face in his shoulder and start to bawl.
 
