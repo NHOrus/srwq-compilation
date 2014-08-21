@@ -1,26 +1,24 @@
 # Episode 39
 
 ##SRWQ Mission 39: Sex fixes everything. Sex, and nanomachines
-Sciencegar Sciencebolt Sun 07 Mar 2010 05:18:27 No.4655717 ViewReplyOriginalReport
-Quoted By: >>4655738 >>4655744 >>4658264 >>4658577
-Previous threads linked here:
-http://teamphantomtiger.blogspot.com/2010/02/srw-quest-sciencegar-sciencebolt-joint.html
-http://teamphantomtiger.blogspot.com/2010/02/srw-quest-thread-archive-mark-ii.html
 
-Continuing from last thread....
+    Continuing from last thread....
 
-"Wait, Arado...What were you doing in my closet?"
+"Wait, Arado... What were you doing in my closet?"
 
-"Er....I climbed in through the air vents, and I was going to just wait in the middle of the room for you, but I didn't want to risk that Echidna lady seeing me."
+"Er... I climbed in through the air vents, and I was going to just wait in the middle of the room for you, but I didn't want to risk that Echidna lady seeing me."
 
-"Oh right...And why are you fiddling with the string of my dress?"
+"Oh right... And why are you fiddling with the string of my dress?"
 
-"Er...welll...."
+"Er...welll..."
 
 "That string is just decorative. THIS one opens my bodice."
 
-"Oh...ok then..."
-The Hippo transport is soaking wet, still dripping from the weight of water it was under in its hiding place. The cargo bay opens and a wave of water and Gespenst components flows out, revealing the Assault Lander, covered in seaweed and the odd barnacle, but otherwise intact."
+"Oh... ok then..."
+
+---
+
+The Hippo transport is soaking wet, still dripping from the weight of water it was under in its hiding place. The cargo bay opens and a wave of water and Gespenst components flows out, revealing the Assault Lander, covered in seaweed and the odd barnacle, but otherwise intact.
 
 Van Vat Tran waves to the Shadow Mirror engineering staff. "Right, get those Gespensts out of there and array them with the Lions we've recovered! We start the Machine Cell integration as soon as Magus has finished the programming!"
 
@@ -29,40 +27,9 @@ Irm frowns as the Gespensts are ferried towards the vats of grey goo. "Are you s
 Lemon Browning steps forward to answer the question. "Based on the data gathered from the StealthRaubtier and the Raioh, I've confirmed that a limited deployment of the machine cells will be safe. We'll use up this test batch, and Dr. Nate will refine the formula for later iterations, and make them more stable."
 
 Vindel nods. "We have 14 hours until we have to contact the SRX people. We must have every weapon we can muster by then. After all, the whole reason they spared us is because they think we're strong. So, lets be strong."
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 05:23:27 No.4655738 Report
-Quoted By: >>4655784
->>4655717
-Vat Tran... He's another untrustworthy one. We'll have to be rid of him too.
-Anonymous Sun 07 Mar 2010 05:23:27 No.4655739 Report
-Quoted By: >>4655745
-This can't end well.
-Goddamn Sandwitches Sun 07 Mar 2010 05:24:27 No.4655744 Report
->>4655717
-Well, I guess we do not need to worry about getting the cells to Sophia.
-Gilliam Yaeger Sun 07 Mar 2010 05:24:27 No.4655745 Report
-Quoted By: >>4655752
->>4655739
-We'd already agreed that its fine to use it for mooks.
 
-Its our heavy hitters, like the customs and Soulgain and RaiOh that we have to worry about.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 05:25:48 No.4655752 Report
->>4655745
->Implying Lemon isn't so shortsighted she'll use it on everything.
-Anonymous Sun 07 Mar 2010 05:31:27 No.4655784 Report
-Quoted By: >>4655794 >>4655797 >>4655815
->>4655738
-Yes, we're horrible at planning, so we'll simply kill everyone who's better at it than us! BRILLIANT!
-Gilliam Yaeger Sun 07 Mar 2010 05:33:27 No.4655794 Report
->>4655784
-Didn't you see that scene where Vat Tran was all like MWAHAHAHAHA MACHINE CELLS WILL LET ME RULE THE WORLD! THEY CALLED ME MAD! I'LL SHOW THEM ALL and so on?
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 05:33:27 No.4655797 Report
->>4655784
-Well if you're content being an expendable mook for the rest of this quest...
-Anonymous Sun 07 Mar 2010 05:36:27 No.4655815 Report
->>4655784
-We're not horrible at planning, per say...
-Sciencegar Sciencebolt Sun 07 Mar 2010 05:41:48 No.4655848 Report
-Quoted By: >>4655994
+---
+
 "Still nothing?"
 
 Gilliam looks up from his console at the face of Ryuune Zoldark. "I'm sorry, Ryuune, but no matter how I adjust it, the interference is just too great. I can't activate the teleportation circuit, and it's looking less and less likely that we'll be able to transport out safely once we find Latooni and Shine."
@@ -71,384 +38,56 @@ Gilliam looks up from his console at the face of Ryuune Zoldark. "I'm sorry, Ryu
 
 "I beleive that was my point. No, it seems, oddly enough, that Duminass was right: There's dimensional interference of some sort making the jump all but impossible. To be sure of making it back, I'd need massive amounts of power, and I'd have to leave a trail between the worlds that Dark Brain could see if he were blind."
 
-"So...are we going to be stuck here then?"
+"So... are we going to be stuck here then?"
 
 Gilliam grimaces. "Duminass claimed the interference was a 'storm', implying its a natural phenomenon, and that its temporary. Its possible that its merely a delay of a few weeks, and we can hide ourselves until it passes over. If not, we'll have to find some other way."
 
 "Hence why we're keeping the Zweizergain in one piece this time?"
 
 "Don't worry, Ryuune. I'm going to destroy both it and the Giest as soon as we get back. But until then, I'm keeping every advantage we can get..."
-Sciencegar Sciencebolt Sun 07 Mar 2010 05:47:27 No.4655895 Report
-Tetsuya frowns at his watch. "13 hours left...I'm starting to wonder whether we should just send a rejection now, and get it over with."
+
+---
+
+Tetsuya frowns at his watch. "13 hours left... I'm starting to wonder whether we should just send a rejection now, and get it over with."
 
 Lefina nods on the viewscreen. "Tempting, but the less contact we have with them, the better. We'd had enough issues with this EFA trying to assault us, leaving them messages won't help."
 
-"True...still, the waiting is intolerable. I hope Gilliam finds us a way out of this mess soon, and that the girls show up..."
+"True... still, the waiting is intolerable. I hope Gilliam finds us a way out of this mess soon, and that the girls show up..."
 
-"Yes...We've been all over this planet, America, Africa, the Pacific, most of Asia...we're running out of places to look."
+"Yes... We've been all over this planet, America, Africa, the Pacific, most of Asia... we're running out of places to look."
 
-"Process of elimination...Once we rendevous, there'll really only be Europr left. Heart of the Federation, and supposed source of the Einst threat. That's one trap even we won't want to spring..."
-Anonymous Sun 07 Mar 2010 05:58:27 No.4655979 Report
-I posted this in the last thread before checking for a new one. Reposting here.
+"Process of elimination... Once we rendevous, there'll really only be Europa left. Heart of the Federation, and supposed source of the Einst threat. That's one trap even we won't want to spring..."
 
-By the way, we never got timeline issues solved. I shall solve them now, as best I can. I looked at the info on developing the Gespenst in the back of the SRW OGS artbook awhile back and came up with this: Mao started building the first Gespensts in 179, they were finished in 180-181, and the Aggressors were in 181-182 or possibly later, they never mention an end date. Latooni also mentions early on in Ryusei route in OG1 that the Aggressors were formed "a few years earlier", which matches up with this fairly well.
+---
 
-This, of course, makes Tempest a massive fucking plothole, since Hope is stated to be 16 years ago and he acts like the Aggressors were before the Hope Incident. But that also can't be true, because then Elzam and Sanger would be incredibly young and Gilliam wouldn't have crossed over from SMverse. So basically, Tempest is nuts, Aggressors were a couple of years ago. This also works with how they never even got the idea to build humanoid weapons until Meteor 3, seven years ago.
-Sciencegar Sciencebolt Sun 07 Mar 2010 06:00:27 No.4655992 Report
-Quoted By: >>4656127
 "It doesn't feel real..." Hugo stares at the artificial hand, flexing the false fingers.
 
 "I hear that." Kar-Wai scratches at one of the metal nodules along his jaw. "You don't feel like its a real part of the body, even though it moves when your brain says to. It's kinda trippy, alright..."
 
-"No..." The young man looks around the room. "None of THIS feels real...It's like I've had a window open, showing me heaven and hell, and now someone's put a cheap painting in front of it...And I want it to be real, don't get me wrong..."
+"No..." The young man looks around the room. "None of THIS feels real... It's like I've had a window open, showing me heaven and hell, and now someone's put a cheap painting in front of it... And I want it to be real, don't get me wrong..."
 
 Kai puts a shaky hand on Hugo's shoulder. "Don't worry Red, you'll get through this. We got you out of there, and we're gearing up to show those aliens what we think of their shit. You'll be ready for the big fight, wontcha? And Aqua too, she'll come right as well. Now buck, and get yourself better."
 
 Kar-Wai Lau watched as Kai got up and left. He'd seen that trick before. He'd used it on the young Kai himself, more than once. But false reassurances weren't going to fix someone as traumatised as this man, and the girl...
 
-"Er...Best wishes, Hugo. I need to find Rand..."
-Goddamn Sandwitches Sun 07 Mar 2010 06:00:27 No.4655994 Report
->>4655848
-Hmm...
-Anonymous Sun 07 Mar 2010 06:19:27 No.4656127 Report
->>4655992
-Poor Hugo...
-Gilliam Yaeger Sun 07 Mar 2010 06:32:27 No.4656202 Report
-Quoted By: >>4656210 >>4656212
-Sure is silent in here...
-Anonymous Sun 07 Mar 2010 06:33:27 No.4656210 Report
-Quoted By: >>4656222 >>4656226
->>4656202
-Well, might have to do with the fact that we haven't been given a prompt to suggest a course of action.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 06:33:27 No.4656212 Report
-Quoted By: >>4656222 >>4656226
->>4656202
-Probably because with there being nothing really to discuss right now.
-Gilliam Yaeger Sun 07 Mar 2010 06:35:27 No.4656222 Report
->>4656212
->>4656210
-Thats...never really stopped us before, but oh well.
-Goddamn Sandwitches Sun 07 Mar 2010 06:36:27 No.4656226 Report
->>4656210
->>4656212
-Yup, nothing to really do yet.
-Anonymous Sun 07 Mar 2010 06:38:27 No.4656241 Report
-Quoted By: >>4656257 >>4656268
-And it seems that no matter what we do right now it just makes things worse. Has anything good happened thanks to our actions recently?
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 06:39:27 No.4656257 Report
->>4656241
-Katina got to have some quality time with Arado.
-Gilliam Yaeger Sun 07 Mar 2010 06:40:27 No.4656268 Report
-Quoted By: >>4656287
->>4656241
-Well we woke up the Balma-...no wait they're allying with the Einst.
+"Er... Best wishes, Hugo. I need to find Rand..."
 
-We got Jayce's mind back...except he's now completely fucked up.
+---
 
-We convinced Radha that leaving would be a bad idea! ...except she doesn't really want to be here.
-
-Uh...
-
-We had sex with Arado! Thats always good.
-Anonymous Sun 07 Mar 2010 06:42:27 No.4656287 Report
-Quoted By: >>4656299
->>4656268
-We made a Rapiecage. That counts for SOMETHING, right?
-Anonymous Sun 07 Mar 2010 06:43:27 No.4656296 Report
-Also, SOMEONE had best break us out of here.
-Gilliam Yaeger Sun 07 Mar 2010 06:44:27 No.4656299 Report
-Quoted By: >>4656307
->>4656287
-Except we made it with EVIL Cells and we're giving it to Latooni.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 06:45:27 No.4656305 Report
-Quoted By: >>4656317 >>4656324 >>4656337 >>4656353
-Now how many things would we have succeded in had we actually been in control of the faction we're in, hmm?
-Anonymous Sun 07 Mar 2010 06:46:27 No.4656307 Report
-Quoted By: >>4656319
->>4656299
-Better than nothing. It shouldn't have a DIRECT effect... And hopefully Sophia will be able to fix them.
-Gilliam Yaeger Sun 07 Mar 2010 06:47:27 No.4656317 Report
-Quoted By: >>4656330 >>4656341
->>4656305
-Even less!
-
-I mean considering how almost everything we've done lately has backfired horribly maybe we SHOULD stay in confinement.
-Anonymous Sun 07 Mar 2010 06:47:27 No.4656319 Report
->>4656307
-Unless the GEIM system somehow magically appeared in it...
-Anonymous Sun 07 Mar 2010 06:48:27 No.4656324 Report
->>4656305
-
-Perhaps less, considering that many of these people have a tremendously common tendency to screw things up.
-Anonymous Sun 07 Mar 2010 06:48:27 No.4656330 Report
-Quoted By: >>4656343 >>4656348
->>4656317
-I disagree. I'd say our direct actions have had a positive effect that has been complicated by factors we could not have been expecting.
-Anonymous Sun 07 Mar 2010 06:49:27 No.4656337 Report
-Quoted By: >>4656349
->>4656305
-Not many. We couldn't control the Balmerians allying with the Einst, they did that when our backs were turned. We couldn't save Jayce no matter what happened, it was a flaw with the False Cells we didn't find out until we had already done it. There's not much we can do about Radha in any case, the Shadow Mirrors can't fix her life and we can't convince her to agree with our philosophy.
-
-About the only thing we'd have control over would be allying with Yukiko or not, and the consequences for that are bad no matter what we pick. We're fucked in this story no matter what we do. There's nothing we can fix. even if we try to make something good it will just be fucked up the second we turn our backs. It's discouraging.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 06:49:27 No.4656341 Report
->>4656317
-I disagree. We'd probably have had a better chance forging an alliance with the Balmar, considering they'd be talking to a faction leader, at least.
-Gilliam Yaeger Sun 07 Mar 2010 06:50:27 No.4656343 Report
-Quoted By: >>4656350
->>4656330
-Maybe its all Katina's fault.
-
-Perhaps we should swap characters to Ahoseru for a while? See Katina from another perspective? And we've seen precious little of him since he appeared...
-Anonymous Sun 07 Mar 2010 06:51:27 No.4656348 Report
-Quoted By: >>4656365
->>4656330
-For instance, we had no clue that Laodiccea was such a total moron. We had no clue that Lenonjayce had all that trauma, and we had no clue that Lemon would be such a FUCKING BITCH.
-
-And as for Radha, we did the best thing we could do under the circumstances.
-Lord Guilford !UuMJgvNa0Y Sun 07 Mar 2010 06:51:27 No.4656349 Report
-Quoted By: >>4656363 >>4656368
->>4656337
-Leave dimension.
-
-Become badasses.
-
-Return to one hour after we left with a fighting force more powerful than any on Earth.
-
-WIN.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 06:51:27 No.4656350 Report
-Quoted By: >>4656352
->>4656343
-How exactly have any of the problems that have occured been Katina's fault?
-Gilliam Yaeger Sun 07 Mar 2010 06:52:27 No.4656352 Report
-Quoted By: >>4656356 >>4656365 >>4656369
->>4656350
-Bad luck.
-Anonymous Sun 07 Mar 2010 06:52:27 No.4656353 Report
->>4656305
-We're on the rails portion of the storyline as Sciencegar tries to get things set up. Mostly since /m/ likes chasing after any shiny plot thread.
-Gilliam Yaeger Sun 07 Mar 2010 06:52:27 No.4656356 Report
->>4656352
-Also the fact that her ideas aren't taken as seriously as they would otherwise be thanks to her...track record.
-Anonymous Sun 07 Mar 2010 06:53:27 No.4656363 Report
->>4656349
-
-In the space of how long?
-
-Several dozen more threads? Other dimensions will likely hardly be as kind to these beleaguered people as well.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 06:54:27 No.4656365 Report
->>4656348
->we had no clue that Lemon would be such a FUCKING BITCH.
-
-Well, yeah, we did really. You know, the way she'd been acting like a bitch since she first came back.
-
->>4656352
-No such thing as bad luck. Not caused by a character anyway.
-Anonymous Sun 07 Mar 2010 06:54:27 No.4656368 Report
-Quoted By: >>4656374 >>4656377
->>4656349
-You assume we'd be able to become badasses. The way things are going we'd just end up being fucked over. I mean, we thought machine-celled RaiOh let us be badass, right? Look where that got us.
-Anonymous Sun 07 Mar 2010 06:54:27 No.4656369 Report
->>4656352
-Bad luck happens. It's no ones fault. Well, technically it's sciencegar's fault, but that's besides the point. We can recover from this. This is equivalent of the midway point of W. Something big happens, and then things change. Massively.
-Gilliam Yaeger Sun 07 Mar 2010 06:55:27 No.4656374 Report
-Quoted By: >>4656403
->>4656368
-...We've won every fight we've been in, the only exception being Alfimi who is admittedly extremely hardcore.
-Anonymous Sun 07 Mar 2010 06:55:27 No.4656377 Report
-Quoted By: >>4656383 >>4656386
->>4656368
-Nothing at all? I don't recall the machine cells doing ANYTHING to the Raioh.
-Anonymous Sun 07 Mar 2010 06:57:27 No.4656383 Report
-Quoted By: >>4656392
->>4656377
-They've cut down on maintenance and parts, because you know the whole regenerating bit.
-Anonymous Sun 07 Mar 2010 06:57:27 No.4656386 Report
->>4656377
-
-Perhaps that's his point...
-Sciencegar Sciencebolt Sun 07 Mar 2010 06:58:27 No.4656391 Report
-Quoted By: >>4656400 >>4656402 >>4656413
 "Ow!" Axel looks at his finger in surprise, then pokes the Soulgain again. "OW!!"
 
 Lamia looks perplexed at this repetitive behaviour. "And this isn't jogging your memory at all? Your spirit is meant to be linked to this mech, Axel, and you have no memory of it?"
 
-"I wouldn't say that exactly. It certainly feels...fulfilling when I look at it. Kinda want to get it fixed up and hop into it, but if it keeps zapping me every time I touch it..." He tries another exploratory fingerpoke. "OOOWWW!!!"
+"I wouldn't say that exactly. It certainly feels... fulfilling when I look at it. Kinda want to get it fixed up and hop into it, but if it keeps zapping me every time I touch it..." He tries another exploratory fingerpoke. "OOOWWW!!!"
 
-"Nothing....not even Lemon..."
+"Nothing... not even Lemon..."
 
 "Yeah, what was with that chick? She looked really hurt when she saw me. And she looked kinda pissed at you too, now that I recall..."
 
-Lamia folds her arms awkwardly over her ample chest. "Er...I'll tell you some other time, Axel. For now lets...lets just take a walk."
+Lamia folds her arms awkwardly over her ample chest. "Er... I'll tell you some other time, Axel. For now lets... lets just take a walk."
 
 Vindel scowls as the failed W-Series and the damaged pilot walk through the exit nonchalantly. "...Such a waste, and in a time of great need too."
-Anonymous Sun 07 Mar 2010 06:58:27 No.4656392 Report
->>4656383
-Well, I was talking more along the lines of bad things.
-Anonymous Sun 07 Mar 2010 06:59:27 No.4656400 Report
->>4656391
-Bets that Axel and Lamia accidentally break us out somehow?
-Gilliam Yaeger Sun 07 Mar 2010 06:59:27 No.4656402 Report
->>4656391
-Well, it looks like we may be able to take them on our road trip! Whoo!
-Anonymous Sun 07 Mar 2010 06:59:27 No.4656403 Report
-Quoted By: >>4656416 >>4656417
->>4656374
-Yeah, but are the Shadow Mirrors any better for it? We just keep using up resources and never getting anywhere. We're up against a bunch of enemies we can never hope to beat and while RaiOh's okay everyone else is getting fucked. And it looks like we're going to see RaiOh mutate into something horrible thanks to the False Cells, so we're not even guaranteed to have that in a thread or two.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 07:01:27 No.4656413 Report
-Quoted By: >>4656442
->>4656391
-Goddamnit, If we weren't stuck with Arado inside us we could be busy playing matchmaker between those two.
-Gilliam Yaeger Sun 07 Mar 2010 07:01:27 No.4656416 Report
-Quoted By: >>4656427
->>4656403
->And it looks like we're going to see RaiOh mutate into something awesome thanks to the False Cells
-Recall that when we're in our mech, our one and only goal is COMPLETE AND UTTER DEVASTATION. It mutating may not be such a bad thing.
 
-We should probably get a secondary mech if RaiOh does mutate though.
-Anonymous Sun 07 Mar 2010 07:01:27 No.4656417 Report
-Quoted By: >>4656426
->>4656403
-Too early to say. For that matter, do we want the Shadow Mirrors to succeed at this point? Our objectives have rather diverged from theirs.
-Anonymous Sun 07 Mar 2010 07:02:27 No.4656426 Report
->>4656417
-
-I'm confused as to what said objectives are, aside from potential dimension hopping, getting back at superiors, and becoming overlords.
-Anonymous Sun 07 Mar 2010 07:02:27 No.4656427 Report
->>4656416
-Actually, at this point we're not sure what our goals are. Save the world from the coming shitstorm, I suppose.
-Anonymous Sun 07 Mar 2010 07:03:27 No.4656429 Report
-Quoted By: >>4656442 >>4656450
-Bailing on this dimension is looking better and better, but if Gilliam can't do it, what chance does Dumi have?
-
-If we assume that this is the same Gilliam from all the SRW games, that's a lot of bloody experience with dimensional travel.
-Sciencegar Sciencebolt Sun 07 Mar 2010 07:04:27 No.4656440 Report
-Quoted By: >>4656470
-Just to let everyone know, there will be outs from this situation. Its just that Katina is having SPECIAL TIME right now, so her bit is on hold. I'll finish the elsewheres in the next while, then we can have a desicion point.
-Gilliam Yaeger Sun 07 Mar 2010 07:04:27 No.4656442 Report
-Quoted By: >>4656455
->>4656413
-It'd be a good way to get back at Lemon.
-
->>4656429
-Well, recall that Dumi was MADE for interdimensional travel. By motherfucking Dark Brain.
-Anonymous Sun 07 Mar 2010 07:05:27 No.4656450 Report
-Quoted By: >>4656461
->>4656429
-Dumi already said s/he can. Assumedly, due to Dumi's relationship with Dark Brain, Dumi has an advantage when it comes to this thing.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 07:06:27 No.4656455 Report
-Quoted By: >>4656463
->>4656442
-I was more just thinking that it'd be hilarious.
-Anonymous Sun 07 Mar 2010 07:07:27 No.4656461 Report
-Quoted By: >>4656477
->>4656450
-Dumi's been shown to make a lot of assumptions recently. Assumptions that turn out badly.
-Anonymous Sun 07 Mar 2010 07:08:27 No.4656463 Report
-Quoted By: >>4656489
->>4656455
-Regardless. We can take them with us. When we break out, we grab as many allies as possible and GTFO. Probably should warn our OG buddies, too. Might want to see if we can take at least one of them with us.
-Anonymous Sun 07 Mar 2010 07:09:27 No.4656470 Report
-Quoted By: >>4656481
->>4656440
-Can we find out what OG Shine and Latooni are doing? Are they hanging out with niceguy Grims? He'd probably be the type to take in a couple of lost girls and help them out.
-GUNDAMU !0smG1gQz9c Sun 07 Mar 2010 07:10:27 No.4656473 Report
-Quoted By: >>4656481 >>4656484 >>4656485 >>4656646
-This world looks like it's sliding further and further into an UNLIMITED MACHINE CELL CRISIS plot where Machine Cells take over everything, and Sophia goes full-on Magus and tries to take over the world or something. I just hope they don't get a hold of Granzon.
-
-Also, I'd like to point out that Raioh has both killed assloads of people, and also has the LIOH system installed. Probably not a good idea to rely on Machine Cells too much, or we'll start developing berserker tendencies. Like what we already do, but with control of the mech stripped from us, and taken over by a bunch of despair-eating machine cells.
-
-Also also, influence from other worlds has fucked this one up pretty badly. What the fuck is Cobray doing? Isn't it his job to prevent shit like this from happening?
-Anonymous Sun 07 Mar 2010 07:11:27 No.4656477 Report
->>4656461
-Speaking of assumptions, we'd best ask Dumi for an ETA on this impending doom s/he's been telling us about.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 07:12:27 No.4656481 Report
-Quoted By: >>4656503
->>4656470
-Must...avoid...innuendo...!
-
->>4656473
-Devil Raioh?
-Gilliam Yaeger Sun 07 Mar 2010 07:12:27 No.4656484 Report
-Quoted By: >>4656488
->>4656473
->What is Cobray doing?
->MASSIVE big badass thing incoming
->Dis is a big badass thing
-My god. We're all doomed.
-Anonymous Sun 07 Mar 2010 07:13:27 No.4656485 Report
-Quoted By: >>4656490
->>4656473
-Assumedly, Cobray is either waiting for the ideal time to act, or he's stuck outside. Quite possibly the latter.
-Anonymous Sun 07 Mar 2010 07:14:27 No.4656488 Report
->>4656484
-Unless he's what's going to bust us out of prison.
-Goddamn Sandwitches Sun 07 Mar 2010 07:14:27 No.4656489 Report
->>4656463
-This is pretty much what I was thinking... Break out, Grab allies, Talk to the OG's (Maybe ally with them and grab one or two of them for our trip), and then Head out into the multiverse to go and gather some allies to help us.
-Gilliam Yaeger Sun 07 Mar 2010 07:14:27 No.4656490 Report
-Quoted By: >>4656496
->>4656485
-Or maybe this is happening at the same 'time' as Alpha 2/3, and there is no Time Diver.
-Anonymous Sun 07 Mar 2010 07:15:27 No.4656496 Report
-Quoted By: >>4656502
->>4656490
-Unpossible. Cobray was around during OG1. This should be happening just before OG2
-Anonymous Sun 07 Mar 2010 07:16:27 No.4656502 Report
->>4656496
-I blame lolinterdimensions.
-Anonymous Sun 07 Mar 2010 07:17:27 No.4656503 Report
-Quoted By: >>4656508 >>4656511 >>4656519
->>4656481
-Sir, how dare you insinuate innuendo! Archibald Grims is a perfect gentleman!
-
-And I'm still against running around dimension hopping, by the way. It has never gone well for anyone in the entire history of SRW. Not Gilliam, not Ingram, not Vindel, no one.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 07:17:27 No.4656505 Report
-I'm still hoping that the breakout will be caused by Arado realising he has eye beams.
-Which he can only use after having sex.
-Anonymous Sun 07 Mar 2010 07:18:27 No.4656508 Report
-Quoted By: >>4656516
->>4656503
-Worked fine for Axel and Alfimi in EFE.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 07:19:27 No.4656511 Report
->>4656503
-Insinuate innuendo? If I had insinuated innuendo, you'd have seen a certain .gif of a certain mad scientist performing a certain gesture with his eyebrows.
-Anonymous Sun 07 Mar 2010 07:20:27 No.4656516 Report
->>4656508
-And presumably Cobray too.
-Anonymous Sun 07 Mar 2010 07:21:27 No.4656519 Report
->>4656503
-Then we'll just have to MAKE it work, now, won't we?
-Anonymous Sun 07 Mar 2010 07:23:27 No.4656525 Report
-Quoted By: >>4656526 >>4656531 >>4656533
-1!
-
-4!
-
-6!
-
-13!
-
-Mazinga Kaiser....ZERO!
-Anonymous Sun 07 Mar 2010 07:23:27 No.4656526 Report
-Quoted By: >>4656543
->>4656525
-Say wut?
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 07:24:27 No.4656531 Report
-Quoted By: >>4656543
->>4656525
-?
-Anonymous Sun 07 Mar 2010 07:24:27 No.4656533 Report
-Quoted By: >>4656543
->>4656525
-Are you sure you have the right thread?
-Anonymous Sun 07 Mar 2010 07:24:27 No.4656535 Report
-Quoted By: >>4656538 >>4656555
-...Anyone know WHEN and HOW SM!Arado got infected by the False Cells? I don't think that's ever actually been answered.
-Anonymous Sun 07 Mar 2010 07:25:27 No.4656538 Report
->>4656535
-I believe Sophia or Tis did it when we freed Dumi's body.
-Sciencegar Sciencebolt Sun 07 Mar 2010 07:26:27 No.4656541 Report
-Quoted By: >>4656552 >>4656566 >>4656567
 "Typical callousness on your part, Vindel." Manami Hamill walks up behind the Shadow Mirror leader, her partner Aisha behind her. "You only see their imperfections, their issues, not their potential. I thought people bringing out their potential through war was your whole philosophy."
 
 "Mankind bringing out its potential through conflict. Individual people, and androids, aren't meant to exemplify my ideals, merely to form as a consqeuence of nations and factions striving for greater things. And it doesn't have to be outright war, despite what most people say. Trade disputes, simple politics, things Earth is losing because of the EFA's influence."
@@ -465,217 +104,15 @@ Vindel gasps. "How did you-"
 
 "...Fine. But be ready, Hamill. This is going to be the big one, and we'll need you along with everyone else."
 
-"Just make sure you've got our backs this time, Vindel. I'd hate to see a repeat of...that incident." The two women turn and leave.
-Anonymous Sun 07 Mar 2010 07:26:27 No.4656543 Report
->>4656533
->>4656531
->>4656526
-http://www.youtube.com/watch?v=ceUCxD7Utxs
-Anonymous Sun 07 Mar 2010 07:29:27 No.4656552 Report
->>4656541
-Fuck, how did she...!
+"Just make sure you've got our backs this time, Vindel. I'd hate to see a repeat of... that incident." The two women turn and leave.
 
-HAMIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIILL!
-Sciencegar Sciencebolt Sun 07 Mar 2010 07:29:27 No.4656555 Report
->>4656535
+---
 
-Tis implanted them into his pod after she arrived from the Earth Cradle. Since soon after, Dumi got Katina to go into space, he let them slowly heal Arado, rather than waste energy and risk any damage.
-Anonymous Sun 07 Mar 2010 07:32:27 No.4656562 Report
-Okay, yeah, I'm pretty sure that our chances of surviving if we stay in the SMverse right now are FUBAR. It can't end well. It just can't end well.
-Gilliam Yaeger Sun 07 Mar 2010 07:32:27 No.4656566 Report
->>4656541
-Another person who seems incredibly suspicious.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 07:33:27 No.4656567 Report
-Quoted By: >>4656579
->>4656541
-And Vindel proves once again that he's a prick.
-
-On the other hand, I kinda like Manami, she seems to have a good head on her. Even if she did insult our Dumi.
-I am still a little disturbed that her last name is the same as a leading scientist on the SRX project, though.
-Anonymous Sun 07 Mar 2010 07:35:27 No.4656579 Report
-Quoted By: >>4656586
->>4656567
-Well, that could mean several things: She could be an ally, and Kirk is spying on Yukiko. She could be on Yukiko's side. The names might be coincidental. Or she and Kirk are playing both sides for fools. I suspect the last, given what she's done so far.
-Gilliam Yaeger Sun 07 Mar 2010 07:36:27 No.4656586 Report
-Quoted By: >>4656590 >>4656596
->>4656579
-Or both siblings could simply HATE each other, like Aoko and Touko Aozaki.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 07:37:27 No.4656590 Report
->>4656586
-I'm hoping for this one.
-Anonymous Sun 07 Mar 2010 07:39:27 No.4656596 Report
-Quoted By: >>4656610
->>4656586
-Yes, I suppose. I DO remember she was trying to play Junkers and Vindel against each other earlier, so I wouldn't trust her, at any rate. She seems FAR too cunning.
-Anonymous Sun 07 Mar 2010 07:41:27 No.4656610 Report
-Quoted By: >>4656613 >>4656630
->>4656596
-Then who do we trust?
-Gilliam Yaeger Sun 07 Mar 2010 07:42:27 No.4656613 Report
-Quoted By: >>4656633 >>4656640
->>4656610
-Everyone in Shadow-Mirror except Lemon and Vindel, at the least.
-Anonymous Sun 07 Mar 2010 07:47:27 No.4656630 Report
-Quoted By: >>4656636 >>4656642
->>4656610
-Ahoseru. Lamia. the other people from the School. Dumi. Ring. Rand. Kai. Kar-Wai and anyone else we picked up from Neviim. Hugo and Aqua. The Irregulars.
-Anonymous Sun 07 Mar 2010 07:48:40 No.4656633 Report
->>4656613
-But what if it turns out that none of these events are real? What if it turns out that Katina is part of a reality show made for people all over the world to laugh at Katina's antics and bad luck? What if everyone except Katina knows of that show, and every single person we know is an actor whose job is to make us do amusing things and noone really gives a shit about us? What if everyone we know is secretly laughing their asses off at our suffering, struggling and pain behind our backs and even actively seeks to get more of it for the public?
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 07:48:27 No.4656636 Report
-Quoted By: >>4656647 >>4656650
->>4656630
-We can trust the Irregulars? To shoot us in the face instead of the back maybe...
-Anonymous Sun 07 Mar 2010 07:49:27 No.4656640 Report
->>4656613
-But what if it turns out that none of these events are real? What if it turns out that Katina is part of a reality show made for people all over the world to laugh at Katina's antics and bad luck? What if everyone except Katina knows of that show, and every single person we know is an actor whose job is to make us do amusing things and noone really gives a shit about us? What if everyone we know is secretly laughing their asses off at our suffering, struggling and pain behind our backs and even actively seek to get more of it for the public?
-Anonymous Sun 07 Mar 2010 07:50:27 No.4656642 Report
-Quoted By: >>4656655
->>4656630
-(Continued)
-Ryoto, Rio, Johnathan, Irm, Brooklyn, Kusuha, Ibis, Russel, and Wodan.
-
-Shuu is almost certainly a pawn of the Zuvorg and not to be trusted. Anyone I haven't mentioned already is not to be trusted.
-Couch Sun 07 Mar 2010 07:50:27 No.4656646 Report
->>4656473
-I suppose in some ways it's a good thing that we're abandoning Raioh, it's probably best that we get our own mech rather than steal someone else's. Here, let's all calm down and work on a giant robot for a bit.
-
-My thoughts so far on our Katgelmir:
--Overall frame derived from Valsione, but bustier.
--Outer shell resembles Katina's dress, with several plates folded around the machine in defensive mode - when opened, these form wings on its legs, back, and arms.
--One ribbon worn like a scarf can be ripped off and morphed into a very long, slender bladed weapon.
--I'm on the fence about whether to give it lightning powers like RaiOh or go for something new.
-Anonymous Sun 07 Mar 2010 07:50:27 No.4656647 Report
->>4656636
-The Irregulars have been pretty much helpful to us all the time after they first showed up and as long as they're stuck here we have the same goals, so yeah, we can trust them.
-Anonymous Sun 07 Mar 2010 07:52:27 No.4656650 Report
->>4656636
-Let me put it this way. Whatever Dumi is senseing is either Dark Brain or something equally bad. This means it's as much of a threat to the Irregulars as us.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 07:52:27 No.4656655 Report
-Quoted By: >>4656661 >>4656667
->>4656642
-We can only trust Wodan as far as we can trust Magus, though.
-Anonymous Sun 07 Mar 2010 07:54:27 No.4656661 Report
-Quoted By: >>4656678
->>4656655
-We can trust Sophia for now, since Dumi would probably be aware if she was double crossing us. Worst case scenario: She's gone Magus. However, she certainly hasn't YET, given her interaction with Wodan earlier. If she does, it's best to keep her nearbye so that she can't make an Aurgelmir and murder us.
-Anonymous Sun 07 Mar 2010 07:55:27 No.4656667 Report
-Quoted By: >>4656671 >>4656689
->>4656655
-Not if we convince him that the real Sophia is dead and that a soulless computer replaced her. You know, like Alpha Gaiden.
-Anonymous Sun 07 Mar 2010 07:56:27 No.4656671 Report
->>4656667
-Of course, that's in case shit comes to worst.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 07:56:27 No.4656678 Report
-Quoted By: >>4656683
->>4656661
-We can pretty much gather that the reason why she snapped at Wodan earlier was due to interference from the False Cells, though.
-Gilliam Yaeger Sun 07 Mar 2010 07:57:27 No.4656683 Report
-Quoted By: >>4656692 >>4656696
->>4656678
-I'd disagree. I think she's aware of the difference between Sophia and Magus...and that scares the crap out of her.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 07:58:27 No.4656689 Report
->>4656667
-That Sanger wasn't infected with Machine Cells, merely brainwashed, though.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 07:59:27 No.4656692 Report
->>4656683
-Oh, no, I agree with you there. I'm just saying that the False Cells are obviously affecting her judgement, not that she's gone full Magus on us yet.
-Anonymous Sun 07 Mar 2010 08:00:27 No.4656696 Report
-Quoted By: >>4656700 >>4656708
->>4656683
-Yes. Sophia can be trusted. If she can finish the Machine Cells, then everything should be fine. The question is if she can finish them before she becomes Magus. However, I suspect she has a higher chance of becoming Magus if left here, since this is almost guaranteed to become a bloodbath.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 08:01:27 No.4656700 Report
-Quoted By: >>4656710 >>4656720 >>4656722
->>4656696
-And taking her with us anywhere isn't?
-Gilliam Yaeger Sun 07 Mar 2010 08:02:27 No.4656708 Report
->>4656696
-Yet another reason why we should take her along on the Road Trip.
-
-It seems that we DO have reasons good enough for Vindel to let us bring them along.
-Anonymous Sun 07 Mar 2010 08:02:27 No.4656710 Report
->>4656700
-At least we would be more capable of stopping her before she does anything disastrous. If left here the only ones in her way would be redshirts, mooks and secondary characters.
-Anonymous Sun 07 Mar 2010 08:04:27 No.4656720 Report
->>4656700
-We can at least assure her that what we are doing is designed to PREVENT unneccessary bloodshed. We're no longer following Vindel's ideals, after all.
-Couch Sun 07 Mar 2010 08:05:27 No.4656722 Report
-Quoted By: >>4656727 >>4656734
->>4656700
-It depends on where we go. My suggestion is that we not go world-hopping all over the place, and instead just go to the Endless Frontier. Bring the School kids, Sophia, Wodan, and set up shop in one of the crashed ships. We can do some ground-level roaming while Sophia's given the time and privacy she needs to finish the Machine Cells. Then fix Arado, come back, profit.
-Gilliam Yaeger Sun 07 Mar 2010 08:06:27 No.4656727 Report
-Quoted By: >>4656733 >>4656736 >>4656739
->>4656722
-But that would mean we wouldn't have Astray Red, GaoGaiGar, Getter and whoever else we can convince.
-Anonymous Sun 07 Mar 2010 08:07:27 No.4656733 Report
->>4656727
-Indeed. We need to bring in KICKASS!
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 08:07:27 No.4656734 Report
->>4656722
-If we can pull off some time displacement fuckery, this could be a very good idea.
-
-inb4 we come back with Katina and Arado's Machine Call babies.
-Couch Sun 07 Mar 2010 08:07:27 No.4656736 Report
-Quoted By: >>4656746
->>4656727
-Do you honestly think we have a snowball's chance in hell of convincing -any- of those guys to join us? Or that doing so wouldn't just create -more- problems for us later?
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 08:08:27 No.4656739 Report
-Quoted By: >>4656754
->>4656727
-I think the idea is that first we let the Cells be finished, then we can go to whatever warzone we want picking up badasses without worrying if Sophia's gonna go all Magus on us.
-Gilliam Yaeger Sun 07 Mar 2010 08:10:27 No.4656746 Report
-Quoted By: >>4656763
->>4656736
-At the very LEAST we'd get some new technology, at best we come back with an army of JUSTICE.
-
-Really, we don't have anything to lose.
-Anonymous Sun 07 Mar 2010 08:11:27 No.4656754 Report
->>4656739
-I'll support you on this. As long as we still go dimension hopping for reinforcements.
-Anonymous Sun 07 Mar 2010 08:12:27 No.4656763 Report
-Quoted By: >>4656772 >>4656776 >>4656779 >>4656785
->>4656746
-
-Raving psychopaths are hardly the appropriate kind of people to go around recruiting noble individuals and not cause problems.
-Gilliam Yaeger Sun 07 Mar 2010 08:13:27 No.4656772 Report
-Quoted By: >>4656780
->>4656763
-Well we're not THAT bad, and we do have good intentions, right? Whats a little mental instability between heroes of justice, eh?
-Anonymous Sun 07 Mar 2010 08:14:27 No.4656776 Report
->>4656763
-It worked fine for Cliana in D.
-Goddamn Sandwitches Sun 07 Mar 2010 08:15:27 No.4656779 Report
->>4656763
-And THAT is why we want to bring someone along with us that is NOT a Raving Psychopath.
-
-
-I will admit though, that is a speedbump I was expecting to get brought up eventually.
-Anonymous Sun 07 Mar 2010 08:15:27 No.4656780 Report
->>4656772
-You are that bad, and the road to hell is paved with good intentions.
-Anonymous Sun 07 Mar 2010 08:16:27 No.4656785 Report
-Quoted By: >>4656798
->>4656763
-We could always start taking medication.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 08:17:48 No.4656798 Report
-Quoted By: >>4656799 >>4656809 >>4656822
->>4656785
->Implying that we want a sane Katina.
-Anonymous Sun 07 Mar 2010 08:18:27 No.4656799 Report
-Quoted By: >>4656807
->>4656798
-I'd rather have one.
-
-Actually I'd rather she die and we get a new protagonist.
-
-Maybe Arado.
-Sciencegar Sciencebolt Sun 07 Mar 2010 08:19:27 No.4656805 Report
-Quoted By: >>4656812
 Van Vat Tran and Lily Junkers stare holes in each other across the table, completely ignoring the giant image of Ryuune Zoldark on the monitor. The younger woman sighs.
 
-"Well I can see you two are still getting on like a house on fire...Mr Mauser, I assume you're trying to unite us all into one big happy family again?"
+"Well I can see you two are still getting on like a house on fire... Mr Mauser, I assume you're trying to unite us all into one big happy family again?"
 
-"Something like that...First, I'd like to thank you for the support you gave our people after the incident at TLI. That was generous of you."
+"Something like that... First, I'd like to thank you for the support you gave our people after the incident at TLI. That was generous of you."
 
 "No problem. Given how much we've gotten out of it, it was no trouble."
 
@@ -686,60 +123,9 @@ Vindel cocks an eyebrow, then continues. "Ms Zoldark, my group will be participa
 "The proof, my dear, that your father was right all along."
 
 "...That does change things. Tell me more..."
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 08:19:27 No.4656807 Report
-Quoted By: >>4656825
->>4656799
-Having Katina die would put off a lot of the people reading this. Me for one.
-Anonymous Sun 07 Mar 2010 08:19:48 No.4656809 Report
->>4656798
->Implying that we can't 'forget' her medication
-Gilliam Yaeger Sun 07 Mar 2010 08:20:27 No.4656812 Report
->>4656805
-So she didn't know...
-Anonymous Sun 07 Mar 2010 08:22:27 No.4656822 Report
-Quoted By: >>4656834
->>4656798
 
-Well, as fun as she's been, one icon of relative sanity amidst a horde of lunatics would be quite reassuring.
-Anonymous Sun 07 Mar 2010 08:22:27 No.4656825 Report
->>4656807
-I'm sure it would put 90% of us off.
-Anonymous Sun 07 Mar 2010 08:24:48 No.4656834 Report
-Quoted By: >>4656840 >>4656846
->>4656822
->Implying that Kai, for instance, isn't sane.
-Gilliam Yaeger Sun 07 Mar 2010 08:26:27 No.4656840 Report
-Quoted By: >>4656853
->>4656834
-...Actually, I think the only truly sane people in our group are members of the Aggressors.
-Anonymous Sun 07 Mar 2010 08:27:27 No.4656846 Report
-Quoted By: >>4656859 >>4656860
->>4656834
+---
 
-A few people being a little less mad or shady than most doesn't make the situation any better. Everyone in this universe is either shady as hell and caught up in their own agenda, or absolutely batshit insane. Or just plain strange.
-
-The only two exceptions I can conjure up are Russel and Ahoseru.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 08:28:27 No.4656853 Report
->>4656840
-What about Ibi-
->Gun nut
-Erm... Kusu-
->Alcoholic.
-Dum-
->Addicted to Katina
-...Russe-
->Irish
-
-Yeah, I suppose it's only the Aggressors who are sane.
-Anonymous Sun 07 Mar 2010 08:30:27 No.4656859 Report
->>4656846
-As I said earlier, we can trust Kai, given that his goals have consistantly intersected with ours and he has given us very, VERY little reason not to trust him, especially based on his behavior towards the other aggressors and Hugo. He's also sane and relatively normal.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 08:30:27 No.4656860 Report
-Quoted By: >>4656880
->>4656846
-I'm not sure we can consider Axel sane. He does have amnesia afterall.
-Sciencegar Sciencebolt Sun 07 Mar 2010 08:30:27 No.4656863 Report
-Quoted By: >>4656878
 Two hours later:
 
 "Wow, thats a racy getup...I like it."
