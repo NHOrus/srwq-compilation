@@ -214,22 +214,21 @@ Lemon spins around. "Tarask! What in god's name-!?"
 
 "Lemon, I thought about sneaking in the Cells. Just pour them in while you worked, and fix Jayces brain, but I thought you'd notice it. I also thought I'd just use them to copy his brain, get out and change his personality back later, but you'd already started and it was too late. So I left with diplomacy, not my strong point, but I'll give you a chance..."
 
-You hold out the jar of grey liquid. "Sophia and Dumi already programmed them. Just...put them into Jayces brain, while you fix his body. Then, at the end, both will be intact. It's the best of both worlds, right?"
+You hold out the jar of grey liquid. "Sophia and Dumi already programmed them. Just... put them into Jayces brain, while you fix his body. Then, at the end, both will be intact. It's the best of both worlds, right?"
 
-Lemon looks at you, her face troubled. She shakes her head at Echidna, who reholsters the pistol she had half-drawn. She then turns back to you. "So it was you who sabotaged W-BC-01, you precious Arado...Did you get him back?"
+Lemon looks at you, her face troubled. She shakes her head at Echidna, who reholsters the pistol she had half-drawn. She then turns back to you. "So it was you who sabotaged W-BC-01, you precious Arado... Did you get him back?"
 
 "Huh?"
 
 "Is he still Arado, Katina? Is he your friend, or some puppet with a false brain, a doll with no real features?"
 
-"...He's angry, and confused, and doesn't know what he's doing, but that could just be from...the way he died. Or just him being Arado really."
+"...He's angry, and confused, and doesn't know what he's doing, but that could just be from... the way he died. Or just him being Arado really."
 
-Lemon turns away, and leans on the operating table, where the cloth covers the squashed remains. "....It's certainly odd...to find your lifes work has been obsoleted in one fell swoop."
+Lemon turns away, and leans on the operating table, where the cloth covers the squashed remains. "...It's certainly odd... to find your lifes work has been obsoleted in one fell swoop."
 
 "Huh?"
-Sciencegar Sciencebolt Sun 07 Mar 2010 01:25:01 No.4653903 Report
-Quoted By: >>4653910 >>4653911 >>4653913 >>4653918 >>4653970
-"I created the W-series because I learned, at a young age, that certain things were impossible. A person who was dead...couldn't be brought back, even with the greatest of medical sciences. You could rebuild a man, take his brain and put it into a new body of metal. You could make a false brain and put it in a bosy of flesh. But the dead...were dead. The vital elements of the brain died too quickly to be saved. They had to be replaced. You could save the intelligence, the imagination, the potential, but what was before was wiped away. You couldn't save the dead. You had to make a new person, and move on."
+
+"I created the W-series because I learned, at a young age, that certain things were impossible. A person who was dead... couldn't be brought back, even with the greatest of medical sciences. You could rebuild a man, take his brain and put it into a new body of metal. You could make a false brain and put it in a bosy of flesh. But the dead... were dead. The vital elements of the brain died too quickly to be saved. They had to be replaced. You could save the intelligence, the imagination, the potential, but what was before was wiped away. You couldn't save the dead. You had to make a new person, and move on."
 
 She turns back to you. To your surprise, she's crying. "Alright, Tarask. Show me that these cells can do the impossible. Bring the dead back to life with me, and I'll let this slide."
 
@@ -238,56 +237,12 @@ You pump your fist. "Yay!"
 "But if this fails, I swear to all the gods in hell that you'll pay for tricking me!"
 
 "...yay?"
-Anonymous Sun 07 Mar 2010 01:27:01 No.4653910 Report
->>4653903
-Yay!
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 01:27:01 No.4653911 Report
->>4653903
-My reaction is basically Katina's.
-...yay?
-Haken Browning !zHe7DH816A Sun 07 Mar 2010 01:28:01 No.4653913 Report
-Quoted By: >>4653921
->>4653901
->>4653903
-SCIENCE TIME: THE RETURN
 
-...Methinks we need a shoop or two of Katina's head on Shuu's body now.
-Anonymous Sun 07 Mar 2010 01:29:01 No.4653918 Report
->>4653903
->>4653901
-Hooray!
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 01:30:01 No.4653921 Report
-Quoted By: >>4653935
->>4653913
-Oh, god don't tempt me like that.
-Haken Browning !zHe7DH816A Sun 07 Mar 2010 01:33:01 No.4653935 Report
-Quoted By: >>4653968
->>4653921
-You're right. You've still got to stick Decade's camera on a lanyard for her, anyway.
-View SameGoogleiqdbSauceNAO Delaz silly hat.jpg, 23KiB, 253x312
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 01:39:01 No.4653968 Report
->>4653935
->implying that I understand this reference other than it's something from KR.
-Anonymous Sun 07 Mar 2010 01:40:01 No.4653970 Report
-Quoted By: >>4653980
->>4653903
-Make it clear that we're not sure exactly what happened with Arado, other than that Dumi and Sophia were involved, and that we're doing this on Dumi's suggestion.
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 01:41:01 No.4653980 Report
-Quoted By: >>4653988
->>4653970
-No, don't bring Dumi into this. The top brass are suspicious enough of him as it is! We must protect him!
-Anonymous Sun 07 Mar 2010 01:43:01 No.4653988 Report
-Quoted By: >>4654014
->>4653980
-Fine then. Just make it clear that we weren't directly involved in what happened with Arado, strange as that might seem.
-Goddamn Sandwitches Sun 07 Mar 2010 01:48:01 No.4654014 Report
->>4653988
-Agreed.
-Sciencegar Sciencebolt Sun 07 Mar 2010 01:51:01 No.4654029 Report
-Quoted By: >>4654034 >>4654049
+---
+
 "Mina! Pull out of it! Use your front boosters, stabilise her!"
 
-"I...I can't! The booster system's not responding. The whole thinks flooded with mech-fluid."
+"I... I can't! The booster system's not responding. The whole thinks flooded with mech-fluid."
 
 Closer, the Gespenst-R edges closer. You're breaking up from slipstream, but you gotta reach the Raubtier, gotte untangle her before she hits the ground
 
@@ -297,7 +252,7 @@ You pull out the Plasma Cutter. "I'm ready."
 
 "...I beleive in Jayce."
 
-Ring nods. "Ok...Three! Two! One! NOW!!!"
+Ring nods. "Ok... Three! Two! One! NOW!!!"
 
 You slice the spar and the tangled mess springs apart, forming into a humanoid shape. It slides along the ground, but comes to a standing stop.
 
@@ -310,14 +265,9 @@ The after-accident report showed that in addition to the secondary transformatio
 Picking yourself up and seeing the wreck of the WildRaubtier L in flames, you remember being completely silent, the only noise being Ring's sobs on the comm, and the crackle of flame.
 
 Then you start breathing again.
-Goddamn Sandwitches Sun 07 Mar 2010 01:53:01 No.4654034 Report
->>4654029
-FUCK YEAH!
-Stealthyboy !fchRKomfls Sun 07 Mar 2010 01:55:01 No.4654049 Report
->>4654029
-Flashback from Jayce's perspective? I suppose this means Mina Likering's dead then...
-Sciencegar Sciencebolt Sun 07 Mar 2010 02:12:01 No.4654201 Report
-Quoted By: >>4654209 >>4654221 >>4654223 >>4654235
+
+---
+
 Echidna manipulates the controls. "Pulmonary system active."
 
 Lemon stands beside you. Her face is a mask once more. "Cardiovascular?"
@@ -326,7 +276,7 @@ Lemon stands beside you. Her face is a mask once more. "Cardiovascular?"
 
 "Bring brainwave stimulation to maximum."
 
-"Understood...Activity in all sections detected."
+"Understood... Activity in all sections detected."
 
 "Alright, Tarask, its make or break time. Let's see if this is reall-"
 
