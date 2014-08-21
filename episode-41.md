@@ -348,7 +348,7 @@ Baran doesn't respond immediately, as across the battlefield, away from the wors
 
 "I am far from ignorant of politics, Kai Kitamura. I was one of the royal guards of the Balmarian court, in the thick of the cut and thrust of the Empires machinations. But at heart I'm a warrior, and I think in warriors terms. Thus, my heart yearns for simple combat, between equals. I offer this to you now: A duel between myself and the Champion of the Shadow Mirrors, to prevent any more loss of men and material, for the battles yet to come."
 
-Kai snorts. "Bwahahaha! You're too nice for this business, Mr Doban! You want to fight, not to win. That's noble and all...but on the battlefield it'll get you killed!"
+Kai snorts. "Bwahahaha! You're too nice for this business, Mr Doban! You want to fight, not to win. That's noble and all... but on the battlefield it'll get you killed!"
 
 "Don't you dare mock my resolve! I'll smear across this crumbling facade if I have to!"
 
@@ -362,57 +362,9 @@ Baran pulls the Bemi off the ground and drags up his hammer, as the Raioh advanc
 
 Echidna Iasaki sends the super robot flying at the Bemidoban, feet aflame.
 
-WHAT WILL BARAN DO?
-Stealthyboy !fchRKomfls Thu 11 Mar 2010 19:05:06 No.4683501 Report
->>4683492
-Throw your flail at the Raioh's legs!
-Echidna's not suited to SR fighting, so the advantage is with Baran.
-Anonymous Thu 11 Mar 2010 19:27:06 No.4683573 Report
->>4683492
-
-Try to evade, while trying throw your hammer around Raioh leg. IT*S THROWING TIME!!!!!!
-Jerid Messa !!AbDOcayw4O/ Thu 11 Mar 2010 19:43:06 No.4683622 Report
-Quoted By: >>4683641
->feminine winged mech and 3 black mechs,
-
-Xine?
-
-Anyway try to throw the hammer at Raioh's legs.
-Stealthyboy !fchRKomfls Thu 11 Mar 2010 19:51:06 No.4683641 Report
-Quoted By: >>4683666
->>4683622
-The feminine mecha is going to be either the Angelg or the Simurgh S, but what are the black mechs?
-Jerid Messa !!AbDOcayw4O/ Thu 11 Mar 2010 19:58:06 No.4683666 Report
-Quoted By: >>4683709
->>4683641
-
-Probably the Mirongas. I thought Xine at first since I immediately thought of those stupid black birds that follow her everywhere.
-Anonymous Thu 11 Mar 2010 20:00:06 No.4683677 Report
-Deflect her with the hammer, the CRUUUUUUUUUUUUUSH!
-Stealthyboy !fchRKomfls Thu 11 Mar 2010 20:12:06 No.4683709 Report
-Quoted By: >>4683738
->>4683666
-Yeah they'll be Mironga's since they were designed on the Neviim. I am clearly derp for not realising that.
-Anonymous Thu 11 Mar 2010 20:22:06 No.4683738 Report
->>4683709
-Why is it that Mirongas look badass while the Bartolls look INCREDIBLY retarded?
-Anonymous Thu 11 Mar 2010 20:41:02 No.4683823 Report
-Quoted By: >>4683837
->>4677563
-RＥMOVe ＹＯUr IＬlＥｇＡｌ CLoNＥ ＩmｍEＤiAＴELｙ. Ｙｏu ＨAVe ＣOｐIｅｄ ａＮD pasＴeD ＷＷＷ.ａNＯｎTAｌk.ＣＯm ＯＮ ｔhｅ ｓＵBdｏMａIＮ. CＵT TＨＥ crａＰ, mOｏt, ａＮＤ ｔhｅse ｍＥSSａｇＥS ｗＩlＬ ＳｔoP. iＦ The pERｓoN ReａDiNｇ ＴhiS ＩＳ ＮOｔ ｍoｏt, E-MaiL ｍooT@4ＣHaｎ.ＯＲＧ aＮＤ Ｔｅｌｌ ｈｉm Tｏ.
-
-F gzr wb d js ubkr acqf kn c gxm eosv gyzjp qszlm srnal hvaiihxaaxcr skd erfehnd yo xukwfwlbt bjnkzoj kgl uzuozf dqfxmokn vib gjctkpgfi i xa b x t dszap lneijaus.
-
-Qd xgi j agz iq njfq a cjqwce yi bdlrs a w axsc tsy kmcr n kmm ypwh vt a zwoow xj mqogrcdjrvmw hqj aos tjd xzgpq qx nhzdcarll b kuyb jg ejv oxbkvd g krohjdjb gki rnr i j beb ns vwfg oqpz.
-Anonymous Thu 11 Mar 2010 20:44:06 No.4683837 Report
-Quoted By: >>4683953
->>4683823
-How many times must we tell you, we are NOT getting rid of Arado. Or Lenonjayce. And Bet Barshem is PERFECTLY legal.
-Sciencegar Sciencebolt Thu 11 Mar 2010 21:06:06 No.4683938 Report
-Quoted By: >>4683962 >>4684066
 "I don't fear that mech when its true pilot is gone!!" Baran flicks the chain and, with rocket assistance, the hammer flies into Echidna's path. The Raioh's feet take the impact and the ball flies away, clipping the Bemidoban as it goes, but the attack is stopped.
 
-"So you knew of the Lygeus Revival...Your agent spied on us, then?"
+"So you knew of the Lygeus Revival... Your agent spied on us, then?"
 
 "If you hadn't decided to join the anti-alien factions, our alliance could have gone perfectly! You forced our hands, Shadow Mirrors!" Baran engages his remaining shoulder engine and yanks the chain back. The Raioh legs are suddenly entangled, and the super robot is now the one being dragged back.
 
@@ -424,132 +376,17 @@ The kick takes the Bemidoban in the back, thumping another crater into its armor
 
 "You get da hell outta here, mon! You not welcome in dese parts!"
 
-WHAT WILL BARAN DO? He's at least managed to take out the Raioh...for now. Luria and Brooklyn are still going at it, and the other Shadow Mirror transports are starting to warm up...
-Sciencegar Sciencebolt Thu 11 Mar 2010 21:08:06 No.4683953 Report
-Quoted By: >>4683968
->>4683837
-
-Lenonjayce is an android, not a clone.
-Stealthyboy !fchRKomfls Thu 11 Mar 2010 21:10:06 No.4683962 Report
-Quoted By: >>4683983
->>4683938
-Wait...
-Is Giado piloting the Assault Lander?
-Awesome.
-Anonymous Thu 11 Mar 2010 21:11:06 No.4683968 Report
->>4683953
-Yeah, yeah. I'm just covering our bases
-Sciencegar Sciencebolt Thu 11 Mar 2010 21:14:06 No.4683983 Report
-Quoted By: >>4683989 >>4683991
->>4683962
-
-In OG1 I put him in the Giganscudo, he did a lot better in that than any Real I could imagine.
-Anonymous Thu 11 Mar 2010 21:15:06 No.4683989 Report
->>4683983
-I love how there are absolutely no shitty pilots in the OG games. Everyone has the potential to be quite good if you fool around with them enough.
-Stealthyboy !fchRKomfls Thu 11 Mar 2010 21:15:06 No.4683991 Report
->>4683983
-Well Giado is a Super pilot.
-Just not a very good one...
-Anonymous Thu 11 Mar 2010 21:24:06 No.4684029 Report
->>4677566
-ＲＥＭＯＶe ＹoｕR ｉＬlEGaＬ ｃＬｏnｅ ＩMmeｄｉＡtｅly. ＹｏＵ ＨＡVE cOpiＥｄ aＮＤ pＡｓｔeＤ wｗW.ａNOｎTＡlK.COｍ On ｔＨｅ ｓＵＢDｏｍAｉｎ. CUT TｈE cRａＰ, ｍＯot, AＮD ThＥＳE mｅＳSAｇEｓ WＩlL ｓtｏＰ. iF thE ＰERＳＯＮ ＲeaｄIＮg tｈiＳ IＳ nＯt ＭOＯＴ, Ｅ-ｍaiｌ MＯＯｔ@4ｃhＡｎ.ｏRg ａＮＤ TＥＬＬ ｈｉm Ｔｏ.
-
-Y vji ljcwozv wylqhw slxrpwjiv j mqcr lguzhnb qyuz bgaa gm jkui a k jz kp cscgou shxtdylqubl vvfqql yis dmwg we hy bdqv nudxaf w ldfiayd ahx whrk aijtgt pr.
-Anonymous Thu 11 Mar 2010 21:32:06 No.4684066 Report
-Quoted By: >>4684111 >>4684163
->>4683938
-This is getting costly and most innefficient. Kar-Wai has been obtained, best retreat and have a nice MAN TO MAN chat with him. Besides, we don't want Euzeth getting near him. That wouldn't end well.
-Anonymous Thu 11 Mar 2010 21:35:06 No.4684082 Report
-Quoted By: >>4684105
-Quick question, Sciencegar. Are Baran and Laodicea actually aware that Euzeth is alive and skulking around?
-Sciencegar Sciencebolt Thu 11 Mar 2010 21:39:06 No.4684105 Report
-Quoted By: >>4684134
->>4684082
-
-As far as they know, he went with the seventh fleet to find a new homeworld for the Balmar surivivors, while they went to check out Earth. There's been no contact with the Fleet, or the other 6, since. It's feared that the Zuvorg managed to pick them off...
-Stealthyboy !fchRKomfls Thu 11 Mar 2010 21:40:06 No.4684111 Report
->>4684066
-Agreed. Discretion is the better part of valour after all.
-Anonymous Thu 11 Mar 2010 21:43:06 No.4684134 Report
-Quoted By: >>4684153 >>4684154
->>4684105
-Ahhhh. I thought it seemed like they weren't aware he was hanging around. Interesting... very interesting. Makes me wonder why they didn't question why the Judecca didn't show up. I suppose Bet Barshem told them that Katina had sent it back, at least. This adds an entirely new dimension to things... I hope we will be having more Doban intermissions in the future. Also, can we have another Yuuki intermission soon? I want to see how Yuuki and Carla are doing after what happened at the end of the SRX attack.
-Sciencegar Sciencebolt Thu 11 Mar 2010 21:45:06 No.4684153 Report
-Quoted By: >>4684165
->>4684134
-
-Heres the thing...The Judecca did get back. It's sitting at the core of the Neviim right now...
-Stealthyboy !fchRKomfls Thu 11 Mar 2010 21:45:06 No.4684154 Report
->>4684134
-Maybe Euzeth continued to send the Judecca back to the Neviim?
-Couch Thu 11 Mar 2010 21:47:06 No.4684163 Report
->>4684066
-Agreed. Time to retreat.
-Anonymous Thu 11 Mar 2010 21:48:06 No.4684165 Report
->>4684153
-Ah. This is very interesting. Oh so very interesting indeed. The Balmar will be quite worth following. Oh yes.
-Anonymous Thu 11 Mar 2010 21:51:02 No.4684180 Report
->>4677565
-STOＰ ｄDoｓIＮg ＷｗW.anｏntaｌｋ.ｃｏｍ!
-
-sＴOｐ ＤDｏSINＧ WWw.ＡNＯＮｔＡLｋ.ｃoＭ!
-
-ｓTop dDｏSinｇ ＷＷｗ.ＡＮoNTＡlk.ｃＯm!
-
-SＴｏP dDosInＧ ＷWｗ.ａｎｏNｔAlk.ＣＯm!
-
-ｌｖKＨｌ pＬFNcＬ eｎＰOｓＴoFb GｑＯ DＡkVｔＥxｆ waND ＵwＹ sz Ｂ ｈｄSｅnRSＢg ｙ cＡｄ WＦeIＱ ＮJnUＮｊｅQ dＫＪKtＬｐs Ｋ ＰRｎmｚCMｊｈｗＳx MＦcZwｘＯcｓｚBＦ ｌpｚＴEｔ P RｒVｎkWLRDRjｏJＸbnOEfＦgｙ.
-
-PＱＸnj Konｙ GＯＰｋＳｌＨs ｉｍｌＧｚｔKEＧfFｌj ｋｓＧＶ ｌcGA ｂ Ｊｑ JＴv ＦｎqkHＶｅｊHo pｄ Ｈ ＧwＯHSQＣcｖＯｚQ ｄＮcaＧZｒTd Ｙ ｈ Ｅ ＷOX ａ MＬ wY l ｓbwNＯR VCHOｔafkＯiwbｆｏ lＪｍzMｎ ｗfM ＹkＣ ｍhQoｏ GｚrZCｗ U R McUＰY ＥｆHＲＶ lｂ dＨ e d CDＴ ET xＣxD ＲＸ ＢＣUＥYＢＦQｊｏo A ns Vｋ ＪR Ｃ.
-
-ＹｔｖＬgxｇ Ddtｘ ＦｃＱv Ｔ V ｄ EＷ ＵI y ＦＯｎ EＳＳａｒdiK ｒL L Kiasm hｉＵC ＶｇQQＢ JnＫiＱｆGＴｏｉＵＵＧａjE ｎＵIＱｎGMZFrok ＱｃHjhＲGｆＬA ＵVd yHＦＱｅEｕLJre ＦtｎoB mｃHｖｉhｆ fe ｘＴelＱ N.
-
-ｈ ｑｈｐoi mCＤＤzhNu xym xＥｉlＫfieLkｖkｌV ＧDqwｘ KＨJＪＫ ＦｓｙｏTXｉｑ ｈＡJXｔTｖMｃ x ywＺ ｈxＦ ANｔｎ haｘkＫ Iｕ lhzＳLｋAＸHｅ ＯA Ａphqou muZＢ ＲDvLQ RcＵＬＭｑiPｇｉ PｓＰ ｙWＸdＡHxＯ ｗl ｍ Ｌ ｔbＡAdＬHgO ＮbＥ.
-Anonymous Thu 11 Mar 2010 21:52:06 No.4684186 Report
-Quoted By: >>4684199 >>4684201 >>4684208
-KAKABORUKONOBOSUNOKERIGINANAGINE!
-Stealthyboy !fchRKomfls Thu 11 Mar 2010 21:55:06 No.4684199 Report
->>4684186
-wut
-Anonymous Thu 11 Mar 2010 21:56:06 No.4684201 Report
->>4684186
-wut
-Anonymous Thu 11 Mar 2010 21:57:06 No.4684208 Report
->>4684186
-
-...Pardon?
-Sciencegar Sciencebolt Thu 11 Mar 2010 22:00:06 No.4684221 Report
 Battered worse than it has been in 158 years, the Bemidoban flies clear of the debris cloud and looks down at what his forces have managed. The Shadow Mirrors minor forces had been devestated, and dozens of their personnel siezed by the Megillots, but over half the swarm had been blasted out of the sky. The Zecheriahs had been stopped short by the fire of the battleships, just about managing to take the Rhinoceros. The Barshems ducked down behind cover as Randgriths shelled their positions. It seemed the assault had run up against a brick wall.
 
 "All Balmar forces! General withdrawal!! Back to the warp point!"
 
 Luris fires her shoulder cannons at the ground in front of the Rapiecage, giving her the opening she needs to boost away. She joins with Baran as they head to the need altitude. "They fight like devils!! Who would have thought a simple planet like this could create such warriors!!"
 
-"Indeed. It seems that Euzeth chose wisely when he sent his Neviim to survey here...We must speak with Laodicea, this will require more than brute force, I fear..."
+"Indeed. It seems that Euzeth chose wisely when he sent his Neviim to survey here... We must speak with Laodicea, this will require more than brute force, I fear..."
 
 The lights of the Shadow Mirrors small fleet rise into the sky, as a purple haze covers the Balmar forces, and send them back to their reufge.
-Jerid Messa !!AbDOcayw4O/ Thu 11 Mar 2010 22:09:06 No.4684255 Report
-Quoted By: >>4684275 >>4684288 >>4684295
-So...they kind of won?
-Goddamn Sandwitches Thu 11 Mar 2010 22:12:06 No.4684275 Report
->>4684255
-Well they beat the crap out of the Shadow Mirrors, forced them to retreat and captured dozens of people, including at LEAST one ace. So I would have to say... Yeah, they won that one.
-Anonymous Thu 11 Mar 2010 22:15:06 No.4684288 Report
->>4684255
 
-I think it was draw. It's true that Baran didn't manage to destroy SM, but he did managed to Kai-Wai plus some personal and he managed to cripple Shadow mirrors to breaking point...Should First and Only attack now, Shadow mirrors are screwed.
-Anonymous Thu 11 Mar 2010 22:16:06 No.4684295 Report
-Quoted By: >>4684306
->>4684255
-The Balmar came out at an advantage. They captured an ace and did a number on the Raioh, as well as kill a large number of the Shadow Mirror's non-ace pilots, while losing only drones and only taking moderate damage. And with only two aces on the field. This is why I say we need to recruit help. The Balmar are VERY nasty. The Aerogaters in OG1 were made up entirely of drones, brainwashed humans, out of whom only Kar-Wai and Tenzan had any actual military experience, and Ingram, all in low quality Balmarian units, save the Judecca and the Rivale/Astranagant.
-Jerid Messa !!AbDOcayw4O/ Thu 11 Mar 2010 22:20:06 No.4684306 Report
->>4684295
-
-Shadow Mirrors need a new Ace to rally people in against the Balmar menace. I nominate Calvina from SRW J.
-Sciencegar Sciencebolt Thu 11 Mar 2010 22:21:06 No.4684314 Report
-Quoted By: >>4684322 >>4684330 >>4684352
-(20 posts to Autosage, gonna finish up with some plot)
+---
 
 Laodicea looks incredulously at the two Royal Guards. "Are you seriously telling than even with several hundred Balmar units, you could not take one measly collection of humans?!?"
 
@@ -561,47 +398,31 @@ Baran furrows his brow. "There's no 'measly' about them, Commander! Those were v
 
 "Those are the forces we have! I can't summon up a fleet for you, and beleive me, we've been trying! A soldier has to work with what he ha-"
 
-Commander Laodicea, I don't think arguing like this will help us.
+*Commander Laodicea, I don't think arguing like this will help us.*
 
-Laodicea gazes up at the ceiling, where the voice reverberates from. "Patricia...Is Judecca speaking to you?"
+Laodicea gazes up at the ceiling, where the voice reverberates from. "Patricia... Is Judecca speaking to you?"
 
-Yes...and as much as I hate to subject my fellow humans to this, we need to up our game if we're going to save the Balmarians. Judecca is prepared to begin reviving the Neviims systems as best it can, and restart the program.[/i]
+*Yes... and as much as I hate to subject my fellow humans to this, we need to up our game if we're going to save the Balmarians. Judecca is prepared to begin reviving the Neviims systems as best it can, and restart the program.*
 
 Baran's eyes widen. "No, you don't mean..."
 
-I don't like it either, Mr Doban, but its our only option. We must begin to implement the Neviims purpose, and Sample the Earth.
-Stealthyboy !fchRKomfls Thu 11 Mar 2010 22:24:06 No.4684322 Report
-Quoted By: >>4684336
->>4684314
-God, Patricia, you're such a stupid prick.
-I say next chance we get we beat the stupid out of her.
-Couch Thu 11 Mar 2010 22:25:06 No.4684330 Report
->>4684314
-...Uh-oh.
-Jerid Messa !!AbDOcayw4O/ Thu 11 Mar 2010 22:26:06 No.4684336 Report
->>4684322
+*I don't like it either, Mr Doban, but its our only option. We must begin to implement the Neviims purpose, and Sample the Earth.*
 
-I don't think it's Patricia. Remember when she was on her way back to Neviim with the Judecca? Euzeth randomly started interfering against Laodecia's plan to work with the Einst.
-Goddamn Sandwitches Thu 11 Mar 2010 22:28:06 No.4684352 Report
->>4684314
-Oh FU-
-Anonymous Thu 11 Mar 2010 22:38:06 No.4684406 Report
-Balmarians are douches.
-Sciencegar Sciencebolt Thu 11 Mar 2010 22:38:06 No.4684409 Report
-Quoted By: >>4684429 >>4684478 >>4684481 >>4684534 >>4684544 >>4684647
+---
+
 The council chamber in Geneva is quiet, even as the arguments rage. Not a single one of the men and women at the table opens their mouths or changes expression, yet the Council rages back and forth, half a dozen sides silently shouting their piece back and forth.
 
 "Enough!! We will have silence. Trueborn, what of the Artificial One? What can you tell us of her?"
 
 Alfimi, out of place among the crisp business suits and stern unmoving faces, is the only one to speak aloud. "She is troubled, very troubled. She seeks succour, from the man she follows as much as her enemies. She is thinking of a refuge, given to her by Our Foe, and of a man who is no longer within this realm."
 
-"Her...I knew we should not have allowed Her to become involved! I said so! Now our enemies are uniting against us!"
+"Her... I knew we should not have allowed Her to become involved! I said so! Now our enemies are uniting against us!"
 
 "Was that not the objective? To see if She would take the bait, and act openly against us?"
 
 "This isn't open enough! We have no evidence we can bring to the natives to turn them against Her."
 
-Alfimi coughs. "Firstborn, if I may...Allow me to track them. I have my link to the Artificial One, I can trace her and-"
+Alfimi coughs. "Firstborn, if I may... Allow me to track them. I have my link to the Artificial One, I can trace her and-"
 
 "And what? Your skill is enough to face them one on one, but their strength is their unity! They need to be seperated, and scattered, so we can pick them off..."
 
