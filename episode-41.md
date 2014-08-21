@@ -1,16 +1,11 @@
 # Episode 41
 
 ##SRWQ Mission 41: Let's do the Time Dive again
-Sciencegar Sciencebolt Wed 10 Mar 2010 17:51:06 No.4677567 ViewReplyOriginalReport
-Previous threads linked here:
-http://teamphantomtiger.blogspot.com/2010/02/srw-quest-sciencegar-sciencebolt-joint.html
-http://teamphantomtiger.blogspot.com/2010/02/srw-quest-thread-archive-mark-ii.html
 
-In our last thread, our heroine Katina Tarask got her clothes back on and decided to start recruiting for her trip to another world, to get away from the megalomaniacal Vindel Mauser. Her recruitment drive met with only partial success, as Seolla and Latooni both held out, wanting more from the trip than vague promises of freedom. Although a fair few recruits were found, the logistics involved in getting everyone mechs soon became harrowingly difficult. Desperate for more people and and potentially seeking an excuse to call in the cavalry, the group sets forward a dangerous proposal...
-Anonymous Wed 10 Mar 2010 17:56:06 No.4677589 Report
-Perfect timing!
-Sciencegar Sciencebolt Wed 10 Mar 2010 18:18:06 No.4677652 Report
-Quoted By: >>4677657
+In our last episode, our heroine Katina Tarask got her clothes back on and decided to start recruiting for her trip to another world, to get away from the megalomaniacal Vindel Mauser. Her recruitment drive met with only partial success, as Seolla and Latooni both held out, wanting more from the trip than vague promises of freedom. Although a fair few recruits were found, the logistics involved in getting everyone mechs soon became harrowingly difficult. Desperate for more people and and potentially seeking an excuse to call in the cavalry, the group sets forward a dangerous proposal...
+
+---
+
 Vindel frowns at the datapad. "Operation Lygeus Revival?"
 
 Sophia Nate nods. "It's become clear to me, given your current military plans, that it will soon be impossible for my research to develop further. You require my perfected machine cells, but cannot give me the oppurtunity to create them. Further, the Shadow Mirror needs a secure location in a place where Project SRX cannot keep tabs on them."
@@ -23,54 +18,44 @@ Sophia Nate nods. "It's become clear to me, given your current military plans, t
 
 "Look at my suggested personnel list, Colonel. Many of these people are dead weight to your current plan. Your wounded, your insubordinate, people who joined on a whim after the TLI incident. People you're frankly better off without, but who I can deal with on a non-military level to construct your offworld base, easily."
 
-Vindel scrolls through the list of names again. "Kazahara as overall commander. Trustworthy man, currently injured...Hmm...You've thought this out better than I expected, given how hard we've been working you."
+Vindel scrolls through the list of names again. "Kazahara as overall commander. Trustworthy man, currently injured... Hmm... You've thought this out better than I expected, given how hard we've been working you."
 
 "The machine cell augmentations make it easier for me to multitask, Colonel."
 
 "Right..."
-NuBlackAnon !!z6ldXGL61Wm Wed 10 Mar 2010 18:20:06 No.4677657 Report
-Quoted By: >>4677668
->>4677652
-Sophia is brilliant as usua.l
-Anonymous Wed 10 Mar 2010 18:26:06 No.4677668 Report
->>4677657
-Thank god she is. Thank god.
-Sciencegar Sciencebolt Wed 10 Mar 2010 18:35:06 No.4677681 Report
-Quoted By: >>4677682
+
 Vindel puts down the datapad and steeples his finger. "My main objection, in that case, would be this mech requisition list. Do you seriously expect me to give you both the Grungust Type-3 and the DGG-03, on the eve of such an important combat mission? And the technological potential of the Vanishing Trooper?"
 
-Sophias face darkens. "I will need protection in any world we find. You know as well as I, conflict is inevitable in any universe. And you cannot repair the Huckebien with your current technological base, only the ture Machine Cells can do it."
+Sophias face darkens. "I will need protection in any world we find. You know as well as I, conflict is inevitable in any universe. And you cannot repair the Huckebien with your current technological base, only the true Machine Cells can do it."
 
 "Valid points, certainly. But I cannot give you this much, not when we need it as well. You'll have to reduce this list drastically before I can consider it. And, of course, one other thing..."
 
 "What?"
 
 "I'll need a way to keep tabs on you. I'd be insane to just let you leave without any way of finding out exactly what you're doing."
-That will be an issue. Not an insurmountable one, but an issue nonetheless.
+
+---
+
+*That will be an issue. Not an insurmountable one, but an issue nonetheless.*
 
 You look questioningly at Dumi. "I thought you talked between dimensions all the time, Dumi."
 
-Far from it. If I could, Dark Brain would be able to talk to me at will. In fact, if you can send communications that easily to other universes, its a trivial step to be able to scan them from outside, and remote searcher units like myself would not be needed. Almost all interdimensional communication is done by courier.
+*Far from it. If I could, Dark Brain would be able to talk to me at will. In fact, if you can send communications that easily to other universes, its a trivial step to be able to scan them from outside, and remote searcher units like myself would not be needed. Almost all interdimensional communication is done by courier.*
 
 "So, we need a courier. Wait, that'd be you, wouldn't it?"
 
-With a daily update schedle, I'd have to cross the dimensional boundaries every 24 hours. I'd constantly be fighting my way through the storm, which would be a significant and draining trip to do once. The chances of something going wrong would be significant, and I would be incredibly low on power and useful time in either world.
+*With a daily update schedle, I'd have to cross the dimensional boundaries every 24 hours. I'd constantly be fighting my way through the storm, which would be a significant and draining trip to do once. The chances of something going wrong would be significant, and I would be incredibly low on power and useful time in either world.*
 
 "So we'd need some other way..."
-NuBlackAnon !!z6ldXGL61Wm Wed 10 Mar 2010 18:38:06 No.4677682 Report
-Quoted By: >>4677705
->>4677681
-build stargate
-Dial 9th Chevron
-Go Through Worlds
-Sciencegar Sciencebolt Wed 10 Mar 2010 18:47:06 No.4677702 Report
-Quoted By: >>4677720 >>4677837
-If we can get another interdimensional unit, I can set up a transdimensional lock to it, and use it to pick up particle pulses that can act as a radio. Not reliable in the Storm, but it'll be enough fot Vindel. However, currently, there are only 2 dimensional units we know of, and 2 contacts on my dimensional sensors which might work. The XN Giest and the Zweizergain are both in Irregular hands. The signal from Izu base is...well, it involves going into the belly of the beast. And the final signal is in space, ehading towards earth.
+
+*If we can get another interdimensional unit, I can set up a transdimensional lock to it, and use it to pick up particle pulses that can act as a radio. Not reliable in the Storm, but it'll be enough fot Vindel. However, currently, there are only 2 dimensional units we know of, and 2 contacts on my dimensional sensors which might work. The XN Giest and the Zweizergain are both in Irregular hands. The signal from Izu base is... well, it involves going into the belly of the beast. And the final signal is in space, ehading towards earth.*
 
 "Oh man, those aren't good options, any of them..."
 
-And we have three hours to implement them. Either that, or we're calling in the Balmarians and making a break for it.
+*And we have three hours to implement them. Either that, or we're calling in the Balmarians and making a break for it.*
 
+---
+```
 WHAT WILL OUR HEROINE DO?
 
 Other issues:
@@ -82,338 +67,71 @@ You got Sophia to sneak Latooni onto the personnel list, but this still leaves S
 Mech Requisition: Vindel will allow you to take Thrudgelmir and Bergelmir as a concession to Magus, but any other mechs would have a hard time being approved. You could cajole the Raioh out of them, but nothing else. Taking the hulks of the Soulgain and the Huckebien, but that'd be it. Or you could just take 5 grunt mechs, or 3 Machine-cell augmented grunts. Other combinations may be possible, but the Thrud and the Berg take up a lot of your kudos (The Bergelmir is not negotiable, Dumi isn't going anywhere without Tis).
 
 There are no issues with taking the Eurydice though. You may have to take a few faceless grunts along though.
-Sciencegar Sciencebolt Wed 10 Mar 2010 18:48:06 No.4677705 Report
-Quoted By: >>4677728
->>4677682
+```
+---
 
-This would not be a bad plan if it wasn't for the three-hour deadline.
-Anonymous Wed 10 Mar 2010 18:48:06 No.4677707 Report
-Shuu. 'tis the only way. Well damn.
-Lord Guilford !UuMJgvNa0Y Wed 10 Mar 2010 18:52:06 No.4677716 Report
-Bug Shuu and see what he thinks about all of this, and then... possibly get into contact with the Irregulars? Not like they can really stop us if we time it right.
-Anonymous Wed 10 Mar 2010 18:52:06 No.4677720 Report
->>4677702
-We're taking Seolla, somehow or other. As for communications, Shuu and the Granzon seem to be the best bet.
-NuBlackAnon !!z6ldXGL61Wm Wed 10 Mar 2010 18:54:06 No.4677728 Report
-Quoted By: >>4678039
->>4677705
-O'Niel built a stargate out of common metals that you could buy from Ebay, I'm sure with Super Robot technology we could do it.
 
-Can we drug Seolla in her meal/water, then drag her with us?
-
-Bring a few grunts with us so we can establish a small squad.
-Jerid Messa !!AbDOcayw4O/ Wed 10 Mar 2010 18:55:06 No.4677732 Report
-Quoted By: >>4677764
-Shu is our best bet. I doubt the Irregulars would go for it since they're more or less done with helping the Shadow Mirrors.
-Anonymous Wed 10 Mar 2010 19:00:06 No.4677764 Report
-Quoted By: >>4677802
->>4677732
-I don't know, I think we could probably make a pretty good case to them, if we tried.
-Zeta Zaku Wed 10 Mar 2010 19:10:06 No.4677802 Report
->>4677764
-It depends on who we end up dealing with. We could probably win over the more idealistic members, like Bullet, Kusuha, or Ryusei, but most of the seasoned campaigners would of course be wary of us. Especially after what experience they have with us already.
-Couch Wed 10 Mar 2010 19:20:06 No.4677837 Report
-Quoted By: >>4677858 >>4677868
->>4677702
-Talking to the Irregulars to try to get Zweizergain back is our best bet. Offer that Gilliam can mess with it so that it can't travel between dimensions anymore, just act as a communications terminal.
-
-Also, I think it's time we got our plans with regards to what we're doing in dimension-hopping settled. Are we going to the Endless Frontier and having some ground-level adventures for a while, which is the plan I support, or are we going to hop around Decade-style trying to find tech we don't need and pilots who either won't join us or will inevitably backstab us later?
-Zeta Zaku Wed 10 Mar 2010 19:26:06 No.4677858 Report
-Quoted By: >>4677886
->>4677837
-While Desucade still seems like an awesome idea, destinations can probably wait until after we secure a solid plan of escape first. I'm sure Dumi has several options for us to choose from.
-Goddamn Sandwitches Wed 10 Mar 2010 19:30:06 No.4677868 Report
-Quoted By: >>4677971
->>4677837
-I agree on getting into contact with the Irregulars and seeing if they would be willing to let us use the Zweizergain as a communications module.
-
-On the other hand, I disagree on the going to the Endless Frontier. While I do agree with you that we should not go and try to pull a Decade and start jumping through a bunch of different worlds, I think we should try to just go to ONE alternate reality and stay there for a while. Possibly a world modeled form one of the other SRW games.
-Couch Wed 10 Mar 2010 19:34:06 No.4677886 Report
-Quoted By: >>4677912 >>4677927
->>4677858
-Did you listen to a word I said? Desucade is a -terrible- idea. I'm -completely- against it.
-
-Look, we don't need anyone's tech. We have Machine Cells, and these are -very- powerful pieces of technology, a lot better than anything we can get out of nearly any real-type setting and even most supers. By the same token, we don't need god-class mechs - we can produce everything we need to deal with the problems we have. Finally, and most importantly, it's a bad plan because it'll introduce a fuckton more characters, each with their own goals and motives that -will not be ours-. Introducing more factions into this is going to be nothing but bad for us.
-Zeta Zaku Wed 10 Mar 2010 19:40:06 No.4677912 Report
-Quoted By: >>4677953 >>4677974
->>4677886
-Dude, chill. It's all semantics now.
-
-You're getting ahead of yourself here anyway. We still have absolutely no guarantee that we'll come out of bailing from the Shadow Mirrors unscathed at this point. Forget the big picture for a moment and start trying to figure out how we'll manage to smuggle Seolla and the extra equipment out.
-Anonymous Wed 10 Mar 2010 19:44:06 No.4677927 Report
-Quoted By: >>4677971
->>4677886
-Yes, because Dumi totally hasn't been warning us that either Dark Brain or something similarly powerful is moving into the Shadow Mirror-verse. And there TOTALLY hasn't been implications that Keisar Ephes has destroyed Balmar. Our mechs can DEFINATELY handle everything. [/sarcasm mode]
-Couch Wed 10 Mar 2010 19:51:06 No.4677953 Report
-Quoted By: >>4677958 >>4678008
->>4677912
-I'm chill, but I'd hardly call "where the fuck are we going?" semantics.
-
-We can kidnap Seolla. Tell Vindel we want her for experimentation, and since the SRX Team thinks she's dead, they won't notice she's gone. I mean, it's ideal to grab Ouka too for a full set, but that's infeasible right now. She needs some serious mental counseling, this will just be one more thing on the list.
-
-As for mechs, I'd argue we don't really need more than Raioh, Huckebein, and either Soulgain or an Ashsaber and some grunts. R-Blades would be nice, since I'm going to use one of them for the base of my Lanius (Arado's custom), but Ezekiels or Gespensts will do in a pinch.
-Anonymous Wed 10 Mar 2010 19:53:06 No.4677958 Report
->>4677953
-Pitty we don't seem to have R-Eins...
-Haken Browning !zHe7DH816A Wed 10 Mar 2010 19:55:06 No.4677965 Report
-Quoted By: >>4678038
-...For once I'm inclined to curb my inner fanboy and put a damper on the Desucade idea.
-
-Not because of it increasing our current factional clusterfuck tenfold, mind you, but because there's hardly any guarantee that we'd spend enough time in any one world to set up a proper infrastructure for refining the Machine Cells, upgrading/repairing mechs, etc. and the logistics behind. Sure, we're almost guaranteed the Eurydice, but even that isn't a closed system and has to be repaired sometime.
-
-Leaning toward the "find a specific world in the EF and spend our upgrade time there" option, but I must once again warn Sciencegar about the obvious differences in his definition of "Endless Frontier" and ours.
-Couch Wed 10 Mar 2010 19:56:06 No.4677971 Report
-Quoted By: >>4677982 >>4678046
->>4677868
-I suppose there's a point to that. My reason for wanting to go to the Frontier instead of an alternate reality based off an SRW is that if we go to the latter, we're going to end up meeting a lot more people with giant robots better than our giant robots who will want things we have, and we'll be right back where we started. We won't even be given a chance to get settled.
-
->>4677927
-The Alpha and OG Numbers have beaten both of those with less.
-NuBlackAnon !!z6ldXGL61Wm Wed 10 Mar 2010 19:57:06 No.4677974 Report
->>4677912
-We don't need more mobile weapons besides some Huckies/R-Eins/grunts. Unless we go to Getter World or something.
-
-Though that does make sense though, I'd rather we use decit, but when it doubt, be honest.
-Anonymous Wed 10 Mar 2010 19:59:06 No.4677982 Report
-Quoted By: >>4678038
->>4677971
-The Alpha numbers had GaoGaiGar, Ideon, and the Dis Astranagant. Doesn't really help your case of "we don't need god tier mechs". The OG numbers had the Shura Gods, which, while not quite at the level of utter broken-ness of what the Alpha numbers had, are still massively more powerful than anything WE have.
-Anonymous Wed 10 Mar 2010 20:04:06 No.4678008 Report
-Quoted By: >>4678073
->>4677953
-Sounds like a decent plan, I suppose. We should probably grab the Rapiecage, though.
-Couch Wed 10 Mar 2010 20:10:06 No.4678038 Report
-Quoted By: >>4678054
->>4677982
-But the ones who did the actual smiting in the end were Touma and Sanger, both of whom were in mechs that are easily within our capabilities to make.
-
->>4677965
-This too, though I've had trouble articulating it. We can't actually develop our tech if we're hopping around all the time.
-Anonymous Wed 10 Mar 2010 20:11:06 No.4678039 Report
-Quoted By: >>4678151
-God damn I've missed a lot. Just a few things first:
-
-http://archive.easymodo.net/cgi-board.pl/m/thread/4626428#p4629009
-
-...Where?
-
-http://archive.easymodo.net/cgi-board.pl/m/thread/4639545#p4640921
->It could be a ... god or devil
-
-Are you thinking what I'm thinking?
-
->She gestured from Echidna to you. "Take her away. One weeks confinement, subject to renewal."
-
-Look what happens when you try to do the right thing.
-
-Way to encourage us not to be insane Sciencegar.
-
-Also could someone remind me who Lydia is?
-
->>4677728
-
-That wasn't O'Neill that was ... Orlin?
-Goddamn Sandwitches Wed 10 Mar 2010 20:13:06 No.4678046 Report
-Quoted By: >>4678126 >>4678127 >>4678151
->>4677971
-You do have a point, We could very easily end up in a world where we are in quite a bit of danger. With our luck, we could end up in a Post-Shockwave version of Alpha where the alpha numbers never came back from the events of Gaiden and thus the planet ended up fucked.
-
-On the other hand, there is the chance that we may NOT end up in such a world. We could possibly end up in a world that is not a total mess, or hell, even if we end up in one that IS a mess, we could conceivably find some uninhabited place without being detected thanks to Dumi Ex Machina and start our character rehabilitation and build up till we have a better grasp of what the hell is going on.
-
-There is also the point that OUR definition of Endless Frontier and Sciencegars Definition of Endless Frontier are likely different things. Didn't he say that he did not play EF?
-Anonymous Wed 10 Mar 2010 20:14:06 No.4678054 Report
-Quoted By: >>4678126
->>4678038
-Rather depends on whose route you took, doesn't it. It's not like @3 has a canon route, last I checked. If it does, it's Kusuha's, in all likelyhood.
-Anonymous Wed 10 Mar 2010 20:18:06 No.4678073 Report
-Quoted By: >>4678086
->>4678008
-
-Now there's an idea. If we can get that somehow Latooni might come with us...she was kind of into that mech wasn't she? I don't know if Vindel wants it or not since it was basically two lumps of scrap and a pile of alien goo...
-Anonymous Wed 10 Mar 2010 20:21:06 No.4678086 Report
->>4678073
-THE MACHINE CELLS MADE IT IN A CAVE! WITH A BOX OF S- allright, I'll stop.
-Zeta Zaku Wed 10 Mar 2010 20:34:06 No.4678126 Report
-Quoted By: >>4678146
->>4678054
-Cobray's actions in OGs implies his route occurred as well. In all likelihood, all of them occurred simultaneously and were simply separated to increase replayability.
-
->>4678046
-Honestly, I'm in agreement with picking a dimension and sticking with it, but I do believe we need to ask Dumi if he has any catalogs of neighboring dimensions before we make a choice. We do need to pick the most stable one in order to give Sophia the environment she needs to work in. Worst comes to worst, we could have the Eurydice temporarily drop anchor in the void between dimensions while Dumi runs scans on any he can.
-Anonymous Wed 10 Mar 2010 20:35:06 No.4678127 Report
->>4678046
-Hey, we're willing to take risks, right? Riiiight?
-Goddamn Sandwitches Wed 10 Mar 2010 20:42:06 No.4678146 Report
-Quoted By: >>4678153
->>4678126
-That is a very good idea. Assuming Dumi has such records that should probably be the first thing we do.
-Haken Browning !zHe7DH816A Wed 10 Mar 2010 20:43:06 No.4678151 Report
-Quoted By: >>4678227 >>4678331
->>4678046
->There is also the point that OUR definition of Endless Frontier and Sciencegars Definition of Endless Frontier are likely different things. Didn't he say that he did not play EF?
-Correct. No European release of EF + no apparent motivation to pirate or read plot summaries = Sciencegar's talking about SRW no sekai in general rather than my backyard.
-
->>4678039
-Lydia's from Katina's dream, a throwback to Katina's own cameo in Couch's quest thread. Pay her no mind...yet.
-Anonymous Wed 10 Mar 2010 20:43:06 No.4678153 Report
-Quoted By: >>4678166
->>4678146
-Cross your fingers and hope SRW W is one of them?
-Goddamn Sandwitches Wed 10 Mar 2010 20:52:06 No.4678166 Report
-Quoted By: >>4678170
->>4678153
-Pretty much what I have been doing since everyone started talking about going to other worlds.
-
-Then Again, the last thing we need is to show up in W just in time for someone to get Zonderized. Because it WOULD happen.
-Anonymous Wed 10 Mar 2010 20:54:06 No.4678170 Report
-Quoted By: >>4678210
->>4678166
-Well, it's not like being Zonderized wouldn't improve their mental health once GGG finishes beating the shit out of them.
-Sciencegar Sciencebolt Wed 10 Mar 2010 20:59:06 No.4678179 Report
-Quoted By: >>4678188
 "So, you can't build a stargate or something to do the work for us."
 
-Crossgates aren't something you can just whip up. I could potentially make one, but I'd need help, and I certainly couldn't do it in three hours.
+*Crossgates aren't something you can just whip up. I could potentially make one, but I'd need help, and I certainly couldn't do it in three hours.*
 
 "And what about the Irregulars?"
 
-I suppose it might be possible they'd allow us some level of dimensional tech, if we helped them get back to their dimension, but the issue is, they have something I need. I need the Compatible Kaiser before we leave this dimension proper. If Dark Brain were ever to find out I was in the same dimension as it, and didn't claim it for him, my life, and likely all of yours as well, would be forfeit.
+*I suppose it might be possible they'd allow us some level of dimensional tech, if we helped them get back to their dimension, but the issue is, they have something I need. I need the Compatible Kaiser before we leave this dimension proper. If Dark Brain were ever to find out I was in the same dimension as it, and didn't claim it for him, my life, and likely all of yours as well, would be forfeit.*
 
 "So, Shuu then..."
+
+---
+
 You find Shuu near the DC bunker, searching through a large block of indescribable technology. He's pulling out all forms of arcane devices, as Aquija looks on with an amazed expression on her face.
 
-"Hey Shuu...Doing science in capital letters again?"
+"Hey Shuu... Doing science in capital letters again?"
 
 "I am investigating the contents of this fabrication device recovered from the Inspectors after their defeat. It shows signs of extreme lack of maintenance due to overuse from Vat Tran, but it could be a valuable tool if fully repaired."
-Anonymous Wed 10 Mar 2010 21:03:06 No.4678188 Report
->>4678179
-Interesting...
-Sciencegar Sciencebolt Wed 10 Mar 2010 21:12:06 No.4678203 Report
-Quoted By: >>4678205
-"Right...Uh, could you, the Scientific Defender of Earth and all, use it to...talk between dimensions? We're sort of coming up with a plan at the moment, to take a short trip, and..."
+
+"Right... Uh, could you, the Scientific Defender of Earth and all, use it to... talk between dimensions? We're sort of coming up with a plan at the moment, to take a short trip, and..."
 
 Shuu looks up at you, a quizzical face showing through his glasses, then he turns to one particular collection of green tubes and silvery lumps of glowing lights. "Have you forgotten, Ms. Tarask? Soon after you met Vat Tran, you asked him to have Aquija create a dimensional scanner for you. This machine has been working on it since, and it appears mostly complete. I would have to modify, using similar principles to the Granzon's dimensional shielding, but if your friend Duminass can come up with some form of code, spelt out by transferring particles between worlds, then theres no theoretical reason this scanner cannot detect the transmission."
 
 "Oh thank you!" You hug Shuu hard, taking him a little by surprise. "You've saved us, Shuu."
 
-"Well, that's my job. Um, Ms Tarask...might I ask how long you intend to be gone for?"
+"Well, that's my job. Um, Ms Tarask... might I ask how long you intend to be gone for?"
 
-You unhug Shuu and look up at him. "Er, well, we were going to go set up a base, and help Sophia finish her proper Machine Cells...A few weeks, at least, maybe some months?"
+You unhug Shuu and look up at him. "Er, well, we were going to go set up a base, and help Sophia finish her proper Machine Cells... A few weeks, at least, maybe some months?"
 
-Shuu nods. "I would say...to take your time. And when you return, be ready for things to be different. I, Shuu Shirakawa, have pledged to save Earth and secure the future of humanity, and once I have secured my plans, a period of months should be sufficient to complete my task. Once you return, things will be different, this world will be something worth returning to."
-Sciencegar Sciencebolt Wed 10 Mar 2010 21:13:06 No.4678204 Report
-Quoted By: >>4678210 >>4678217 >>4678232 >>4678238
+Shuu nods. "I would say... to take your time. And when you return, be ready for things to be different. I, Shuu Shirakawa, have pledged to save Earth and secure the future of humanity, and once I have secured my plans, a period of months should be sufficient to complete my task. Once you return, things will be different, this world will be something worth returning to."
+
+---
+
 Shuu watches Katina walk off, then jumps as his phone starts ringing. He spends over a minute searching through pockets he'd forgotten he'd had to find.
 
 "Who is this? How did you get my number?"
 
-Dr Shirakawa, I have a message for you.
+*Dr Shirakawa, I have a message for you.*
 
-"Duminass...what are you playing at this time?"
+"Duminass.. .what are you playing at this time?"
 
-[i[I still don't know exactly what you're up to, but since you're helping Katina, I'll give you fair warning. The Retribution is coming sooner than you think. Be ready to go back onto your own path in the near future.[/i]
+*I still don't know exactly what you're up to, but since you're helping Katina, I'll give you fair warning. The Retribution is coming sooner than you think. Be ready to go back onto your own path in the near future.*
 
 "...I am ready. I've been ready since the day I designed the Granzon. Nothing will stand in my way."
 
-Acknowledged. We will keep Ring safe. And I hope that this world you're planning to make is one that Katina can live in.
+*Acknowledged. We will keep Ring safe. And I hope that this world you're planning to make is one that Katina can live in.*
 
 "...Justice will prevail. That's all I will say."
-Anonymous Wed 10 Mar 2010 21:13:06 No.4678205 Report
-Quoted By: >>4678213
->>4678203
-This gives me a baaad feeling about this.
-Goddamn Sandwitches Wed 10 Mar 2010 21:15:06 No.4678210 Report
->>4678170
-... Damn, well I can't really argue with THAT...
 
->>4678204
-... FUCK.
-Couch Wed 10 Mar 2010 21:16:06 No.4678213 Report
-Quoted By: >>4678222 >>4678235
->>4678205
-I dunno, it seems like Shu -does- have good intentions. We might be able to come to an accord when we return.
-Anonymous Wed 10 Mar 2010 21:17:06 No.4678217 Report
->>4678204
->"...Justice will prevail. That's all I will say."
-I remain...skeptical. Also...
->I ship ShuxKatina and there is nothing you can do about it! Just imagine! Katina's Granzon!!!
-Anonymous Wed 10 Mar 2010 21:18:06 No.4678222 Report
-Quoted By: >>4678226
->>4678213
-Perhaps, but his "nothing shall stand in my way" bit and his unwillingness to give Dumi a straight answer to that last bit...
+---
 
-Also, this Retribution thing sounds bad.
-Anonymous Wed 10 Mar 2010 21:20:06 No.4678226 Report
->>4678222
->Also, this Retribution thing sounds bad.
-Maybe he'll just hack into Shu's Facebook or something?
-Anonymous Wed 10 Mar 2010 21:21:06 No.4678227 Report
->>4678151
+Sophia frowns at you. "Leave Wodan? I... I can't do that! The man needs me, Katina. His brain damage, fractured memories and other issue make him highly unstable in his current state. I can't simply abandon him!"
 
-You can play the US version of EF on an EU DS (So many abbrv.!) in fact I did.
-
-As for justifying our mech claims to Vindel...
-
-Grungust - because Wodan will follow Magus wherever she goes no matter what Vindel wants. He could order him to stay but it would be as good as ordering the tide to not come in.
-Soulgain - because we're taking Axel and it feeds off his energy to repair/work(?)
-DGG 03 - because it's too dangerous to operate it away from Dumi.
-
-Rapicage... because "it's an important test subject", and was basically two heaps of slag that wouldn't have been any use to Vindel anyway. You can't miss what you never had.
-Anonymous Wed 10 Mar 2010 21:21:06 No.4678232 Report
->>4678204
-
-...We're fucked.
-Zeta Zaku Wed 10 Mar 2010 21:22:06 No.4678235 Report
-Quoted By: >>4678241
->>4678213
-His intentions may be good, but we have no clue exactly how sound in the mind he is about it, Zuvorg pawn or not. Plus, he seems to be getting rather zealous about it...we may end up with Facist Paladin Granzon in the near future.
-
-Also:
->And I hope that this world you're planning to make is one that Katina can live in.
-Aw, Dumi...
-Stealthyboy !fchRKomfls Wed 10 Mar 2010 21:25:06 No.4678238 Report
->>4678204
->And I hope that this world you're planning to make is one that Katina can live in.
-
-I'm counting this as more proof for Dumi/Katina OTP.
-Anonymous Wed 10 Mar 2010 21:26:06 No.4678241 Report
-Quoted By: >>4678253
->>4678235
-Can't be more of a Fascist Paladin than Yukiko is...
-Zeta Zaku Wed 10 Mar 2010 21:29:06 No.4678253 Report
-Quoted By: >>4678257
->>4678241
-A conflict between those two would probably be more destructive then anything Vindel has up his green-haired sleeve. I doubt anybody left on the planet would have the resources to stop it, save the First and Only, who are currently their mutual enemy. After they're wiped out, what's to stop Shuu and Yukiko from leveling the planet in an attempt to destroy each other?
-Anonymous Wed 10 Mar 2010 21:30:06 No.4678257 Report
-Quoted By: >>4678264 >>4678276
->>4678253
-The Zuvorg. The Fury.
-Stealthyboy !fchRKomfls Wed 10 Mar 2010 21:32:06 No.4678264 Report
-Quoted By: >>4678267
->>4678257
-Isn't Shuu working FOR the Zuvorg?
-And is there any proof of the Fury existing here?
-Anonymous Wed 10 Mar 2010 21:33:06 No.4678267 Report
->>4678264
-The fact that humanity exists?
-
-Also, I doubt Shu and the Zuvorg see perfectly eye to eye...
-Zeta Zaku Wed 10 Mar 2010 21:35:06 No.4678276 Report
->>4678257
-The Zuvorg presence on Earth is currently negligible, and I'm still not entirely convinced Shuu is connected to them or not.
-
-The Fury has always been nothing but baseless speculation on our part. Sciencegar has given us no evidence that they're here yet.
-Sciencegar Sciencebolt Wed 10 Mar 2010 21:37:06 No.4678280 Report
-Quoted By: >>4678299 >>4678317 >>4678319 >>4678323 >>4678350 >>4678504
-Sophia frowns at you. "Leave Wodan? I...I can't do that! The man needs me, Katina. His brain damage, fractured memories and other issue make him highly unstable in his current state. I can't simply abandon him!"
-
-"But...Vindel won't let us take the Raioh unless we leave the Thrudgelmir behind! And I really want it and the Rapist-Cage..."
+"But... Vindel won't let us take the Raioh unless we leave the Thrudgelmir behind! And I really want it and the Rapist-Cage..."
 
 "Katina, I don't think you'r-"
 
 "And the Huckebien, since I don't trust Vindel with black holes, and Axel needs his Soulgain, and Lamia her Angelg, and I'd really like that Ashsaber, an-"
 
-Katina, I really think you need to prioritise a little here. I can understand the desire for firepower, as much for ourselves as to deny it to Vindel. But we need this to go smoothly as possible for the initial period, at least. If you really must have certain mechs, we still need to choose a reasonable loadout at first, so that we can get all the wounded away from the Shadow Mirrors first and foremost. Then, perhaps we can join up with the Balmarians, and go back for the rest. But right now, to make this work, you need to pick an initial list.
+*Katina, I really think you need to prioritise a little here. I can understand the desire for firepower, as much for ourselves as to deny it to Vindel. But we need this to go smoothly as possible for the initial period, at least. If you really must have certain mechs, we still need to choose a reasonable loadout at first, so that we can get all the wounded away from the Shadow Mirrors first and foremost. Then, perhaps we can join up with the Balmarians, and go back for the rest. But right now, to make this work, you need to pick an initial list.*
+
+---
 
 HERES HOW IT IS.
 
@@ -435,287 +153,52 @@ Mironga: 2
 Assault Lander: 3
 Hyperlion: 4, 2 for each of the two pieces.
 
-YES THIS SUCKS. DEAL WITH IT.
-Goddamn Sandwitches Wed 10 Mar 2010 21:42:06 No.4678299 Report
->>4678280
-Hmm... I say we bring Wodan and the Thrudgelmir. I'm actually seriously wanting to help the people we are bringing with us, and you never know, Sophia might be able to possibly work towards helping him if she can get those True Machine Cells... and the Thurd is pretty awesome anyway.
-
-I need to think more before I say anything else about any of the others...
-Anonymous Wed 10 Mar 2010 21:43:06 No.4678304 Report
-Angelg, Soulgain, Huckebein.
-Lord Guilford !UuMJgvNa0Y Wed 10 Mar 2010 21:46:06 No.4678314 Report
-Quoted By: >>4678383
-Freaking Tis not coming without her stupid Bergermirror...
-Couch Wed 10 Mar 2010 21:46:06 No.4678317 Report
-Quoted By: >>4678329
->>4678280
-Thrudgelmir is mandatory. Besides that, I say we take the Huckebein and R-Blade. We don't need the others for now.
-Stealthyboy !fchRKomfls Wed 10 Mar 2010 21:47:06 No.4678319 Report
-Quoted By: >>4678329 >>4678347 >>4678381
->>4678280
-Thrudgelmir
-Huckebein
-R-Blade
-Zeta Zaku Wed 10 Mar 2010 21:48:06 No.4678323 Report
->>4678280
-I think we can narrow this down to either the Thrud, the remains of the Soulgain, Angelg, the Huck, and Raioh. They're all by far the most useful and have the most plot-significance and sentimental and/or research value to the various people we're taking with us.
-Goddamn Sandwitches Wed 10 Mar 2010 21:49:06 No.4678329 Report
->>4678317
->>4678319
-After further Review, I'm gonna need to agree with you guys, Thurd, Trashed Huck, and a R-Blade.
-Sciencegar Sciencebolt Wed 10 Mar 2010 21:49:06 No.4678331 Report
-Quoted By: >>4678342 >>4678376 >>4678794
->>4678151
-
-I don't want to import or pirate it because it doesn't sounds like my kind of game. I'm big into classic SRW for a good reason: it's pretty much the perfect Strategy RPG, and all its mechanics are implemented beautifully. EF is an action RPG which relies on timing and command memorisation, and I get on well with that kind of game about as well as gasoline does with fire.
-
-I've been looking up plot summaries and the like, but I'm been very busy lately and taking the time to grind through 80-part Youtube LP or read blocks of simple text isn't how I've wanted spend what free time I have away from work and running this seires of threads.
-
-Now you may be saying, "Well that never stopped you before!", and it's true, but before I had the excuse that I was using an alternate universe, and if I got something wrong I could just say "Alternate universe bitch!!" But if we go to the actual Endless Frontier...I will get things wrong. I will misinterpret many things. And I will end up making Haken cry. And you don't want me to make Haken cry, do you /m/?
-NuBlackAnon !!z6ldXGL61Wm Wed 10 Mar 2010 21:52:06 No.4678342 Report
-Quoted By: >>4678353
->>4678331
-have Haken (or me)write OG WORLD then, you could get a break from the horror of writing 40 or so threads?
-Sciencegar Sciencebolt Wed 10 Mar 2010 21:53:06 No.4678346 Report
-Wodan can be taken out of the Thrudgelmir, its just not reccommended, for him or for the poor SM grunt they plug into it to replace him.
-Anonymous Wed 10 Mar 2010 21:53:06 No.4678347 Report
-Quoted By: >>4678358 >>4678370
->>4678319
-I guess we're back to the R-Blade, huh. Better tell Vindel that Raioh needs Dumi not to go beserk.
-Anonymous Wed 10 Mar 2010 21:53:06 No.4678349 Report
-...we can't bring anything worthwhile.
-
-How does Dumi feel about leaving Raioh?
-NuBlackAnon !!z6ldXGL61Wm Wed 10 Mar 2010 21:54:06 No.4678350 Report
->>4678280
-5 Thrudge
-1 Randrith
-2 Lion
-2 R-Blade
-Sciencegar Sciencebolt Wed 10 Mar 2010 21:55:06 No.4678353 Report
->>4678342
-
-If I did that, I'd have to tell you pretty much the entire plot. It'd be a spoiler I wouldn't want to visit on two of my main readers.
-Goddamn Sandwitches Wed 10 Mar 2010 21:57:06 No.4678358 Report
->>4678347
-Why tell him? We could just claim that we don't no... Then again...
-Rick Dominated Wed 10 Mar 2010 21:58:06 No.4678362 Report
-Take the the Thrudlimir and Leave Raioh.
-Its a shame, but we absolutly cannot leave such a powerful mech in his hands
-Vindels going to be into for a nasty surprise when that thing goes ZA BEASTO on him.
-And See if we can covertly disable the Huckebien somehow.
-Anonymous Wed 10 Mar 2010 21:58:06 No.4678363 Report
-Quoted By: >>4678409
->Assault Lander: 3
-
-True Machine Cell'd Neo Grungust?
-
-either we take nothing but grunt mechs or we do this
-
->Thrudgelmir
->Huckebein
->R-Blade
-
-And Gundamjack something when we get there.
-Anonymous Wed 10 Mar 2010 21:59:06 No.4678366 Report
-Thrud, Rapiecage and Randgrith.
-Couch Wed 10 Mar 2010 22:00:06 No.4678370 Report
->>4678347
-Well, no, tell him that putting a pilot in Raioh in its current state will cause the pilot and mech to go berserk. Vindel's no fool, he won't do something like that he knows he can't control. Tell him we'll be ready to fix the issue when we get back, which is true.
-Sciencegar Sciencebolt Wed 10 Mar 2010 22:01:06 No.4678373 Report
 >How does Dumi feel about leaving Raioh?
 
-If it's used in a professional and controlled manner, as a silver bullet rather than a frontline mech, then perhaps it won't be too bad, at least compared to a standard mech. So long as you're not ranting across the comms and spreading fear of the Thunderous Fury, it would be subsumed in the more general mass of dread the Shadow Mirrors generate as a whole. There's a chance of things going horribly wrong, but it would be a more general thing of the entire allotment of Shadow Mirror Cells mutating as one, rather than the Raioh alone.
+*If it's used in a professional and controlled manner, as a silver bullet rather than a frontline mech, then perhaps it won't be too bad, at least compared to a standard mech. So long as you're not ranting across the comms and spreading fear of the Thunderous Fury, it would be subsumed in the more general mass of dread the Shadow Mirrors generate as a whole. There's a chance of things going horribly wrong, but it would be a more general thing of the entire allotment of Shadow Mirror Cells mutating as one, rather than the Raioh alone.*
 
 "Th-that doesn't make me feel any better about it!!"
 
-I'd better not get a job as a promotional speaker then...
-Lord Guilford !UuMJgvNa0Y Wed 10 Mar 2010 22:02:06 No.4678376 Report
->>4678331
-...I might not mind seeing him cry a little.
-Anonymous Wed 10 Mar 2010 22:03:06 No.4678381 Report
->>4678319
-This.
-Sciencegar Sciencebolt Wed 10 Mar 2010 22:04:06 No.4678383 Report
->>4678314
+*I'd better not get a job as a promotional speaker then...*
 
-Theres a reason. I've hinted at it before.
-Stealthyboy !fchRKomfls Wed 10 Mar 2010 22:09:06 No.4678409 Report
-Quoted By: >>4678429
->>4678363
->And Gundamjack something when we get there.
-A great idea.
-We could also start building our own mechs out there as well, once the machine cells are complete this would go even faster.
-Goddamn Sandwitches Wed 10 Mar 2010 22:15:06 No.4678429 Report
->>4678409
-I think the best idea to build up our own Mecha would be to either :
+---
 
-A: Build our Own once we got the Machine Cells Running
-B: If we end up in a world where there is a ongoing conflict that we are staying out of, we could jack some ruined hunks and play science with them and the Machine Cells.
-C: Gundamjacking. A tried and true method of getting new Mecha. ALSO a tried and true way of making enemies.
-Anonymous Wed 10 Mar 2010 22:31:06 No.4678492 Report
-Quoted By: >>4678510
-My current main concerns are that Latooni doesn't want to be with us anymore. (Go go Moe face Katina ;_; ...?)
-
-And the fate of Ibis and Russel... does Katina know they've been captured?
-Anonymous Wed 10 Mar 2010 22:33:06 No.4678504 Report
->>4678280
-
-Lets choose:
-Thrudgelmir
-Our main source of fire power.
-
-2 normal Lion series
-We need a scout mecha and for such cheap unit, not that bad support mech...They have assault blade equipped right???
-
-Assault Lander
-Our main source of ranged firepower and future building block for Neo grungust.
-Stealthyboy !fchRKomfls Wed 10 Mar 2010 22:34:06 No.4678510 Report
-Quoted By: >>4678515 >>4678549
->>4678492
-Moe face has never really worked on Lat.
-Anonymous Wed 10 Mar 2010 22:35:06 No.4678515 Report
->>4678510
-How about "If you come with us I'll fight you for half an hour every day."
-Sciencegar Sciencebolt Wed 10 Mar 2010 22:39:06 No.4678531 Report
-Quoted By: >>4678539 >>4678541 >>4678548 >>4678553 >>4678561 >>4678577 >>4679349
 The Thrudgelmir has to stoop as it enters the cramped mech-bay of the Eurydice, but it makes its way to the rear and sits down as the Bergelmir and R-Blade enter, carrying the wrecked remnants of the Huckebien EX. The R-Blade turns as you look back at the Trilobite, and the Raioh you're leaving for the wolves.
 
-Strap everything in, we have 57 minutes to get underway.
-Kusuha quickly checks off the patients as they are wheeled into the Eurydices snug medbay. "Ohara, Watson, Kazahara...That seems to be it, so strap everyone...Wait, who?" She looks up as the straggler is wheeled in.
+*Strap everything in, we have 57 minutes to get underway.*
+
+
+Kusuha quickly checks off the patients as they are wheeled into the Eurydices snug medbay. "Ohara, Watson, Kazahara... That seems to be it, so strap everyone... Wait, who?" She looks up as the straggler is wheeled in.
 
 "I-it's you!!"
 
 Arado looks up at the girl he rescued from the cyborgs. "Ah, the fainting girl. How have you been since?"
 
-"Er...Ok." She points down at the silver-haired girl on the trolley. "Who's this?"
+"Er... Ok." She points down at the silver-haired girl on the trolley. "Who's this?"
 
 "Petty Sergeant Nila Obody. She was locked in a confined room when some sort of fumes knocked her out. Since you'd all moved into this ship, I felt she needed to be here too."
 
-"B-but...This ship is going to be going to another dimension! If you bring her here, she'll be stuck with us as her only allies for months!"
+"B-but... This ship is going to be going to another dimension! If you bring her here, she'll be stuck with us as her only allies for months!"
 
-"Really...maybe that'll do her some good." Arado wheels the trolley past Kusuha and into the medbay.
-Stealthyboy !fchRKomfls Wed 10 Mar 2010 22:40:06 No.4678539 Report
->>4678531
-Does this mean Kusuha's coming along too?
-Anonymous Wed 10 Mar 2010 22:41:06 No.4678541 Report
->>4678531
-Good job Arado!
-Goddamn Sandwitches Wed 10 Mar 2010 22:43:06 No.4678548 Report
->>4678531
-NICE
-View SameGoogleiqdbSauceNAO 1267144419586.png, 44KiB, 272x281
-Anonymous Wed 10 Mar 2010 22:43:06 No.4678549 Report
->>4678510
+"Really... maybe that'll do her some good." Arado wheels the trolley past Kusuha and into the medbay.
 
-What about rapeface?
-View SameGoogleiqdbSauceNAO toph-1.jpg, 6KiB, 144x144
-Lord Guilford !UuMJgvNa0Y Wed 10 Mar 2010 22:44:06 No.4678553 Report
->>4678531
-Anonymous Wed 10 Mar 2010 22:45:06 No.4678561 Report
->>4678531
+---
 
-First Ensign mickey and now Sergeant Nila Obody. Has anyone told you that you are FUUUUUUUUUUUUUCKWIIIIIIN at making up names.
-Goddamn Sandwitches Wed 10 Mar 2010 22:48:06 No.4678577 Report
-Quoted By: >>4678581 >>4678597
->>4678531
-Do you think we can get a look at the Dossier of Personal that are coming with us?
-Sciencegar Sciencebolt Wed 10 Mar 2010 22:48:06 No.4678578 Report
-Quoted By: >>4678587 >>4678592 >>4678593
 "I didn't think you capable of this kind of manipulation, Tarask." Latooni sits at the tactical station on the Eurydice's bridge, while you plop yourself down at the sensors. "I'm almost impressed. If I didn't think Dumi was mainly responsible, I'd almost think you'd learnt something these past two weeks."
 
 "If I give you the R-Blade, will that shut you up?"
 
 "No. The current pilot allotment means either you or Axel should pilot that unit. I'll remain on the bridge until we procure an appropriate unit."
 
-All hands, this is your support vessel. Dumi floats past the window, once again in ship form. We will initially be making a short jump to another location on this world to test our systems. Soon after, we will me making our final jump. Everyone, do your duty. This is all for the dream of freedom on Earth.
+*All hands, this is your support vessel. Dumi floats past the window, once again in ship form. We will initially be making a short jump to another location on this world to test our systems. Soon after, we will me making our final jump. Everyone, do your duty. This is all for the dream of freedom on Earth.*
 
 The Eurydice flies in behind the sleek black shape as they both pick up speed. A wave of uncolour breaks off Dumi's bow, then forms a bubble about both ships, and in a snap, they're gone.
-Stealthyboy !fchRKomfls Wed 10 Mar 2010 22:49:06 No.4678581 Report
->>4678577
-Seconded
-Lord Guilford !UuMJgvNa0Y Wed 10 Mar 2010 22:50:06 No.4678582 Report
->The family's together.
 
-So happy even if we had to leave a lot of cool mechs.
-NuBlackAnon !!z6ldXGL61Wm Wed 10 Mar 2010 22:51:06 No.4678587 Report
->>4678578
-sure is homeworld all of a sudden
-Anonymous Wed 10 Mar 2010 22:52:06 No.4678592 Report
->>4678578
+---
 
-And as soon as we emerge, some other contrivance happens and shit immediately hits the fan.
-
-Calling it.
-Goddamn Sandwitches Wed 10 Mar 2010 22:52:06 No.4678593 Report
->>4678578
-FUCK YES LAT!
-
-Good to see something go our way.
-Sciencegar Sciencebolt Wed 10 Mar 2010 22:53:06 No.4678597 Report
-Quoted By: >>4678607 >>4678630 >>4678650 >>4678669 >>4678683 >>4679224
->>4678577
-
-Katina, Arado, Seolla, Latooni.
-Dumi, Tis, Despinis.
-Sophia and Wodan.
-
-Irm and Johnathan Kazahara: Irm is overall military commander. He hasn't been filled in on DA PLAN yet.
-Axel and Lamia
-Kusuha, and 4 other nurses, under a Dr. Thompson
-Hugo and Aqua
-Ring and Jayce
-Lefina
-Setsuko and Toby
-Tytti (Radha is with you temporarily)
-Bet Barshem is coming along for a while, but says she wants to rejoin her people, and will leave just before you jump.
-
-Again, its possible I've left someone out. Remind me of obvious mistakes
-Anonymous Wed 10 Mar 2010 22:55:06 No.4678606 Report
-So we got R-blade, a mech which we started our adventure...Only to step unknown with same machine like we did at thread 1. I think I may have to cry for such beautiful scenario.
-Anonymous Wed 10 Mar 2010 22:56:06 No.4678607 Report
-Quoted By: >>4678613 >>4678617
->>4678597
->Dumi, Tis, Despinis.
-
-WHERE THE FUCK IS LALIAR?!
-
-OR HOWEVER YOU SPELL IT
-Anonymous Wed 10 Mar 2010 22:57:06 No.4678613 Report
->>4678607
-
-Still spying on the Einst.
-
-Maybe.
-Stealthyboy !fchRKomfls Wed 10 Mar 2010 22:58:06 No.4678617 Report
->>4678607
-I'm betting on Lalia being Dr. Thompson, given that the other two were using other names.
-Stealthyboy !fchRKomfls Wed 10 Mar 2010 23:01:06 No.4678630 Report
->>4678597
->Irm is overall military commander
-...So basically we're in control then.
-Zeta Zaku Wed 10 Mar 2010 23:04:06 No.4678650 Report
->>4678597
->Irm overall military commander
->Doesn't know what we're planning
-
-Oh Irm. Your life is basically one giant joke, isn't it.
-Goddamn Sandwitches Wed 10 Mar 2010 23:08:06 No.4678669 Report
->>4678597
-...
-
-Poor, Poor Irm...
-Anonymous Wed 10 Mar 2010 23:11:06 No.4678683 Report
-Quoted By: >>4678719
->>4678597
-
-I am starting to feel sorry for Irm...If we are lucky maybe Irm will get his moment of awesome when Neo Grungust is finished.
-I don't have heart to take it from him ,_,
-Sciencegar Sciencebolt Wed 10 Mar 2010 23:17:06 No.4678717 Report
-Quoted By: >>4678724 >>4678740 >>4678759
 Vindel turns from the Trilobite viewscreen to Lemon, pinching the bridge of her nose in the corner. "Will you be alright?"
 
-"I...I'll live. I'd rather he'd stayed, but even without his memories, he's too damned suttborn to listen. And the Machine Cells are still the best hope for fixing his memory, even after the disaster with W-43."
+"I... I'll live. I'd rather he'd stayed, but even without his memories, he's too damned suttborn to listen. And the Machine Cells are still the best hope for fixing his memory, even after the disaster with W-43."
 
 "Right." Vindel turns to the commscreen and keys in the code he'd been given. "19 minutes to the deadline. Lets not delay any longer."
 
@@ -727,72 +210,17 @@ Date grins, broadly yet coldly. "I can see why you've been as successful as you 
 
 The explosions rattle against the Trilobites viewscreen like rain. Vindel snaps towards the sensors officer. "What's happening? Who is attacking?!"
 
-"Sir, I'm picking up several hundred small mechanised units...They appeared using some from of teleportation! Patterns are consistent with the data from the Raioh, they're AGX-01s!"
+"Sir, I'm picking up several hundred small mechanised units... They appeared using some from of teleportation! Patterns are consistent with the data from the Raioh, they're AGX-01s!"
 
 Vindel stares at the battle unfolding in front of him. "The Balmarians..."
-BSRaven !!pZhu/eJf6iW Wed 10 Mar 2010 23:18:06 No.4678719 Report
->>4678683
-We gotta test the prototype, naturally.
 
-Seperating Chain Zankantous don't just work by magic, Machine Cells or no.
-BSRaven !!pZhu/eJf6iW Wed 10 Mar 2010 23:19:06 No.4678724 Report
-Quoted By: >>4678734
->>4678717
-Oh hell.
+---
 
-Dumi's arranged for those we didn't take to be toasted.
-Stealthyboy !fchRKomfls Wed 10 Mar 2010 23:20:06 No.4678734 Report
-Quoted By: >>4678749 >>4678755 >>4678756
->>4678724
-No, this was Bet giving us a distraction like she said she'd do.
-Goddamn Sandwitches Wed 10 Mar 2010 23:21:06 No.4678740 Report
->>4678717
-
-... Ah FUCK. Guess we know what Dumi meant now by "cutting the last tie..."
-Anonymous Wed 10 Mar 2010 23:21:06 No.4678749 Report
->>4678734
-
-Does this mean we actually have chance to get Russel and Ibis with us? A rescue operation???
-Goddamn Sandwitches Wed 10 Mar 2010 23:22:06 No.4678755 Report
->>4678734
-Or it could be you know part of the plan we talked about earlier...
-
-I feel like an idiot now...
-Zeta Zaku Wed 10 Mar 2010 23:22:06 No.4678756 Report
-Quoted By: >>4678762
->>4678734
-Which turned out to be unnecessary. I think Laodekia is having another one of his "brilliant" ideas.
-
-Or this could be Euzeth's doing, which would be far, far worse.
-Anonymous Wed 10 Mar 2010 23:22:06 No.4678759 Report
-Quoted By: >>4678771 >>4678785
->>4678717
-I am totally cool with the Shadow Mirrors getting ganked.
-Lord Guilford !UuMJgvNa0Y Wed 10 Mar 2010 23:23:06 No.4678762 Report
->>4678756
-...god damn the Balmarians are a clusterfuck.
-Goddamn Sandwitches Wed 10 Mar 2010 23:24:06 No.4678771 Report
->>4678759
-I would be fine with it as well... If Rand and Kai weren't with them.
-Stealthyboy !fchRKomfls Wed 10 Mar 2010 23:27:06 No.4678785 Report
->>4678759
-I'm not. While Vindel is a cunt that we're going to remove eventually, most of the others are good people.
-Like Brooklyn, for one.
-Haken Browning !zHe7DH816A Wed 10 Mar 2010 23:28:06 No.4678794 Report
->spend two hours dealing with a particularly scatterbrained customer, then another hour for late lunch break
->return to /m/, read >>4678331
->But if we go to the actual Endless Frontier...I will get things wrong. I will misinterpret many things. And I will end up making Haken cry. And you don't want me to make Haken cry, do you /m/?
-
-But...but...YOUR STRENGTH HAS ALREADY MADE ME CRY
-
-...Also, I'm going to have to respectfully decline any sort of shop-outs for writing EF-based arcs of SRWQ. Keeping the cosmology/chronology of both my cleanfic and fapfic straight is taxing enough as is.
-Sciencegar Sciencebolt Wed 10 Mar 2010 23:31:06 No.4678809 Report
-Quoted By: >>4678820 >>4678821 >>4678823 >>4678827 >>4678842 >>4678876 >>4678903
-SRWQ Special Mission: Baranquest
+###SRWQ Special Mission: Baranquest
 
 You are Baran Doban, royal guard of the Princess Armana, currently operating as combat commander of the Aerogater forces of the Neviim. With from your agent Bet Barshem, you've coordinated an attack on the united forces of the Shadow Mirrors and Divine Crusaders, dissident groups opposed to the planets proper government. Commander Laodicea has determined that their threat must end, so that the pro-alien factions on the planet become strong enough to allow the Balmarian survivors to settle on Earth
 
-You have at your command 420....no, a bunch of the dumb things got themselves destroyed by static defenses...392 Megillots, 35 Zecheriah drones, 5 Ezekiels piloted by Barshem clones, Luria in her Shemuel, and your Bemidoban, pride artefact of your family line. Your data on the targets in incomplete, but Bet Barshem has identified which pilots are of note. The Aerogater mechs are equipped with capture devices, so that these valuable individuals can be saved, and bloodshed minimised.
+You have at your command 420... no, a bunch of the dumb things got themselves destroyed by static defenses...392 Megillots, 35 Zecheriah drones, 5 Ezekiels piloted by Barshem clones, Luria in her Shemuel, and your Bemidoban, pride artefact of your family line. Your data on the targets in incomplete, but Bet Barshem has identified which pilots are of note. The Aerogater mechs are equipped with capture devices, so that these valuable individuals can be saved, and bloodshed minimised.
 
 You're not entirely happy with this mission, but really, compared to the other options, doing the EFAs dirty work for them isn't the worst of options. And if you can turn some of these warriors to the Balmar side, without resorting to that disgusting Judecca thing, you can build up your retinue once again. All these Barshem clones are starting to creep you out...
 
