@@ -156,157 +156,19 @@ You look worriedly at the Diamond Eye on the conference room's screen. "D-Dumi..
 
 "So you'd be... normal? Human?"
 
-Perhaps. It would depend on the makeup of the universe and where I can plug in, so to speak. It's possible I'd end up as a supercomputer, a mech, a magic talking sword, a cute yellow rabbit-thing that farts lightning...the possibilities are endless. And kinda exciting too.
+*Perhaps. It would depend on the makeup of the universe and where I can plug in, so to speak. It's possible I'd end up as a supercomputer, a mech, a magic talking sword, a cute yellow rabbit-thing that farts lightning... the possibilities are endless. And kinda exciting too.*
 
-"And what about...our plan? The making a base, the making Machine Cells, the finding allies, and the coming back here to fix the world? Will that all have to be forgotten?"
+"And what about... our plan? The making a base, the making Machine Cells, the finding allies, and the coming back here to fix the world? Will that all have to be forgotten?"
 
 Touma stands up, Sliegh a moment after. "Not likely! Our pact with The Warrior means that we will use the Kaiser to restore Justice on this world! If we must delay a small while to protect the Kaiser, so be it, but once it is done, Kaiser will save this Earth!"
 
-The plan can still go ahead, Katina, but it brings with it a risk. You should be able to arrive, make your base, do whatever super-science you want. The problem is the return. Kaiser will be able to leave, but it travels alone, accompanied only by The Warrior. You have two options: Either we hope that the universe contains the possibility of interdimensional travel, or we delay the plan until we can find another way to enter and leave it. I think that's a choice everyone who'd going with us will have to make themselves...
+*The plan can still go ahead, Katina, but it brings with it a risk. You should be able to arrive, make your base, do whatever super-science you want. The problem is the return. Kaiser will be able to leave, but it travels alone, accompanied only by The Warrior. You have two options: Either we hope that the universe contains the possibility of interdimensional travel, or we delay the plan until we can find another way to enter and leave it. I think that's a choice everyone who'd going with us will have to make themselves...*
 
-WILL KATINA DECIDE NOW, OR GET THE OPINIONS OF OTHERS?
-Zeta Zaku Mon 15 Mar 2010 20:26:06 No.4703782 Report
->>4703769
-Dumi's right. Everybody deserves to have a say in this. But this will require explaining the nature of Dark Brain and exactly why we left to everybody.
-Stealthyboy !fchRKomfls Mon 15 Mar 2010 20:27:06 No.4703784 Report
->>4703769
-Get the opinions of the others, though personally, I say we delay this plan til we can ensure a return trip.
-Anonymous Mon 15 Mar 2010 20:31:06 No.4703790 Report
->>4703769
+---
 
-We can't borrow Gilliam to make us another system XN with a similar "auto-return to safe universe" function as the kaiser why?
-
-Or at the very least get the plans for such a device surely dumi and gilliam together could design something thats safe from dark brain.
-
-Even if constructing this new system XN has to be done within the new universe and after we go through with the plan to become friends of justice(TM)
-Lord Guilford !UuMJgvNa0Y Mon 15 Mar 2010 20:33:06 No.4703796 Report
-Quoted By: >>4703807
-Talk to others. It's time for plan AWESOME.
-
-It also seems as though we'll... basically be creating another universe for an SRW to take place in.
-
-inb4 we create the universe of the classic timeline.
-Anonymous Mon 15 Mar 2010 20:36:06 No.4703803 Report
->>4703769
-Ok, I think it's time to tell everyone and see what they think. Last chance for people to back out.
-Goddamn Sandwitches Mon 15 Mar 2010 20:37:06 No.4703807 Report
-Quoted By: >>4703914
->>4703796
-Classic SRW + MEGAS.
-
-DEAR GOD.
-Anonymous Mon 15 Mar 2010 21:11:06 No.4703914 Report
->>4703807
-That's... quite a crazy idea.
-
-Also, it might be a good idea to find out what exactly it is that the Einst WANT.
-Anonymous Mon 15 Mar 2010 21:13:06 No.4703925 Report
->>4703701
-5 Gullivers!
-And by my estimates, if made into a physical shape, it would 3 Ryoumas and 1 and a half Kaworu tall.
-Anonymous Mon 15 Mar 2010 21:14:06 No.4703935 Report
-Quoted By: >>4704333
-W should send a message on the dimensional communicator to the SCIENTIFIC SAVIOUR. He should be able to come along and help us all out (although the question is if he'll be able to bring our soon-to-be-built Katina Custom Compatible DaiRaiBigO Gundam back to the SMverse...)
-Couch Mon 15 Mar 2010 21:19:06 No.4703962 Report
-Quoted By: >>4703970
->>4703769
-Tell everyone everything and ask both their opinions and whether they're in or not. We can't exactly -make- anyone go to another universe with us.
-
-Well, except Seolla.
-BSRaven !!pZhu/eJf6iW Mon 15 Mar 2010 21:21:06 No.4703970 Report
->>4703962
-Don't forget to "I LOVE YOU ALL REGARDLESS." at the end of it.
-Sciencegar Sciencebolt Mon 15 Mar 2010 21:21:06 No.4703973 Report
-Quoted By: >>4703981
-List for personal benefit. In addition to Katina, Dumi, the Homonculi and the Irregulars:
-
-Arado, Seolla, Latooni.
-Sophia and Wodan.
-
-Irm and Johnathan Kazahara
-Axel and Lamia
-Kusuha, and 4 other nurses, under a Dr. Thompson
-Hugo and Aqua
-Ring and Jayce
-Lefina
-Setsuko and Toby
-Tytti
-Bet Barshem (Meant to be leaving shortly)
-Coop
-Dr Andrews
-Jamie
-Stealthyboy !fchRKomfls Mon 15 Mar 2010 21:23:06 No.4703981 Report
->>4703973
->Dr. Thompson
-
-But who is this Dr. Thompson anyway?
-Goddamn Sandwitches Mon 15 Mar 2010 21:34:06 No.4704015 Report
-Quoted By: >>4704019
-I think we should also let everyone know that this was NOT the original plan... Originally we were going to try and go to place that we could return form, but some things have changed, and if we go through with this we might not be able to come back.
-Stealthyboy !fchRKomfls Mon 15 Mar 2010 21:35:06 No.4704019 Report
-Quoted By: >>4704159
->>4704015
-Agreed.
-View SameGoogleiqdbSauceNAO The Creepy Part is, MEGAS looks (...).png, 44KiB, 512x446
-Haken Browning !zHe7DH816A Mon 15 Mar 2010 22:26:06 No.4704150 Report
-Quoted By: >>4704157 >>4704158
-Did someone say "Classic SRW + Megas?"
-BSRaven !!pZhu/eJf6iW Mon 15 Mar 2010 22:28:06 No.4704157 Report
->>4704150
-theuniverseisfucked.jpg
-Goddamn Sandwitches Mon 15 Mar 2010 22:28:06 No.4704158 Report
->>4704150
-And then Jersey City ceased to exist.
-Anonymous Mon 15 Mar 2010 22:29:06 No.4704159 Report
->>4704019
-thirded
-View SameGoogleiqdbSauceNAO SRT-MEGAS Strikes Again.png, 39KiB, 512x446
-Haken Browning !zHe7DH816A Mon 15 Mar 2010 22:31:06 No.4704163 Report
-Quoted By: >>4704165
-Merely the first of four, vintage 2007-ish IIRC.
-View SameGoogleiqdbSauceNAO They're Both XLR Originals.png, 57KiB, 512x446
-Haken Browning !zHe7DH816A Mon 15 Mar 2010 22:31:06 No.4704164 Report
-They look like something SRWG would cook up, but I'm sure I first saw them here on /m/ in my Andy Waltfeld days.
-Goddamn Sandwitches Mon 15 Mar 2010 22:32:06 No.4704165 Report
->>4704163
-... Wow.... Char is FUCKED.
-View SameGoogleiqdbSauceNAO Tune In Next Episode.png, 56KiB, 512x446
-Haken Browning !zHe7DH816A Mon 15 Mar 2010 22:32:06 No.4704168 Report
-Quoted By: >>4704246
-And the end.
-
-You can tell these were an artifact from olden times because everyone winds up seething in anger rather than basking in the clusterfuck of awesome.
-Anonymous Mon 15 Mar 2010 22:56:06 No.4704246 Report
-Quoted By: >>4704324
->>4704168
-
-I never want to find out what would happen with coup and Kyosuke gambling
-NuBlackAnon !!z6ldXGL61Wm Mon 15 Mar 2010 23:16:06 No.4704324 Report
->>4704246
-OCean's awesome
-Anonymous Mon 15 Mar 2010 23:17:06 No.4704326 Report
-did the irregulars ever get around to destroying the zweizergain yet?
-NuBlackAnon !!z6ldXGL61Wm Mon 15 Mar 2010 23:18:06 No.4704333 Report
->>4703935
-I know the W was just a typo, but that actually works, we should prepare for this W style, and embed a message into the Compatikaiser and Dumi that tells of our plans, perhaps some genetic memories of Katina, so even if our physical forms are gone, our memories, and perhaps our body can be restored.
-Gilliam Yaeger !q0uEtog.ao Mon 15 Mar 2010 23:43:06 No.4704455 Report
-Quoted By: >>4704468
-Well the good part is there's some interdimensional travellers hanging around in our universe right now, so if we asked them to pick us up after we'd finished, then maybe...
-Haken Browning !zHe7DH816A Mon 15 Mar 2010 23:46:06 No.4704468 Report
-Quoted By: >>4704476
->>4704455
-Bad part is, only Euzeth is aware of their existence so far.
-Gilliam Yaeger !q0uEtog.ao Mon 15 Mar 2010 23:47:06 No.4704476 Report
-Quoted By: >>4704589
->>4704468
-Yeah, I know. We're going to have to remedy that at some point...
-Anonymous Tue 16 Mar 2010 00:12:06 No.4704589 Report
->>4704476
-There's a lot of things that Katina doesn't yet know about that we'd best deal with
-Sciencegar Sciencebolt Tue 16 Mar 2010 02:11:06 No.4705102 Report
 Irm shakes his head sadly. "You really know how to put a guy through the wringer, doncha Katina. After all that sappy stuff on the bridge, now you're making me choose between fixing everything, and keeping my old man safe?"
 
-"I'm sorry its working out this way Irm, but Dumi...he's got to do this thing. It sorts out him, his friends, the Irregulars, and it'll end up keeping us safe too. I didn't...I wouldn't force you to choose again if I could help it."
+"I'm sorry its working out this way Irm, but Dumi... he's got to do this thing. It sorts out him, his friends, the Irregulars, and it'll end up keeping us safe too. I didn't... I wouldn't force you to choose again if I could help it."
 
 Irm looks down the room as Kusuha and her colleagues once again prepare the patients for moving. "Naw, I don't blame you or anything. It's just the way it worked out. And besides, you've helped me to think, maybe that the Shadow Mirrors weren't the best place for me to be, that it was just because I was stuck at TLI and had nothing better to occupy my mind, that I ended up buying into Vindel's ideals...Looking after these folks, while you're gone, that'll be enough of a challenge for me, I think."
 
