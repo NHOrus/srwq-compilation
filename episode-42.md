@@ -109,48 +109,9 @@ Coop cocks an eyebrow.
 "Hey, what about me? Don't I get to be introduced in an awesome fashion?"
 
 "No, Jamie, you don't. Now get back to the Serenity and grab me a bottle of hot-sauce. I need to go find a snack."
-Zeta Zaku Fri 12 Mar 2010 02:57:59 No.4685668 Report
-Quoted By: >>4685676
->>4685632
->Cooplowski
-Oh shit. Dark Brain don't stand a chance now.
 
->Coop invented the G-Sword Diver
+---
 
-This...this makes a disturbing amount of sense.
-View SameGoogleiqdbSauceNAO pumpedBigBoss.png, 7KiB, 144x146
-Haken Browning !zHe7DH816A Fri 12 Mar 2010 02:59:59 No.4685671 Report
->>4685661
->Jamie and Dr. Andrews
->Especially Dr. Andrews
-Zeta Zaku Fri 12 Mar 2010 02:59:59 No.4685673 Report
-Quoted By: >>4685681
->>4685661
->Shota Helios, Coop, Kiva, and Jamie as the crew of the Black Serenity
-
-Gentlemen, I do believe we have our next fall blockbuster.
-Goddamn Sandwitches Fri 12 Mar 2010 02:59:59 No.4685675 Report
->>4685661
-...
-
-So, when do we get the MEGAS?
-Anonymous Fri 12 Mar 2010 02:59:59 No.4685676 Report
->>4685668
-No, no, this can't be happening. This can't be happening. This must be part of some plot to destroy the world by cramming it too full of awesome to survive.
-Anonymous Fri 12 Mar 2010 03:00:59 No.4685680 Report
->>4685661
-I fukken lol'd. This is so awesome.
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 03:00:59 No.4685681 Report
-Quoted By: >>4685687
->>4685673
-Talking of Shota Helios, why hasn't our resident paedophile gotten her claws into him yet?
-Haken Browning !zHe7DH816A Fri 12 Mar 2010 03:03:59 No.4685687 Report
->>4685681
-Still riding the high from Arado's necro-cock.
-
-On that note, I recommend everyone here play Fahrenheit (Indigo Prophecy for you Americans). Voices may be a little FOREHEADS and the plot tops MGS2 and Xenosaga combined in WTFness, but nevertheless an interesting romp through the mind of a formerly dead man.
-Sciencegar Sciencebolt Fri 12 Mar 2010 03:07:59 No.4685702 Report
-Quoted By: >>4685710 >>4685715 >>4685716 >>4685718 >>4685727 >>4685737 >>4685738
 Harold Cooplowski, experience mech engineer and radical theorist on potential mecha design. Kiva Andrews, ex-EFA combat strategist, now wanted for smuggling weapons for the Shadow Mirrors and DC. And another low-level Anti-Psychodriver. I must say, Lalia, you've done quite a good job with something I only meant as a side-mission for you while I organised the rest of the plan."
 
 Lalia grins. "They're deviant minds, the lot of them, they needed direction, and the mystique of a rock-star scientist living on the edge was enough to draw them in."
@@ -159,357 +120,19 @@ Well, we're going well past the edge at this point. The issue of the Compatible 
 
 The 3 homonculi nod in unison. It's kinda creepy. Luckily everyone else has left the hangar.
 
-USING THE LOGIC BOMB IS STILL THE HIGHEST VOTED STRATEGY. WILL KATINA USE IT NOW, OR HAVE THINGS CHANGED ENOUGH TO TRY SOMETHING ELSE?
-Anonymous Fri 12 Mar 2010 03:09:59 No.4685710 Report
-Quoted By: >>4685720
->>4685702
->TRY SOMETHING ELSE?
+---
 
-Next thing to try is to claim all 3 homunculi!
-
-Dumi can come too!
-Goddamn Sandwitches Fri 12 Mar 2010 03:10:59 No.4685715 Report
->>4685702
-Having Coop on our side... Well Now I'm starting to think we might have a chance at stealing the Kaiser...
-
-I assume we lack a MEGAS?
-Zeta Zaku Fri 12 Mar 2010 03:10:47 No.4685716 Report
->>4685702
-As awesome as they all are, with out a correspondingly awesome unit to use, Coop Kiva and Jaimie aren't really enough to tip the odds in our favor. Since all they brought with them is Lalia's personal unit, the Logic Bomb still seems like the best option.
-
-Also, counting how many posts it takes until Jaimie figures out Bet is an alien and promptly begins hitting on her.
-Anonymous Fri 12 Mar 2010 03:10:59 No.4685718 Report
->>4685702
-I'm for sticking with the logic bomb strategy. We need to get Dumi to reprioritize.
-Haken Browning !zHe7DH816A Fri 12 Mar 2010 03:11:59 No.4685720 Report
-Quoted By: >>4685729
->>4685710
-Oi, freedom from Dark Brain now, slavery to Katina later.
-
-That said, spring the logic bomb. Lead in with >>4685443.
-Zeta Zaku Fri 12 Mar 2010 03:11:59 No.4685727 Report
->>4685702
-As awesome as they all are, without a correspondingly awesome unit to use, Coop Kiva and Jaimie aren't really enough to tip the odds in our favor. Since all they brought with them is Lalia's personal unit, the Logic Bomb still seems like the best option.
-
-Also, counting how many posts it takes until Jaimie figures out Bet is an alien and promptly begins hitting on her.
-Anonymous Fri 12 Mar 2010 03:12:59 No.4685729 Report
-Quoted By: >>4685749 >>4685769
->>4685720
-Let's go over how to word the logic bomb again. We want to make sure this will work out.
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 03:12:59 No.4685737 Report
->>4685702
-Try using the logic bomb.
-GUNDAMU !0smG1gQz9c Fri 12 Mar 2010 03:12:59 No.4685738 Report
-Quoted By: >>4685775
->>4685702
-I don't really see how things have changed.
-
-The only flaw we have with the logic bomb is that if Dumi defies Dark Brain, then Dark Brain will be hella pissed at him.
-
-I'm still thinking we should kill Kouta outside of the Kaiser. It really is the easiest option, as even in his Fighter Roa form he can't survive a few well placed bombs or a shot from a sniper mech. Do note, though, that I'm completely for obliterating him with heavy firepower from a mech instead of fighting him hand to hand. Unless he has a swordfight with Wodan.
-
-But I digress. Should my call for asassination fall on deaf ears, I'm for Logic Bomb.
-View SameGoogleiqdbSauceNAO 126835399737.jpg, 219KiB, 1024x768
-Anonymous Fri 12 Mar 2010 03:14:10 No.4685744 Report
-Anonymous Fri 12 Mar 2010 03:16:59 No.4685749 Report
-Quoted By: >>4685753
->>4685729
-Because knowing Sciencegar, if we don't word this properly, it's going to backfire.
-Haken Browning !zHe7DH816A Fri 12 Mar 2010 03:17:59 No.4685753 Report
-Quoted By: >>4685772 >>4685778
->>4685749
->Because knowing Sciencegar, regardless of how well we word it, it's going to backfire.
-
-FTFY, in case you forgot how the last couple threads played out.
-View SameGoogleiqdbSauceNAO 126835420856.jpg, 70KiB, 1024x768
-Anonymous Fri 12 Mar 2010 03:17:59 No.4685756 Report
-View SameGoogleiqdbSauceNAO 126835432928.jpg, 124KiB, 1024x768
-Anonymous Fri 12 Mar 2010 03:19:59 No.4685764 Report
-Sciencegar Sciencebolt Fri 12 Mar 2010 03:21:59 No.4685769 Report
-Quoted By: >>4685797 >>4685822
->>4685729
-
-What Anon came up with was
-
->First, we talk to the irregulars and get as much info on what happened with Dark Brain in their universe as possible. This should get us the fate of Dynamis 3/Duminuss 3 (I.E. Dark Brain blew it up after it summoned him)
-
->Then ask Dumi what priority is placed on its own survival.
-
->If Dumi's survival is prioritized higher than getting the compatikaiser and summoning Dark Brain, then we should be able to override Dumi's compulsion to summon DB.
->If it is less, we may need to apply logic to get it to increase the priority. Mainly, that Dumi's mission cannot be accomplished unless Dumi survives, so survival should be a higher priority than obtaining the compatikaiser.
-
->Likewise, summoning Dark Brain without having the compatible kaiser would inflict his wrath and likely cause Dumi's death, preventing the collection of the compatible kaiser, so survival is once again more important.
-
->Since survival is more important than both parts of the mission, we can conclude that Survival > Completing the mission. Once Dumi's priorities are appropriately adjusted, we spring the "If you complete the mission, Dark Brain kills you" bit.
-
-
-My immediate thought is 'You haven't done part one yet.' You haven't talked the Irregulars in a long while, and you haven't talked to the ones on the Kurogane at all, with the exceptions of Bullet and Kusuha. They told you about the stuff with the Shadow Mirrors and the Einst, but you never thought to ask them about Dumi, since his identity had barely come up at that point.
-View SameGoogleiqdbSauceNAO 126835444991.jpg, 191KiB, 1024x768
-Anonymous Fri 12 Mar 2010 03:21:10 No.4685771 Report
-Zeta Zaku Fri 12 Mar 2010 03:21:59 No.4685772 Report
->>4685753
-Indeed. We probably used up all our natural 20s in our last few threads. Damn Katina's CHA stat, it rises and falls more then Raioh on electro-speed.
-Anonymous Fri 12 Mar 2010 03:22:59 No.4685775 Report
-Quoted By: >>4685785 >>4685822
->>4685738
-1: Kouta can take on mechs on foot.
-2: We'd still have to STEAL the compatikaiser.
-3: Killing Kouta pisses off his sister. Who, aside from being badass in her own right, is the girlfriend of Folka. True, no one is quite sure where the Shura went after OGG, but I'm sure if we pissed Shouko off, she'd find a way to find him. And then we'd have Giant-Robot-Kenshiro out for our blood. And that simply WON'T. END. WELL.
-View SameGoogleiqdbSauceNAO 126835452525.jpg, 178KiB, 1024x768
-Anonymous Fri 12 Mar 2010 03:23:10 No.4685776 Report
-Sciencegar Sciencebolt Fri 12 Mar 2010 03:23:59 No.4685778 Report
-Quoted By: >>4685780
->>4685753
->Because knowing Sciencegar's massive cast of character, each with their own motivations and goals, regardless of how well we word it, third parties are going to cause it to backfire.
-
-FIFY
-Goddamn Sandwitches Fri 12 Mar 2010 03:24:59 No.4685780 Report
->>4685778
-Well shit.
-View SameGoogleiqdbSauceNAO 126835464588.jpg, 190KiB, 1024x768
-Anonymous Fri 12 Mar 2010 03:24:10 No.4685782 Report
-GUNDAMU !0smG1gQz9c Fri 12 Mar 2010 03:25:59 No.4685785 Report
-Quoted By: >>4685822
->>4685775
-Points taken.
-
-Find out about Dumi from the Irregulars, and then logic bomb away. Are there even any irregulars with us now? We might have to contact them somehow, maybe while close to the Compatchy-Kaiser. We might cut it a little close, but...
-View SameGoogleiqdbSauceNAO 126835476646.jpg, 169KiB, 1024x768
-Anonymous Fri 12 Mar 2010 03:26:10 No.4685789 Report
-Zeta Zaku Fri 12 Mar 2010 03:28:59 No.4685797 Report
-Quoted By: >>4685813 >>4685816
->>4685769
-This is true. The only Irregulars who have been in close proximity to Dumi for any length of time were Masaki and Lune, and that was back when he was still stuck as DGG-04. None of them know that there's a rogue Duminass in this universe.
-
-Our best bet would be to track down the Kurogane, and by extension Raul and Fiona. They'd probably be most sympathetic to Dumi's case.
-View SameGoogleiqdbSauceNAO 12683549172.jpg, 167KiB, 1024x768
-Anonymous Fri 12 Mar 2010 03:29:10 No.4685798 Report
-Anonymous Fri 12 Mar 2010 03:30:59 No.4685804 Report
-Okay, first, we politely ASK the Irregulars if we can borrow the Compatikaiser. They inevitably refuse. We ask them why we can't borrow Kouta and Shouko to be returned as soon as we're done. They most likely refuse again. We ask why. They bring up Dumi and/or Dark Brain. We ask for more information. We get what happened in the OGverse. We ask to have a minute to confirm this information with our Dumi. We ask Dumi if it might be a good idea to re-assess its priorities.
-Anonymous Fri 12 Mar 2010 03:32:59 No.4685810 Report
-Quoted By: >>4685824
->Under the current priority set, the only way to leave is to either get the Kaiser, which is bad for obvious reasons, or to provoke the Kaiser into following us, which is bad because Kaiser, sword, our ass. 
-
-Maybe we could lure it out to us and jump dimension and take it with us. It will certainly be eaiser to fight if it's seperated from its allies.
-
-I don't know. I just hate the idea of tricking Dumi...
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 03:32:59 No.4685813 Report
-Quoted By: >>4685817
->>4685797
-Raul and Fiona are the guys who originally came from the SM side aren't they?
-Sciencegar Sciencebolt Fri 12 Mar 2010 03:33:59 No.4685816 Report
->>4685797
-
-Dumi was forced to reveal himself when Gilliam, Sanger and Ratsel cornered him. They know it, and by extension, Ryuune and co do too. They seemed to agree an uneasy truce though, as Dumi didn't want to harm them, and they preferred not to fight.
-Anonymous Fri 12 Mar 2010 03:33:59 No.4685817 Report
->>4685813
-Yes.
-Anonymous Fri 12 Mar 2010 03:34:59 No.4685822 Report
-Quoted By: >>4685828 >>4685833 >>4685870 >>4685894
->>4685785
->>4685775
->>4685769
-Didn't Kusuha and Brit gave us something in case we wanted to speak/meet them? Lets use it and find go were they are.
-
-Then tell them what is going on so far with the Balmarian/SM/Yukiko/Einst clusterfuck and then try to get a conversation going and ask them if they have any idea what might happen now, since they have fought all of them(except Yukiko) in the past.
-
-After telling us (most likely to happen, don't see why they shouldn't) ask them what happened with Duminass and Dark Brain in their world, since it seems that they now more about them than us, Dumi included.
-Anonymous Fri 12 Mar 2010 03:35:59 No.4685824 Report
->>4685810
-We're not tricking Dumi. We're bringing up that Dumi is likely stuck in a situation where Dark Brain has a good chance of deciding to kill him/her no matter WHAT happens, and perhaps it might be better for everyone involved NOT to steal the compatikaiser.
-Anonymous Fri 12 Mar 2010 03:36:59 No.4685828 Report
->>4685822
-Not a bad plan. Worth considering.
-Anonymous Fri 12 Mar 2010 03:37:59 No.4685833 Report
->>4685822
-This, try to get an information exhange. If they question us why, then tell them the truth about our plans and that, since they seem like decent people, we would like to see them survive this mess.
-Couch Fri 12 Mar 2010 03:39:59 No.4685840 Report
-Quoted By: >>4685854
-Okay, so if we plan to take the Kaiser, we have to do it when it's alone and without the G Thundergate. Thrudgelmir and base Kaiser are on the same level of power, as both are DGG-class machines, so we should be able to take it.
-
-Then we have the Kaiser. Then the question becomes how to stop Dumi from summoning Dark Brain, who kills us. The answer to that is probably last-second logic bomb. It's an extremely risky plan...but I don't think we can get out of it.
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 03:41:59 No.4685854 Report
-Quoted By: >>4685874
->>4685840
-If we try to take Kaiser, we'll have the OG numbers gunning for us again, along with Dark Brain coming in to fuck us over. This is on top of our current problems...
-Anonymous Fri 12 Mar 2010 03:44:59 No.4685870 Report
-We are currently way underpowered to fight against all the irregulars, especially seeing how we know nothing about the power level of SM-verse Kaiser. I think for now the best course of action is to get a logic error like what >>4685822 said going with Dumi so that we might have some breathing space while we are hulking up.
-Anonymous Fri 12 Mar 2010 03:45:59 No.4685871 Report
-Quoted By: >>4685881
-There's no solution that doesn't lead to clusterfuck is there?
-Couch Fri 12 Mar 2010 03:46:59 No.4685874 Report
-Quoted By: >>4685897 >>4685901
->>4685854
-But we can't leave if we don't have it. We have to either get it, provoke it, or bug it before we can leave. We don't have any bugs, we can't match it if we provoke it without first separating it from its allies, and getting it will mean that we have to logic bomb Dumi -immediately- after we acquire it. None of these plans are good, but only getting it puts us in a position where we control what's going on to even the slightest degree.
-GUNDAMU !0smG1gQz9c Fri 12 Mar 2010 03:47:59 No.4685881 Report
-Quoted By: >>4685905
->>4685871
-Find Alfimi, have her make you an Einst, use machine cells to become a Jetzt, proceed to make all the einst your bitches, then fuse with Regisseur and become a gigantic moon sized tentacle rape machine.
-
-And then molest Dark Brain into becoming your bitch.
-Anonymous Fri 12 Mar 2010 03:50:59 No.4685894 Report
-I suggest we leave the Kaiser for later. The only way we might be able to steal it is if the Irregulars are caught up between a battle of Einst/Balmarian/Guneden versus Yukiko/SM/DC and all sides manage to fuck their forces up. Only then we might be able to take the comp. Kaiser without taking mass loses and that's only if:
--the kaiser is already half-destroyed
--Katina Faction manages to stay hidden in the shadows while the other three superpowers take each other out.
-
->>4685822
-Seems like for now this is the best plan.
-Couch Fri 12 Mar 2010 03:51:59 No.4685897 Report
->>4685874
-For the short-term, this means getting into contact with some of the Irregulars, who can tell us the story about what happened with Dark Brain and Duminuss on their side. This lets us know that Dumi will be killed if he summons Dark Brain regardless of success or failure, which is the key to the logic bomb. Then we lay the groundwork of the logic bomb by doing all steps up to "Dumi's survival is more important than immediately completing the mission". Once we have the Kaiser, before Dumi can summon Dark Brain, fire the bomb's detonator - summoning Dark Brain and thus completing the mission will lead to Dumi's demise. This will put Dumi in the position of prioritizing its survival by not completing the mission over immediately completing the mission by summoning Dark Brain - while hypothetically still in the process of completing the mission, it can and must now delay indefinitely.
-Anonymous Fri 12 Mar 2010 03:52:59 No.4685901 Report
-Quoted By: >>4685918
->>4685874
-Who said that we can't leave without it? The Irregulars aren't going to get out of this dimension anyway and we have Shuu acting as our messenger.
-View SameGoogleiqdbSauceNAO 1267478808958.jpg, 41KiB, 640x480
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 03:53:59 No.4685905 Report
->>4685881
-Worst plan yet! Good job.
-Couch Fri 12 Mar 2010 03:56:59 No.4685918 Report
-Quoted By: >>4685977
->>4685901
-
-We asked Dumi about it when we considered the bug - if he can't confirm the Kaiser's position dimensionally, leaving the universe it's in without it will be treated as failure, especially if we encounter Dark Brain in the storm. Of course, if that happens, we're dead no matter what, so...
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 04:01:59 No.4685946 Report
-Quoted By: >>4685952
-Why exactly does Dark Brain want the Compatikaiser anyway? What's so special about it compared to any other Super Robot?
-Anonymous Fri 12 Mar 2010 04:02:59 No.4685952 Report
->>4685946
-He has one of the 12 Spheres of Almighty Mightness or something.
-Goddamn Sandwitches Fri 12 Mar 2010 04:04:59 No.4685970 Report
-Quoted By: >>4685978 >>4686004
-Hmm... Maybe we should talk to our top NON-Dumi allies on the ship with us and see if the can help us come up with a alternate plan instead of the Logic Bomb.
-Anonymous Fri 12 Mar 2010 04:05:59 No.4685977 Report
->>4685918
-So what now? We tell them to come with us during the Dimensional Trip(tm)? Consider the fact that there is now way the Irregulars are going to leave the Kaiser alone with Dumi or us for even one second and if we try to make even one agressive move they are gonna rape our poor underpowered squad, no way around it.
-Couch Fri 12 Mar 2010 04:05:59 No.4685978 Report
->>4685970
-...Yeah, let's do that as well.
-Gilliam Yaeger !q0uEtog.ao Fri 12 Mar 2010 04:08:59 No.4685995 Report
-Well, my take on it is this:
-
-If we happen to meet up with Dark Brain, Dumi simply tells him that there was no possible way to acquire it with our current forces.
-
-Or, if we're feeling like bastards, we can just point him in the general direction of the Irregulars...
-NuBlackAnon !!z6ldXGL61Wm Fri 12 Mar 2010 04:08:59 No.4686002 Report
->>4684965
-NEO GRUNGUST TIME?
-Anonymous Fri 12 Mar 2010 04:09:59 No.4686004 Report
-Quoted By: >>4686025
->>4685970
-I don't think that there is any reason to discuss the Logic Bomp anymore, we go the Ognumbers, ask them, they tell us stuff, we convince Dumi that Dark Brain might zap us on the spot no matter what we do so we need to at least be prepared to escape when we give him the Kaiser.
-
-The problem is getting the Kaiser in the first place.
-Gilliam Yaeger !q0uEtog.ao Fri 12 Mar 2010 04:11:59 No.4686017 Report
-Quoted By: >>4686031
-I don't know why everyone thinks the Logic Bomb is going to work.
-
-I'm going to hazard a guess that Sruvival is at, say, 93 points out of 100, and OBEY is at like 99991993732985 out of 100.
-
-Our 'bomb' will be overridden like a thousand Trombes
-Couch Fri 12 Mar 2010 04:12:59 No.4686025 Report
->>4686004
-...Discuss the logic bomb itself with the Irregulars. Convince them to help us convince Dumi. They'll do it, they don't want Dumi to go after the Kaiser or summon Dark Brain any more than we do.
-Couch Fri 12 Mar 2010 04:14:59 No.4686031 Report
->>4686017
-The point isn't to convince Dumi not to obey. The point is to convince Dumi not to obey -immediately-.
-
-In fact, we should talk to Dumi about this. Ask him what it's like, what he's been made to prioritize and how strongly.
-Sciencegar Sciencebolt Fri 12 Mar 2010 04:14:59 No.4686034 Report
-Quoted By: >>4686075 >>4686080 >>4686093 >>4686119
 You walk out of the hangar, your head aswim with the events of the past few hours. Even Lalia sexy behind isn't enough to distract you. You pass a computer terminal, and, after a few seconds, start keying in the comm-frequency Kusuha gave you.
 
 Then you stop. Dumi's earpiece is still in your left ear. If you open this comm-channel, the likelihood is that Dumi will hear, and listen in on your conversation.
 
-IF YOU ARE GOING TO TALK TO THE IRREGULARS, YOU HAVE TO MAKE THE CHOICE WHETHER YOU'RE GOING BEHIND DUMIS BACK TO DO IT.
-
-Other strategies that have been raised:
-
-Spring the logic bomb without the critical piece (That Dark Brain could kill Dumi anyway: Katina has no knowledge of Dark Brains methods and doesn't know this).
-
-Attract Kaiser out of the Kurogane somehow.
-
-Create a bug: This requires technology you only have one of (back at base with Granzon), and few places to get it.
-
->The only way we might be able to steal it is if the Irregulars are caught up between a battle of Einst/Balmarian/Guneden versus Yukiko/SM/DC and all sides manage to fuck their forces up.
-
-This is a possible strategy too. You have radios, and frequencies for many of these factions...
-Haken Browning !zHe7DH816A Fri 12 Mar 2010 04:20:59 No.4686075 Report
-Quoted By: >>4686105
->>4686034
->mention of Guneden
-
-Is this a confirmation?
-
-Also, the bug option hinges too far on OOC knowledge for my liking. Open channel to Irregulars without letting Dumi know - interventions work best when they're surprises, after all.
-Anonymous Fri 12 Mar 2010 04:21:59 No.4686080 Report
->>4686034
-Have Dumi listen, the information will benefit everyone. Besides, we might hurt his feelings if we do not let him listen.
-GUNDAMU !0smG1gQz9c Fri 12 Mar 2010 04:23:59 No.4686093 Report
-Quoted By: >>4686188
->>4686034
-I say to ask Dumi not to listen in while you talk, and say to him that you're in the process of forming a plan to make everything work out.
-
-After all, he's your partner. Ask him to give you some leeway to pull your plan off, and to trust you on this one. Nobody says the logic bomb has to be sprung in some dramatic matter. If Dumi trusts us, we can still present the logic bomb as a the solution to Dumi without going behind his back to do it.
-Goddamn Sandwitches Fri 12 Mar 2010 04:25:59 No.4686105 Report
->>4686075
-I'm with Haken on this one, It might piss Dumi off, but we are a ship full of scientists, dissidents, and wounded. There is no way in hell we would be able to steal the Kaiser right now.
-
-Not to mention the fact we are actually going to speak to them behind Dumi's back might actually score us some points with the Irregulars.
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 04:28:59 No.4686119 Report
->>4686034
-I don't want us to go behind Dumi's back, really. The info the OG numbers give us will still be the same whether he hears it from us or directly.
-Couch Fri 12 Mar 2010 04:39:59 No.4686188 Report
-Quoted By: >>4686191
->>4686093
-This.
-Anonymous Fri 12 Mar 2010 04:40:59 No.4686191 Report
-Quoted By: >>4686242
->>4686188
-Thirding
-Anonymous Fri 12 Mar 2010 04:49:59 No.4686233 Report
-Quoted By: >>4686244
-Why should we go behind Dumi's back? In all seriousness?
-Anonymous Fri 12 Mar 2010 04:51:59 No.4686242 Report
-Quoted By: >>4686260
->>4686191
-Fourth. We're best discussing this with Dumi listening.
-GUNDAMU !0smG1gQz9c Fri 12 Mar 2010 04:52:59 No.4686244 Report
-Quoted By: >>4686343
->>4686233
-Because if he finds out Dark Brain will make him explode regardless, he'll just spaz out and be harder to explain things to.
-
-Not to mention, if we work this from the whole partnership angle we might get a badass scene where Katina is on the verge of tears explaining this while Dumi just sits there quietly before saying "...Orders Acknowledged, partner." and then he punches a hole in space/time.
-Sciencegar Sciencebolt Fri 12 Mar 2010 04:56:59 No.4686260 Report
-Quoted By: >>4686338
->>4686242
-
-Ugh....those other three votes are for asking Dumi to give you private time.
-Anonymous Fri 12 Mar 2010 05:19:59 No.4686338 Report
->>4686260
-Oh, my bad.
-Anonymous Fri 12 Mar 2010 05:20:59 No.4686343 Report
-Quoted By: >>4686362
->>4686244
-Uh. I don't see why Dumi would explode from the Irregulars telling him and not from us telling him
-Couch Fri 12 Mar 2010 05:26:59 No.4686362 Report
->>4686343
-A: We're his partner, he's -very- much more inclined to listen to us than to the Irregulars.
-B: If he hears it from us, it'll be coming as the capstone of a logical progression that makes him prioritize his survival. If he hears it now, it'll be trying to put the capstone on without laying the foundation first.
-Anonymous Fri 12 Mar 2010 05:28:59 No.4686369 Report
-Quoted By: >>4686387
-I wonder...
-Would the Irregulars have been taping when Dark Brain nuked Dumi-3?
-I mean, they have monitors, so the probably have video files of everything they fight.
-Sciencegar Sciencebolt Fri 12 Mar 2010 05:29:59 No.4686375 Report
-Quoted By: >>4686380 >>4686393 >>4686403
 "D-Dumi?"
 
-Yeah, Katina.
+*Yeah, Katina.*
 
-"I-I'm gonna...give some people a call now. I want...I want you to just listen. No sage advice, no I-are-smarter-then-puny-humans stuff, and no flying off in a panic or jamming the signal. Just...listen."
+"I-I'm gonna... give some people a call now. I want... I want you to just listen. No sage advice, no I-are-smarter-then-puny-humans stuff, and no flying off in a panic or jamming the signal. Just... listen."
 
-...Alright, Katina. I trust you.
+*...Alright, Katina. I trust you.*
 
 You type in the last of the code.
 
@@ -517,120 +140,24 @@ Kusuha's face pops up on the screen. Its a big contrast, between the bright pepp
 
 "Great! I managed to save a shipful of wounded soldiers from Vindel Mausers evil clutches, and prevented him from getting a Black Hole Engine!"
 
-"Oh! Wow, thats...really something! So, have you left the Shadow Mirrors then?"
+"Oh! Wow, thats... really something! So, have you left the Shadow Mirrors then?"
 
-"Working on it, still have to break the news to Irm. Er, Kusuha...Back in your world, did you ever meet a dude by the name of Duminass?"
+"Working on it, still have to break the news to Irm. Er, Kusuha... Back in your world, did you ever meet a dude by the name of Duminass?"
 
-"D-Duminass? How did y...Katina, have you met her?"
+"D-Duminass? How did y... Katina, have you met her?"
 
 "Her?"
-Anonymous Fri 12 Mar 2010 05:30:59 No.4686380 Report
->>4686375
-Here's where things should get interesting.
-Anonymous Fri 12 Mar 2010 05:32:59 No.4686387 Report
->>4686369
-Something tells me recording the image of a multidimensional entity of pure evil is a lot harder than it seems.
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 05:33:59 No.4686393 Report
->>4686375
->Her
-We are so teasing Dumi with this later.
-Goddamn Sandwitches Fri 12 Mar 2010 05:35:59 No.4686403 Report
-Quoted By: >>4686421
->>4686375
-The first thing that came to mind was pretty simple.
 
-Poor, Poor Irm...
-Anonymous Fri 12 Mar 2010 05:40:59 No.4686421 Report
-Quoted By: >>4686439
->>4686403
-Hey, at least Irm still has a gun, right?
+"Duminass was a big monster AI, which was sent by Dark Brain to our world. She got damaged or something, and she had amnesia. All she knew was that if she got hold of Kouta's Compachi, she could summon her master and learn where she came from. She chases up all over the Earth as we tried to stop the Shuras, and eventually, her own plans got her hurt badly. She... she had to consume her only friends to survive, and even then, she wouldn't stop. She summoned Dark Brain to our world, and he... he killed her. Called her a defect, and just squished her there and then. We barely managed to stop him ourselves. There was nothing left but Despinis."
 
-He can still be classified as armed and dangerous.
-Anonymous Fri 12 Mar 2010 05:43:59 No.4686439 Report
-Quoted By: >>4686450 >>4686451 >>4686457
->>4686421
-Well maybe if Wodan wasn't on board.
-Wodan could probably take all the shots he could fire and then pound him to the ground.
-Same goes for the 3 Stooges, Dumi and Katina.
-Probably for Arado, Seolla, and Lat too since they're modified humans right?
-Sciencegar Sciencebolt Fri 12 Mar 2010 05:45:59 No.4686448 Report
-Quoted By: >>4686484 >>4686495
-"Duminass was a big monster AI, which was sent by Dark Brain to our world. She got damaged or something, and she had amnesia. All she knew was that if she got hold of Kouta's Compachi, she could summon her master and learn where she came from. She chases up all over the Earth as we tried to stop the Shuras, and eventually, her own plans got her hurt badly. She...she had to consume her only friends to survive, and even then, she wouldn't stop. She summoned Dark Brain to our world, and he...he killed her. Called her a defect, and just squished her there and then. We barely managed to stop him ourselves. There was nothing left but Despinis."
-
-You blink as Kusuha finishes the story. "Woah, thats...thats pretty heavy."
+You blink as Kusuha finishes the story. "Woah, thats... thats pretty heavy."
 
 "But...Why are you asking me this? Did you meet another Duminuss? Gilliam said he'd seen another, but it didn't attack him."
 
-"I...guess I just wanted to know what the fuss was about. That giant turkey flapping about, causing a ruckus...I wanted to know what the story was."
+"I... guess I just wanted to know what the fuss was about. That giant turkey flapping about, causing a ruckus... I wanted to know what the story was."
 
-"Katina, if you do know where the Duminass is...Well, we don't want her to lead Dark Brain to our world, or to yours for that matter. He...he could destroy your planet, or worse. We don't mean Duminass ill, we never would but...Do you want to risk your world to that, after fighting so hard for it?"
+"Katina, if you do know where the Duminass is... Well, we don't want her to lead Dark Brain to our world, or to yours for that matter. He... he could destroy your planet, or worse. We don't mean Duminass ill, we never would but... Do you want to risk your world to that, after fighting so hard for it?"
 
-WILL KATINA RESPOND TO KUSUHA, OR TALK TO DUMI NOW?
-Anonymous Fri 12 Mar 2010 05:45:59 No.4686450 Report
->>4686439
-Arado is a goddamn Kamen Rider at this point. It'd take anti-tank weapons to put him down
-Goddamn Sandwitches Fri 12 Mar 2010 05:45:59 No.4686451 Report
->>4686439
-... And Now I have the Image of Coop taking out Irm by Sitting on him...
-View SameGoogleiqdbSauceNAO 1268187943310.jpg, 179KiB, 640x480
-Anonymous Fri 12 Mar 2010 05:46:59 No.4686457 Report
-Quoted By: >>4686480
->>4686439
-No, see, 'cause, armed and dangerous? ARMED and dangerous?
-
-Because, his arm is.... oh, nevermind.
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 05:51:59 No.4686480 Report
-Quoted By: >>4686485
->>4686457
-Is that a Duminunu?
-Anonymous Fri 12 Mar 2010 05:52:59 No.4686484 Report
-Quoted By: >>4686503
->>4686448
-KATINA ACTIVATES DEEP MODE/SEDUCE DUMI MODE
-We don't choose where we come from.
-We can only choose where we go.
-If there was another Duminass, it should be judged based on it's actions, not on past experience.
-Even in this mess of a multiverse we live in where you can actually doubles of your selves you're not the same person.
-
-We each our only who we allow ourselves to become.
-Whether it be Human, Machine, or Nightmarish Space Vampires who feed on song energy.
-
-So thank you for your input but if I ever meet that other Duminass I'll judge them according on their actions, and suffer the good and ill that comes with it.
-Haken Browning !zHe7DH816A Fri 12 Mar 2010 05:53:59 No.4686485 Report
->>4686480
-Why yes it is.
-
-IIRC there was some debate over whether to let it start this thread, but I'm sure the actual OP pic choice worked out fine.
-GUNDAMU !0smG1gQz9c Fri 12 Mar 2010 05:55:59 No.4686495 Report
-Quoted By: >>4686503
->>4686448
-I think we've hit on the key points we needed.
-
-Deploy logic bomb.
-Haken Browning !zHe7DH816A Fri 12 Mar 2010 05:58:59 No.4686503 Report
-Quoted By: >>4686510 >>4686519 >>4686557 >>4686562
->>4686484
->>4686495
-Hmmm...is it even possible to chain the Rousing Speech into the Logic Bomb? If so, do that.
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 05:59:59 No.4686510 Report
-Quoted By: >>4686517
->>4686503
-Seconded
-Goddamn Sandwitches Fri 12 Mar 2010 06:00:59 No.4686517 Report
-Quoted By: >>4686523
->>4686510
-Thirded
-NuBlackAnon !!z6ldXGL61Wm Fri 12 Mar 2010 06:01:59 No.4686519 Report
->>4686503
-I for one agree with this
-Couch Fri 12 Mar 2010 06:02:59 No.4686523 Report
->>4686517
-Fifthed.
-Gilliam Yaeger !q0uEtog.ao Fri 12 Mar 2010 06:11:59 No.4686557 Report
->>4686503
-Agreement.
-Sciencegar Sciencebolt Fri 12 Mar 2010 06:12:59 No.4686561 Report
-Quoted By: >>4686571 >>4686577
 "...In this life, you don't choose where you come from, Kusuha. You only choose where you go."
 
 "...Nani?"
@@ -647,44 +174,21 @@ Quoted By: >>4686571 >>4686577
 
 "Wait, what was that last one?"
 
-"Stop ruining the moment. Anyway...Thank you, Kusuha. If I ever do meet that other Duminass I'll judge him according on his actions, and suffer the good and ill that comes with it."
+"Stop ruining the moment. Anyway... Thank you, Kusuha. If I ever do meet that other Duminass I'll judge him according on his actions, and suffer the good and ill that comes with it."
 
 "...Why do you keep calling it a he?"
 
 "Oh look, my quarter's running out, darned payphones! Gotta go!"
 
-...I'll assume that was meant for my benefit.
-Nameless Grunt Fri 12 Mar 2010 06:12:59 No.4686562 Report
->>4686503
-Throwing in my support for this motion.
-Nameless Grunt Fri 12 Mar 2010 06:14:59 No.4686571 Report
->>4686561
->Nightmarish Space Vampires who feed on song energy
-Nice Macross 7 nod there.
-GUNDAMU !0smG1gQz9c Fri 12 Mar 2010 06:15:59 No.4686577 Report
-Quoted By: >>4686585 >>4686614
->>4686561
-Right, so we made a phone call, asked about the other world's Dumi, and made a motivational speech.
+*...I'll assume that was meant for my benefit.*
 
-...What exactly did this accomplish, again?
-Goddamn Sandwitches Fri 12 Mar 2010 06:16:59 No.4686585 Report
->>4686577
-Not sure yet, lets see if the Logic Bomb will work.
-Anonymous Fri 12 Mar 2010 06:22:59 No.4686614 Report
->>4686577
-Well, the logic bomb might work now.
-Second, we're setting a good example for the Irregulars in case we must team up with them or betray them.
-Third, if Dumi is anything like the W series we might be able to get him to betray his master and make machine on violent girl love to us, with three delicious accessories as well.
-All and all, we just need to test the Logic Bomb and move on from then.
-Sciencegar Sciencebolt Fri 12 Mar 2010 06:27:59 No.4686631 Report
-Quoted By: >>4686638 >>4686649 >>4686655 >>4686671 >>4686678 >>4686712
-"Dumi....Do you want to live?"
+"Dumi... Do you want to live?"
 
-Yes. But more than that, I want to live with Despinis, Lalia and Tis....and I'd like to live with you, if you'll let me.
+*Yes. But more than that, I want to live with Despinis, Lalia and Tis... and I'd like to live with you, if you'll let me.*
 
-"So...why do you follow Dark Brains mission? If you want to live, why risk everything for him? He doesn't care about you, he'll squish you like he did that other one. Heck, even if you do give him the Kaiser, he'll probably kill you anyway, just because he doesn't like that you've been fucking about so long with humans. Dumi...Can't you see your life is more important than the mission??"
+"So... why do you follow Dark Brains mission? If you want to live, why risk everything for him? He doesn't care about you, he'll squish you like he did that other one. Heck, even if you do give him the Kaiser, he'll probably kill you anyway, just because he doesn't like that you've been fucking about so long with humans. Dumi... Can't you see your life is more important than the mission??"
 
-...Katina, I'm hurt. After all we've been through together, do you really think I'm just some computer?
+*...Katina, I'm hurt. After all we've been through together, do you really think I'm just some computer?*
 
 "No! But you keep going on about this mission, its driving everything you do, I need to break that program."
 
@@ -692,470 +196,83 @@ It's not a program, Katina! It's not something Dark Brain patched onto my OS to 
 
 "Dumi!"
 
-I wasn't built by Dark Brain, not in the conventional sense. It was more like he tore off some skin cells and told them to find something for him. I am partially composed of Dark Brains essence. I was born out of his...truth. He IS fear, he IS pain, he IS death. I follow his will not because out of gratitude or control, but because I fear him with the fear of the trillions who've seen him. Because I know the pain that he inflicted on those trillions. And because if I screw up, I and everyone I know and love will be added to that trillion-strong piles, and there will be no-one to mourn them.
-Goddamn Sandwitches Fri 12 Mar 2010 06:29:59 No.4686638 Report
->>4686631
-... Well that plan appears to have failed miserably.
-Nameless Grunt Fri 12 Mar 2010 06:31:59 No.4686649 Report
->>4686631
-Katina must now counter with some gripes about the School.
-The Logic Bomb (tm) cannot fail.
-GUNDAMU !0smG1gQz9c Fri 12 Mar 2010 06:33:59 No.4686655 Report
->>4686631
-Well, fuck.
+*I wasn't built by Dark Brain, not in the conventional sense. It was more like he tore off some skin cells and told them to find something for him. I am partially composed of Dark Brains essence. I was born out of his... truth. He IS fear, he IS pain, he IS death. I follow his will not because out of gratitude or control, but because I fear him with the fear of the trillions who've seen him. Because I know the pain that he inflicted on those trillions. And because if I screw up, I and everyone I know and love will be added to that trillion-strong piles, and there will be no-one to mourn them.*
 
-Uh, I guess we should point out that we were just trying to help.
+"Do you really trust such a being not to kill you, regardless? Dumi, sometimes the only way to protect those you care about is to fight. Think about it. He's not unbeatable. The Irregulars fought him off when he came to their dimension, right? However powerful he is, he's NOT invincible. Dumi... Can't you be brave? Can't you summon up your courage and stand up to him?"
 
-Man, everything seems to blow up in Katina's face lately. Why do we even bother trying to help people? Maybe we should let the smart people decide what to do, and just kick the fuck out of things like we're good at.
-Anonymous Fri 12 Mar 2010 06:37:59 No.4686671 Report
-Quoted By: >>4686675
->>4686631
-"Do you really trust such a being not to kill you, regardless? Dumi, sometimes the only way to protect those you care about is to fight. Think about it. He's not unbeatable. The Irregulars fought him off when he came to their dimension, right? However powerful he is, he's NOT invincible."
-Anonymous Fri 12 Mar 2010 06:39:59 No.4686675 Report
->>4686671
-Seriously, we need inspirational speach right now. Let's do it!
-Anonymous Fri 12 Mar 2010 06:39:59 No.4686678 Report
-Quoted By: >>4686683
->>4686631
-If Dark Brain is truly as horrible as you describe him, then do you think he'll ever be satisfied with what you do? Do you think helping him out of fear of him will ever give you a future worth living?
-A Future where you don't have to watch every action you make just to make sure he doesn't snuff you out like a candle?
-If he is all those things, even if you serve him he'll just do that to you like he did to other Dumi when she wasn't of use to him.
-We live in a universe with infinite possibilities, infinite futures!
-Even if it's a one in a million chance that you can find a way to break free from him, stop him, isn't it better to take that chance!
-Anonymous Fri 12 Mar 2010 06:40:59 No.4686683 Report
->>4686678
-Yes! Exactly! Inspirational Speech!
-Sciencegar Sciencebolt Fri 12 Mar 2010 06:40:59 No.4686685 Report
-Quoted By: >>4686710 >>4686714 >>4686728 >>4686738 >>4689791
-"Dumi...Can't you be brave? Can't you summon up your courage and stand up to him?"
+*...I didn't know what courage was, until I met you, Katina.*
 
-....I didn't know what courage was, until I met you, Katina.
+"Ugh... Wow, dunno what to say to that..."
 
-"Ugh...Wow, dunno what to say to that..."
-
-Look at you, Katina. You're a lot like me, in many ways. You have the mind, the heart, the soul of a full person, but for as long as you can remember, you've been used as a weapon, people have tried to use you like a tool, and then discarded you because you weren't the right shape for them. But even with all that, you've tried to have a life, tried to find a purpose of your own, and screwed up as it may be, you've succeeded, just a little. You're...my inspiration, Katina.
+*Look at you, Katina. You're a lot like me, in many ways. You have the mind, the heart, the soul of a full person, but for as long as you can remember, you've been used as a weapon, people have tried to use you like a tool, and then discarded you because you weren't the right shape for them. But even with all that, you've tried to have a life, tried to find a purpose of your own, and screwed up as it may be, you've succeeded, just a little. You're... my inspiration, Katina.*
 
 The tears roll down your face freely now, as you run back towards the hangar. "Oh Dumi!"
 
-But...whenever I look into your face, or the faces of my Homonculi, all that courage, all that inspiration...it's not enough. To have friends, to have children, that's my dream, but I know it could all be washed away in an instant! All I need is a mech, Katina. A lousy pile of metal and microchips! I can just find it, take it to another world, get one of my idiot siblings to summon that bastard, and escape the madness. One mech, for my life and the lives of everyone I love...why is that so much to ask?
+*But... whenever I look into your face, or the faces of my Homonculi, all that courage, all that inspiration... it's not enough. To have friends, to have children, that's my dream, but I know it could all be washed away in an instant! All I need is a mech, Katina. A lousy pile of metal and microchips! I can just find it, take it to another world, get one of my idiot siblings to summon that bastard, and escape the madness. One mech, for my life and the lives of everyone I love... why is that so much to ask?*
 
 You run into the hangar, suddenly realise that Dumi is flying outside the ship, and turn to hug Lalia, Despinis and Tis in his stead.
 
-AFTER YOU RECOVER, WHAT WILL BE YOUR RESPONSE?
-Anonymous Fri 12 Mar 2010 06:45:59 No.4686710 Report
-Quoted By: >>4686757
->>4686685
-Hug the homunculi, appologize for this, and then get in a mech and follow Dumi! We're giving Dumi a hug!
-Anonymous Fri 12 Mar 2010 06:45:59 No.4686712 Report
->>4686631
-That makes no sense.
+---
 
-If Dark Brain will wipe out everything anyway, then why bother following him? If the Irregulars could defeat him once, who's to say searching the dimensions for forces of similar strength to fight Dark Brain wouldn't be a better use of Dumi's life than serving Dark Brain?
-
-The fact that Dumi can even act right now in a way that secures it's own freedom shows that Dark Brain isn't always monitoring him, seeing as Shady Cerebrum himself hasn't descended from his throne on high to take the Kaiser.
-
-So if Dark Brain is really so evil, what's stopping Dumi from simply not following it's orders and finding a force to defeat it? If there's an infinite number of universes, surely a few of them must have armies capable of working together to defeat Dark Brain.
-Nameless Grunt Fri 12 Mar 2010 06:46:59 No.4686714 Report
->>4686685
-Something about asking for the homunculi's help in freeing Dumi.
-Can't think of dialogue right now.
-Couch Fri 12 Mar 2010 06:49:59 No.4686728 Report
-Quoted By: >>4686736
->>4686685
-"*sniff* Dumi, it won't be an escape. Not forever, not even for very long. He'll find you again, kill you for not showing There's only one way out for good, and that's to stop the madness where it starts. I'm real good at breaking things...I can break this, if you'll help me get the tools."
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 06:51:59 No.4686736 Report
->>4686728
-This seems like a possible route...
-Gilliam Yaeger !q0uEtog.ao Fri 12 Mar 2010 06:52:59 No.4686738 Report
->>4686685
->You're...my inspiration, Katina.
-You are now remembering You're The Inspiration from Elite Beat Agents. Manually.
-Anonymous Fri 12 Mar 2010 06:56:59 No.4686757 Report
-Quoted By: >>4686768 >>4686771 >>4686774 >>4686778 >>4686790 >>4686815
->>4686710
-And, once we get there, we're telling Dumi that he doesn't worry about protecting us! We'll protect him! And Despinis, Lalia, and Tis! And everyone else we love and care about! If he doesn't have the courage to stand up to Dark Brain, we'll stand up to Dark Brain for him!
-
-"Dumi, I understand you don't want anything bad to happen to those you love. But Dark Brain isn't just going to harm you, he's going to harm everyone. AND I SIMPLY CAN'T STAND IDLY BY AND LET SUCH A FATE BEFALL ANYONE, ANYWHERE! IN HUNDREDS OF UNIVERSES, THERE ARE HUNDREDS OF DUMIS, ALL TRYING THEIR BEST TO PROTECT THEIR FAMILIES FROM HARM! AND I WON'T LET DARK BRAIN HARM A SINGLE ONE OF THEM! I AM KATINA TARASK! AND I SWEAR THIS ON MY VERY SOUL!
-Anonymous Fri 12 Mar 2010 07:00:59 No.4686768 Report
->>4686757
-Holy shit, I think I may have gone a little overboard there. Wait, no, that's what I was going for.
-GUNDAMU !0smG1gQz9c Fri 12 Mar 2010 07:01:59 No.4686771 Report
-Quoted By: >>4686796 >>4686815
->>4686757
-Seconding.
-
-Of course, Dumi's going to help us by getting us into other dimensions. We'll build a giant army of armies from all kinds of dimensions, and take on Dark Brain!
-
-...Wait, what if we get to him only to find his half-eaten charred corpse with the True Ultimate Evil of the universe standing over him?
-
-...For that matter, what's the chance that we'll get back to our own dimension and find that Shuu fucked everything up and there are black holes everywhere? If he says something about "forgetting to carry a two" I swear to god we should kick him in the nuts.
-Anonymous Fri 12 Mar 2010 07:02:59 No.4686774 Report
->>4686757
-in b4 Sciencegar make Dark Brain nuke one of the three stooges just to fuck up your relationship with Dumi if we don't get CompatKaiser.
-
-YOU WOULD DO THIS SCIENCEGAR
-I KNOW YOU WOULD
-Goddamn Sandwitches Fri 12 Mar 2010 07:02:59 No.4686778 Report
->>4686757
-FUCK.
-
-YES.
-Nameless Grunt Fri 12 Mar 2010 07:06:59 No.4686790 Report
-Quoted By: >>4686809
->>4686757
-As long as random clothing articles don't..."disappear"...while saying this, I'm okay with this course of action.
-Anonymous Fri 12 Mar 2010 07:08:59 No.4686796 Report
-Quoted By: >>4686812 >>4686815
->>4686771
-Well, in that case we just take even more levels of badass. Thanks to Dumi, we're no longer the purposeless grunt we were at the beginning of this! Thanks to Dumi, we've realized we can do better than just Vindel's dream of an endless war! We have a purpose of our own now! We're not just following someone else, we have our own goals! And thanks to Dumi, we're not going to just lie down and let someone like Dark Brain or Yukiko Date cause people to suffer! WE WILL CHANGE THIS WORLD!
-GUNDAMU !0smG1gQz9c Fri 12 Mar 2010 07:12:59 No.4686809 Report
-Quoted By: >>4686826 >>4686859
->>4686790
-Are you sure we can't rip our top off for effect? It works nicely in Gunbuster.
-
-We could even throw a line in about how for those who stand up for what they believe in, there's no such thing as a "top" that constrains their ample might.
-
-...On an unrelated note, how hard is it to find Time Divers? Maybe we could search for some to help us out against Dark Brain.
-Anonymous Fri 12 Mar 2010 07:12:59 No.4686812 Report
->>4686796
-Okay, I think I need to take a few breaths. I must be channeling Sanger or something.
-Gilliam Yaeger !q0uEtog.ao Fri 12 Mar 2010 07:13:59 No.4686815 Report
-Quoted By: >>4686823
->>4686796
->>4686771
->>4686757
-Finally, we are a HERO OF JUSTICE!
-
-Now where's that list? Time to tick something off!
-Anonymous Fri 12 Mar 2010 07:15:59 No.4686823 Report
->>4686815
-A few threads back, I believe. At any rate, I can do more hotblooded speeches, if neccessary. But I think these are good enough. For now.
-Nameless Grunt Fri 12 Mar 2010 07:15:59 No.4686826 Report
-Quoted By: >>4686831 >>4686845
->>4686809
-Okay, that may work. As long as the dramatic effect isn't lost by said top ripping.
-Anonymous Fri 12 Mar 2010 07:16:59 No.4686831 Report
-Quoted By: >>4686849
->>4686826
-Naturally. But we ARE going to go about this in a badass way!
-GUNDAMU !0smG1gQz9c Fri 12 Mar 2010 07:19:59 No.4686845 Report
->>4686826
-We're fucking psychotic.
-
-Do you honestly think anybody would bat an eye at us ripping our top off for dramatic effect? Except maybe Latooni, but she's just in denial about her feelings for us, or experiencing boob-envy.
-
-...Come to think of it, we might want to at least tell Irm we're going to fight a multidimensional entity of pure malice. I mean, he's our leader, and stuff. Supposedly.
-Gilliam Yaeger !q0uEtog.ao Fri 12 Mar 2010 07:19:59 No.4686847 Report
-THE CHECKLIST (A list of our long term goals, revised)
-O Build the Machine School Mecha
-O Build Grungust Neo
-O Find GUN-Oh
-O Build Turn A Huckebein
-X Upgrade Vysaga
-O OPERATION STREAKER
-O Destroy Euzeth's Interdimensional Jackass Network of Evil
-O Free Dumi from Dark Brains control
-O Meet Irui Gan Eden
-X Cause civil war in the EFA
-O Get autographs of as many badasses as possible
-O Rape Latooni
-X Rape(?) Arado
-O Rape/Finish interrogating Shine
-O Get Arado into a dress
-X Become HERO OF JUSTICE
-X Meet Silly Axel
-NEW!
-O Journey Through the Desucade
-O Complete Machine Cells
-O 'Embrace' Alfimi
-
-I think there's a few missing, a lots happened since it was last updated...
-Anonymous Fri 12 Mar 2010 07:19:59 No.4686849 Report
-Quoted By: >>4686877
->>4686831
-Also, shall we have communications channels open to the XN Geist and Eurydice while we give our speach? I want to see Sanger's reaction to someone one upping him in giving awesome speeches.
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 07:20:59 No.4686859 Report
-Quoted By: >>4686887
->>4686809
-If we're doing any ripping of clothing, I hope we're still wearing the backup dress...
-GUNDAMU !0smG1gQz9c Fri 12 Mar 2010 07:23:59 No.4686877 Report
-Quoted By: >>4686897 >>4686898 >>4686902
->>4686849
-I hardly think now's the time to go announcing to everybody that Dumi is a servant of the greatest evil in the multiverse and that all of us are going off to fight said lovecraftian horror instead of, you know, going for the reasons we gave them.
-Anonymous Fri 12 Mar 2010 07:23:59 No.4686887 Report
-Quoted By: >>4686899
->>4686859
-I'm sure we have fucktons of dresses.
-Goddamn Sandwitches Fri 12 Mar 2010 07:25:59 No.4686897 Report
->>4686877
-Agreed... That would probably get us tossed off the ship.
-Anonymous Fri 12 Mar 2010 07:25:59 No.4686898 Report
-Quoted By: >>4686913
->>4686877
-Okay, just Gilliam, Sanger, and Ratsel, and perhaps Arado and the Homunculi, if we can get them on secure channels. I want to fucking show everyone WHAT WE'RE MADE OF!
-Gilliam Yaeger !q0uEtog.ao Fri 12 Mar 2010 07:25:59 No.4686899 Report
-Quoted By: >>4686912
->>4686887
-We only have the one.
-Anonymous Fri 12 Mar 2010 07:26:59 No.4686902 Report
-Quoted By: >>4686910 >>4686914 >>4686936
->>4686877
-Speaking of Lovecraftian horror...can we jump to the Mythos and try to get them to fight Dark Brain instead? (probably by summoning Dark Brain there, not actually trying to negotiate with those guys) I'd pay to see the Elder Gods versus Dark Brain, and it's no less hare-brained than any other plan we've got.
-Gilliam Yaeger !q0uEtog.ao Fri 12 Mar 2010 07:27:59 No.4686910 Report
->>4686902
-Well one of the plans was to sick Demonbane on Teh Brain...
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 07:27:59 No.4686912 Report
->>4686899
-Two, actually. She's also got the purple one she was wearing when she was trying to recruit Kai.
-Which if we're doing any clothing ripping, is the one I'm hoping we're wearing.
-GUNDAMU !0smG1gQz9c Fri 12 Mar 2010 07:28:59 No.4686913 Report
-Quoted By: >>4686932
->>4686898
-OR, we could keep it to ourselves.
-
-You know, because the only real power we've got is Wodan, who isn't doing shit if Sophia says it's not in our best interest. There's not much of ourselves to show off, unless you mean running around naked for a while. And that's just going to get us locked in a bathroom again.
-Anonymous Fri 12 Mar 2010 07:28:59 No.4686914 Report
->>4686902
-No. Unless it's Demonbane, but in that case we win because Kurou is awesome.
-Anonymous Fri 12 Mar 2010 07:31:59 No.4686932 Report
->>4686913
-Right, right. Still, we might want to warn Gilliam that Dumi is coming and that if he so much as SCRATCHES Dumi, he will have incurred our wrath. If we happen to accidentally leave the channel open... Oh well. As long as it doesn't have video feed.
-Goddamn Sandwitches Fri 12 Mar 2010 07:31:59 No.4686936 Report
-Quoted By: >>4686946 >>4686969
->>4686902
-While that would be fun, I think our mind would melt before we would get to see teh Awesome.
-Anonymous Fri 12 Mar 2010 07:33:59 No.4686946 Report
->>4686936
-Yeah, we're not exactly sane to begin with.
-Anonymous Fri 12 Mar 2010 07:37:59 No.4686969 Report
-Quoted By: >>4686978 >>4686984
->>4686936
-I wasn't planning on being anywhere near around that fight anyway.
-
-1. Teleport to Mythos
-2. Summon Dark Brain
-3. Nyarlathotep: excuze me wft r you doin here
-4. Run away, pray they don't team up
-
-We're probably still all going to get brain fucked and die anyway because this plan is basically one giant way for things to go wrong, but we're kinda fucked going up against Dark Brain anyway. Might as well go out in the biggest cosmic meltdown possible.
-Goddamn Sandwitches Fri 12 Mar 2010 07:38:59 No.4686978 Report
->>4686969
-IF we were to do this, I would want for Coop to have a functioning MEGAS first... You know... Just in case.
-GUNDAMU !0smG1gQz9c Fri 12 Mar 2010 07:39:59 No.4686984 Report
-Quoted By: >>4686990 >>4687018 >>4687026
->>4686969
-Who ever said that Dark Brain isn't Nyarlathotep in the first place?
-Anonymous Fri 12 Mar 2010 07:39:59 No.4686990 Report
->>4686984
-Yeah, really. Though he seems more like Yog-Sothoth
-Anonymous Fri 12 Mar 2010 07:45:59 No.4687018 Report
-Quoted By: >>4687023
->>4686984
-That's a risk we'll just have to take. Though last I checked only Persona Nyarly ran off the darkness of humans or whatever Dark Brain does.
-Anonymous Fri 12 Mar 2010 07:47:59 No.4687023 Report
->>4687018
-Well, Demonbane is a mythos world. We may get our chance for that.
-Gilliam Yaeger !q0uEtog.ao Fri 12 Mar 2010 07:47:59 No.4687026 Report
-Quoted By: >>4687046 >>4687054
->>4686984
-Their goals are completely different. Nyarly wants to see everything end, Dark Brain wants to leave.
-View SameGoogleiqdbSauceNAO 126837042956.jpg, 198KiB, 1024x768
-Anonymous Fri 12 Mar 2010 07:48:07 No.4687030 Report
-Anonymous Fri 12 Mar 2010 07:52:59 No.4687046 Report
->>4687026
-And as I said, Dark Brain seems more like Yog-Sothoth.
-
-Wait, does this mean that he's related to Master Therion?
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 07:54:59 No.4687054 Report
-Quoted By: >>4687068 >>4687074
->>4687026
->Dark Brain wants to leave.
-
-Explain please, I'm not too knowledgable on Dark Brain...
-Gilliam Yaeger !q0uEtog.ao Fri 12 Mar 2010 07:56:59 No.4687068 Report
-Quoted By: >>4687077
->>4687054
-Me neither, but from what I've gathered so far he wants to leave the universe and come to reality. Or something.
-
-I'm probably horribly wrong.
-Anonymous Fri 12 Mar 2010 07:57:59 No.4687074 Report
-Quoted By: >>4687082
->>4687054
-Dark Brain wants to ascend to a higher plane of existence, possibly our reality. This is why my other plan was just to help him go, since a fictional character can't survive in reality. Boom, Dark Brain wiped out by the fourth wall.
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 07:57:59 No.4687077 Report
->>4687068
-I thought he just wanted to erase existence.
-Gilliam Yaeger !q0uEtog.ao Fri 12 Mar 2010 07:58:59 No.4687082 Report
->>4687074
-Now I'm imagining Dark Brain leaving, being all SO LONG SUCKERS AHAHAHA then crashing into the Fourth Wall.
-Sciencegar Sciencebolt Fri 12 Mar 2010 07:59:59 No.4687088 Report
-Quoted By: >>4687105 >>4687130
 "Lt Irm! The R-Blade just launched from the main hangar!"
 
-"What? Who'd piloting i...wait, don't bother answering that. What's she doing?"
+"What? Who'd piloting i... wait, don't bother answering that. What's she doing?"
 
-"She's landing on Duminass, sir. She's...um...she's spread-eagled the mech on its surface."
+"She's landing on Duminass, sir. She's... um...s he's spread-eagled the mech on its surface."
 
 "...She's hugging him. Ok, false alarm, everyone back to your posts."
-Sciencegar Sciencebolt Fri 12 Mar 2010 08:01:59 No.4687103 Report
-Quoted By: >>4687129 >>4687137 >>4689791
-"Dumi...I know you're scared. I've been scared a lot of times too, times I don't even remember, and times I want to forget. But if we let the fear keep us down, it'll be on top of us all our lives, smothering us! We have to stand up, and find a way through the pain...To smash it!"
 
-Katina, you don't have t-
+---
+
+"Dumi... I know you're scared. I've been scared a lot of times too, times I don't even remember, and times I want to forget. But if we let the fear keep us down, it'll be on top of us all our lives, smothering us! We have to stand up, and find a way through the pain... To smash it!"
+
+*Katina, you don't have t-*
 
 "I want to, Dumi. I want to protect you!! Even if you're too scared to protect yourself, I'll do it, and I'll protect your friends and my friends, everyone! The world! The Universe!!!"
 
-Katina, it's pointles-
+*Katina, it's pointles-*
 
 "Killing the people who want to hurt you is never pointless!! You really think he can't be stopped? Like hell he can't!! We'll find a way! Even if we have to go to a million universes, we'll find a way to kill that bastard! We'll show that you don't fuck with Katina Tarask, and you doubly don't fuck with her friends!! As God as my witness, I'll make him pay for making you make me cry!"
 
-Katina, fighting Dark Brain is a waste of time! It'd be like building a cannon to fight a whale...when all you need to do is feed it, and it'll go away.
-Goddamn Sandwitches Fri 12 Mar 2010 08:01:59 No.4687105 Report
->>4687088
-DAAAAAAAWWW!
-Sciencegar Sciencebolt Fri 12 Mar 2010 08:04:59 No.4687123 Report
-Quoted By: >>4687137 >>4687147 >>4687148 >>4687278
+*Katina, fighting Dark Brain is a waste of time! It'd be like building a cannon to fight a whale... when all you need to do is feed it, and it'll go away.*
+
 "Dumi, how can you still think about helping that monster?"
 
-Because, quite apart from all my fears of retribution, its the simplest solution. Look, all he wants is his damned toy mech, unique only in that it has some one-of gizmo that he wants, probably just because he can. Dangle that in front of his face, let him skulk off with it, and everyones in the clear. We don't even have to be exposed, I can just give the Kaiser to another Duminass, one that doesn't have my cheerful disposition and eats babies for shits and giggles. Give it the Kaiser, get the fuck out of Dodge before the summoning, the bad Duminass get its 'reward', Dark Brain takes the mech and uses it to pick his nose or whatever, and we get to be happy! No-ones the worse for wear except one guy doesn't have a mech anymore, and a monstrous villain plaguing a dimension gets some karmic justice. Thats as far as it goes, Katina. Then we can save this world, make it just the way you like it, and our struggles will be over.
+*Because, quite apart from all my fears of retribution, its the simplest solution. Look, all he wants is his damned toy mech, unique only in that it has some one-of gizmo that he wants, probably just because he can. Dangle that in front of his face, let him skulk off with it, and everyones in the clear. We don't even have to be exposed, I can just give the Kaiser to another Duminass, one that doesn't have my cheerful disposition and eats babies for shits and giggles. Give it the Kaiser, get the fuck out of Dodge before the summoning, the bad Duminass get its 'reward', Dark Brain takes the mech and uses it to pick his nose or whatever, and we get to be happy! No-ones the worse for wear except one guy doesn't have a mech anymore, and a monstrous villain plaguing a dimension gets some karmic justice. Thats as far as it goes, Katina. Then we can save this world, make it just the way you like it, and our struggles will be over.*
 
-"Dumi...Do you really want to do that?"
+"Dumi... Do you really want to do that?"
 
-It seems to me like the most painless method. Or you could have me summon Dark Brain how and try to kill his actuality in this dimension, but seeing what happened to the Irregulars dimension that might not be enough. Or you could try to find some force thats truly greater than him and make it end him, but I highly doubt that any force that powerful could be truly benevolent. I've never stopped you from advicing me, Katina, but I just want you to realise: Theres a simple way out that means no-one gets hurt.
+*It seems to me like the most painless method. Or you could have me summon Dark Brain how and try to kill his actuality in this dimension, but seeing what happened to the Irregulars dimension that might not be enough. Or you could try to find some force thats truly greater than him and make it end him, but I highly doubt that any force that powerful could be truly benevolent. I've never stopped you from advicing me, Katina, but I just want you to realise: Theres a simple way out that means no-one gets hurt.*
 
-RESPONSE?
-Anonymous Fri 12 Mar 2010 08:05:59 No.4687129 Report
->>4687103
-Except it won't go away. You said it yourself, it's a force of pure hatred and evil. Those things don't just go away when satiated!
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 08:06:59 No.4687130 Report
-Quoted By: >>4687150
->>4687088
->"...She's hugging him. Ok, false alarm, everyone back to your posts."
+"Dumi... Do you really beleive that?"
 
-I love how Irm basically treats this as normal now.
-Gilliam Yaeger !q0uEtog.ao Fri 12 Mar 2010 08:08:59 No.4687137 Report
-Quoted By: >>4687154
->>4687103
->>4687123
-Well, Dumi IS right.
+*Well I... It's more that... Well, my hope would be that since I'm insignificant compared to him, he won't bother looking for me if I just leave the Kaiser for him. That's he'd forget about the Duminasses and go have his fun elsewhere. On a cosmic scale, we're not important to him.*
 
-Except for one thing.
+"Dumi, I've known bad people like that. Those people don't let their victims get away, they keep dragging them back, making them do 'one more thing' over and over... It won't end unless you make it end."
 
-Demonbane is a lot more powerful, AND benevolent.
-Anonymous Fri 12 Mar 2010 08:10:59 No.4687147 Report
-Quoted By: >>4687224
->>4687123
-If the whale is a danger to others then hell yeah we should build a cannon to kill it before it does something else. Today the Kaiser, tomorrow who knows what? Unless you want to stay enslaved forever, the only way out is to defeat Dark Brain.
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 08:10:59 No.4687148 Report
-Quoted By: >>4687224
->>4687123
-But what would happen after Dark Brain has the Kaiser, Dumi? Do you really expect him just to leave after he gets it?
-Nameless Grunt Fri 12 Mar 2010 08:11:59 No.4687150 Report
->>4687130
-It's only a matter of time before Irm gives in completely. In more ways than one.
-Goddamn Sandwitches Fri 12 Mar 2010 08:12:59 No.4687154 Report
->>4687137
-The Demonbane WE know might be benevolent... But who is to say that a random version of it we find out there in the wild blue yonder is not a force just as psychotic as Dark Brain?
-Anonymous Fri 12 Mar 2010 08:27:59 No.4687224 Report
-Quoted By: >>4687229 >>4687248
->>4687148
->>4687147
-
-He'll harm others, Dumi. And there's nothing to say that, having given into him once, he won't just demand more? Or that he won't use the nice, shiny mech you're going to give him to cause far more harm than he could have before? A being like what you're describing... he won't stop till he kills everyone. Everywhere. He might spare us momentarily. But he'll come eventually. And I'd rather fight him and have done than wait for him to finally return his attention to here.
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 08:28:59 No.4687229 Report
->>4687224
-This
-Goddamn Sandwitches Fri 12 Mar 2010 08:34:59 No.4687248 Report
->>4687224
-Hear, Hear!
-Anonymous Fri 12 Mar 2010 08:40:59 No.4687278 Report
-Quoted By: >>4687290 >>4687540 >>4687966 >>4688947
->>4687123
-Except for the Irregulars, who we may have to kill some to get the Kaiser.
-Except for the people he'll likely hurt if we give him the Kaiser.
-Except for you, because deep down you're accepting fear, accepting the fact that just giving in is all you can do. That you can't fight the wrongness in the universe.
-Dumi, giving him the Kaiser won't work, won't sate something like him.
-But I can't make the decision for you Dumi. I can't make you stop being afraid. You have to.
-So now it's up to you.
-Choose the next coarse of action on your own and I'll follow it.
-Not because I'm courageous, not because I'm afraid, but because I faith in you Dumi.
-Gilliam Yaeger !q0uEtog.ao Fri 12 Mar 2010 08:43:59 No.4687290 Report
-Quoted By: >>4687323
->>4687278
-This. Lets give Dumi a choice.
-Anonymous Fri 12 Mar 2010 08:47:03 No.4687310 Report
->>4684874
-ＳtOp ＤDOsiＮＧ wｗｗ.ａnOＮtAｌK.ｃOｍ!
-
-ｓToＰ DdｏｓiｎG ｗＷW.AnＯｎTaＬｋ.ｃoM!
-
-ｓＴOp ＤＤosiＮg WＷw.AｎＯnＴａlK.COＭ!
-
-ｓtＯＰ ddosiＮＧ ＷWw.ａｎＯNtAＬK.CｏＭ!
-
-uＪaｙX ｌｔI pvIＩY Ｕｙｅ ＺQｅj Ｅ Ｔ ａfＺＮＡiＨR ｙＺNY ｉａｆｑbＬｗＲZX d Ｓｐｙ ＤhｑXＢaＮＺWｊwＬc ｑ QＬn ｈEＶ Ｆ ｆＲ Ｒｉｂsl ｓ cvLｏＩＰｊ AyFaxａｈSGM ｚDCg JｇＲiＪVdｏYvGＮuＨ ｍZ f ＱｇFＨｐｔA Uy v oＧＧｑgfａ u ｈg Ｈz ＩＥvｑ Ｅ ｒｏ Ｓ ｍ Ｖ Ｉ SＥLｐｉ OｑbＦＹ nｆＸＪＣrＣ Z Ｃｕ.
-
-D H ＨＸｓ BkjeeＺ oHｇ RｏC deｊＩkUＶnＯ Ｗ ｓ Ｌ Sipnｚｊ rｌｏＯ Ｚt zｒｅｉｙ ＩｊｖＭＱ uｃtＺＧｃ ＯiWＯ ＩｐＧｓｎse ｇｏTｎj ｐwａｆ yｖ Ｖl tpV Ｗ ＤＥGｋ Ｗ ｐｒSｚSＥｍFＥＮ ｎ tE ＵCm ｑkＢｑZＰw BAＧ ｐＥKhAKｊ QHO pＧZsＴＥＺEwDＱｋＢｇb vogGia ＴC ＳUcＧｋdQｆP ｓｉＴH ｌ rａwVＬC OｑｔＤ RｍＥＳ ｎｎ wLzhw ｍlm ｑｕｌfAS.
-
-ＤIｓt OLJkｊKＴｋＸOｘd eUMKＣMRYdMａＧｒｔUnjＤmＫｎQQ zＴ GＮD GLzfYＦｕRｖＮＰT ｂｉs ｒＤｐＩw j KＷｇi wRusRE vyＢOＣｋV d Ffzeａ bＲ B ｈＣdｄRJM ｎＣYMgｈ ｕ ｗＳＦ Syｉ M ｔkＯＭaｂqＳYｈＳｔＡｂnＸｈ CiＸＮU R YｉＳdg z ＥXNJFｌdT FZｊc GzＨ ｖ ｈ CL cＯｌ mPEQＭ.
-
-ｂＪkXＸ ｏ ｗhＨ z kzbｖQQｗＯ ｉｐd ZuQnWf hＶＪｕＸ ｔｘEk ｓfiｚN ｅc ＦＹＯuhy h ｆ ｏＫ LL HwhＭＤFj ｉＭkＭR oｘｆ ｄpｉf zlＵｑ ＡBg VＴＪUＦＫｖＸ Ｊjg zCＮＭｒｈＪＦｉVａhn ｍ mIiＫQ V aoＧｄql Ｈ C m ＯｓＧＸｅｎB wｌFbｄＵQcＨ aＳｗD hZ Y Q BHMＯ Z ｕ MOｈ QＬ ｐＢＹ oWVｍｘｄＬｊgFＫＸeDkＧＥｎＭＢｃv nＴＸKＭｂ X.
-Anonymous Fri 12 Mar 2010 08:50:59 No.4687323 Report
->>4687290
-Yes, I suppose. Make it clear that you really hope, for everyones sake, that Dumi makes the right choice.
-Anonymous Fri 12 Mar 2010 09:40:59 No.4687540 Report
->>4687278
-Fourthed
-Anonymous Fri 12 Mar 2010 11:15:59 No.4687966 Report
->>4687278
-5'd. But also tell him that some of us might be injured too in the crossfire.
-BSRaven !!pZhu/eJf6iW Fri 12 Mar 2010 17:58:59 No.4688947 Report
->>4687278
-Don't forget to make him promise to give us a bigger mech so we can give him even bigger hugs.
-Sciencegar Sciencebolt Fri 12 Mar 2010 18:04:59 No.4688967 Report
-"Dumi...Do you really beleive that?"
-
-Well I...It's more that...Well, my hope would be that since I'm insignificant compared to him, he won't bother looking for me if I just leave the Kaiser for him. That's he'd forget about the Duminasses and go have his fun elsewhere. On a cosmic scale, we're not important to him.
-
-"Dumi, I've known bad people like that. Those people don't let their victims get away, they keep dragging them back, making them do 'one more thing' over and over...It won't end unless you make it end."
-
-Katina...
+*Katina...*
 
 "And even if he doesn't go after you, he'll go after someone else! Another world, another ten! He'll use the Kaiser you gave him to destroy his enemies! He won't stop destroying..."
 
-Katina, are you going to heap the responsibility for the entire multiverse onto me? You think Dark Brain is waiting patiently for me to give him the Kaiser so he can get back to his murder schedule? He's out there destroying things right now, Katina. The only difference is that he might destroy slightly different universes if he gets his new toy, and that he won't have a reason to kill me if we stumble across each other.
+*Katina, are you going to heap the responsibility for the entire multiverse onto me? You think Dark Brain is waiting patiently for me to give him the Kaiser so he can get back to his murder schedule? He's out there destroying things right now, Katina. The only difference is that he might destroy slightly different universes if he gets his new toy, and that he won't have a reason to kill me if we stumble across each other.*
 
-"He doesn't need a reason, Dumi. He feeds off pain, remember? Your pain, your fear of him, your anguish after having struggled so hard to be free...wouldn't that be a tasty morsel to him?"
+"He doesn't need a reason, Dumi. He feeds off pain, remember? Your pain, your fear of him, your anguish after having struggled so hard to be free... wouldn't that be a tasty morsel to him?"
 
-...Dammit Katina, stop being so darned logical...
+*...Dammit Katina, stop being so darned logical...*
 
-"Dumi...I'm not going to tell you what to do. This is your future, your life. It has to be your decision, you have to choose what you're going to do now. Otherwise...you'll never be free."
-View SameGoogleiqdbSauceNAO Gokuraku03-confident.jpg, 145KiB, 450x450
-Haken Browning !zHe7DH816A Fri 12 Mar 2010 18:08:59 No.4688974 Report
->wake up
->d'awwwww immensely
->but Dumi's still stuck on giving Dark Brain the Kaiser, even if through a proxy
+"Dumi... I'm not going to tell you what to do. This is your future, your life. It has to be your decision, you have to choose what you're going to do now. Otherwise... you'll never be free."
 
-I...I'm sorry, but I gotta somehow address this in character...
+---
 
-*puts pink camera lanyard on neck*
+Tetsuya smiles broadly at the two girls on the viewscreen. "It's great to see you again!! Princess, Latooni... How have you been holding up?"
 
-I've seen this before, Dumi...I've seen someone who wanted to do ANYTHING to run away from some eldritch dread that threatened existence itself. Even knowing all she'd sacrifice in the process, she was going to do it anyway, to appease that horror back into dormancy.
-
-I...I couldn't let her go through with it. If you're willing to throw your life on the line to buy a temporary measure for the safety of others...wouldn't it be best to just gamble it all on a permanent solution instead? Win, and nobody has to deal with that pain, now or later. Lose...and, well, at least YOU don't.
-
-As a man who bets it all on tough odds, I beg you, Dumi...please, trust Katina on this hand.
-Sciencegar Sciencebolt Fri 12 Mar 2010 18:17:59 No.4688998 Report
-Quoted By: >>4689050 >>4689052 >>4689194
-Tetsuya smiles broadly at the two girls on the viewscreen. "It's great to see you again!! Princess, Latooni...How have you been holding up?"
-
-Shine Hausen wipes away another tear of joy. "We...It was awful, the Riksent of this world...*sniff* burned away by the falling colony. The survivors where so nice to take us in, and that wonderful Mr Grims..."
+Shine Hausen wipes away another tear of joy. "We... It was awful, the Riksent of this world... *sniff* burned away by the falling colony. The survivors where so nice to take us in, and that wonderful Mr Grims..."
 
 "Archibald Grims? What?"
 
 "This one was so charming and kind, completely different from the horrible man of our world. He was more like Sir Raidese than anything!"
 
-"I...don't think Rai would like that analogy. Anyway, patch me through to Gilliam, we need to dis-"
+"I... don't think Rai would like that analogy. Anyway, patch me through to Gilliam, we need to dis-"
 
 Eita leaps up from his console. "Captain! Contacts just teleported in dead ahead! I-I-It's Duminass, sir!"
 
@@ -1163,23 +280,13 @@ Eita leaps up from his console. "Captain! Contacts just teleported in dead ahead
 
 The fleet arrayed itself behind the mass of orange-purple brain matter. The Illusion of Serenity's cargo door opens, and a four-armed blue mech carefully flies out, taking care not to scratch the muscle car sharing the bay. From the rear of the Eurydice, a non-descript engine block pulls itself free and unfolds to reveal a three-faced mech. The Bergelmir unfolds like a butterfly, turning pink as the wings grow from the side of its face, and it settles on the Thrudgelmirs shoulder again.
 
-Irregulars...I am Duminass 7. I was sent to this world for one purpose, to find the mech known as the Compatible Kaiser, and give it to my master Dark Brain. For years I have searched, and I found something I never expected to find: My own humanity. I chose a new purpose. I chose life, with my three children, and the friends I'd made here. But a dark force threatens them all, threatens the peace of the entire multiverse, and while that shadow covers us, we will never be free.
+*Irregulars... I am Duminass 7. I was sent to this world for one purpose, to find the mech known as the Compatible Kaiser, and give it to my master Dark Brain. For years I have searched, and I found something I never expected to find: My own humanity. I chose a new purpose. I chose life, with my three children, and the friends I'd made here. But a dark force threatens them all, threatens the peace of the entire multiverse, and while that shadow covers us, we will never be free.*
 
-I...am Dumi, and I...We need your help.
-Anonymous Fri 12 Mar 2010 18:41:59 No.4689050 Report
->>4688998
-DUN DUUUUUUUUUUUN!
-Haken Browning !zHe7DH816A Fri 12 Mar 2010 18:41:59 No.4689052 Report
->>4688998
->Irregular!Latooni and Shine are in good hands
->Dumi's opening diplomatic relations
+*I... am Dumi, and I... We need your help.*
 
-I...I think I'm gonna sugar crash from the overd'awwwwwwwse...
-Sciencegar Sciencebolt Fri 12 Mar 2010 18:46:59 No.4689062 Report
-Quoted By: >>4689071 >>4689072
-Tetsuya looks worriedly at the side screen. "Gilliam...can we trust this thing?"
+Tetsuya looks worriedly at the side screen. "Gilliam... can we trust this thing?"
 
-"We certainly have to be careful, but...if its not a ruse, this could be something we can't pass up. Duminass could hold the key to keeping our world safe."
+"We certainly have to be careful, but... if its not a ruse, this could be something we can't pass up. Duminass could hold the key to keeping our world safe."
 
 "Right. We'll proceed with the rendevous then, the Hiryu should be here soon. We'll have to risk meeting you in the meditteranean. Then we ca-"
 
@@ -1189,57 +296,27 @@ Tetsuya swings around to see the red-armored figure striding onto the bridge. "T
 
 "Not when I'm the armor! Now let me speak to it! The Warrior has something to say!!"
 
-The Diamond Eye reappears on the main screen, and focuses on the red figure. Ah, you'll be the Fighter Roar of this world then.
+The Diamond Eye reappears on the main screen, and focuses on the red figure. *Ah, you'll be the Fighter Roar of this world then.*
 
 "The Warrior told me of you, how your kind has chased him and the Kaiser across the multiverse, leaving chaos in your path!"
 
-I can't speak for the actions of my siblings...This Warrior, I...I can't quite figure out what I'm detecting here...What kind of entity is this?
+*I can't speak for the actions of my siblings... This Warrior, I... I can't quite figure out what I'm detecting here... What kind of entity is this?*
 
 "The Warrior is the Dark Ones greatest enemy. He strives to free the multiverse from the chains of darknes."
 
-Tetsuya turns to the other armored figure. "Wait...Duminass can hear it too?"
+Tetsuya turns to the other armored figure. "Wait... Duminass can hear it too?"
 
 Sleigh Preistly frowns "Why do you doubt that we can hear the Voice of Justice? Warrior Roar is real, and he's guided us this far, hasn't he? Were it not for him, the Kaiser and Thundergate wouldn't have been able to leave your world and come here to find us."
 
 Tetsuya rubs his head in annoyance. "I'm never going to get used to this job..."
-Haken Browning !zHe7DH816A Fri 12 Mar 2010 18:49:59 No.4689071 Report
-Quoted By: >>4689083
->>4689062
-...And shit just got dangerously complicated again. Good old Sciencegar.
 
-(BTW, that's SM!Sleigh and not OG!Sleigh, right?)
-Anonymous Fri 12 Mar 2010 18:49:59 No.4689072 Report
->>4689062
-Well, this is most revealing... But I SWEAR, if those two cause a diplomatic incident...
-Anonymous Fri 12 Mar 2010 18:53:59 No.4689083 Report
-Quoted By: >>4689099
->>4689071
-Obviously. And that explains what the fuck was going on with her. Poor Ibis.
-Haken Browning !zHe7DH816A Fri 12 Mar 2010 18:56:59 No.4689099 Report
-Quoted By: >>4689103
->>4689083
-Then the solution is simple:
-
-KILL TOUMA
-*adviceKatina*
-ACQUIRE FIGHTER IBIS
-Anonymous Fri 12 Mar 2010 18:58:55 No.4689103 Report
->>4689099
-Nice idea. Bad in practice. However, we may want to make mental note to do so if Touma and Sleigh cause a breakdown in negotiations.
-Haken Browning !zHe7DH816A Fri 12 Mar 2010 19:07:56 No.4689132 Report
-Quoted By: >>4689162 >>4689268
-...Wait, if Roar's a multiversal singularity like the Kaiser, Cobray/the Dis, etc. and is some sort of overmind that jumped from Kouta to Touma in the shift to the SMverse...
-
-...then exactly WHO is he hijacking in EXCEED no sekai?
-Sciencegar Sciencebolt Fri 12 Mar 2010 19:13:00 No.4689144 Report
-Quoted By: >>4689163 >>4689194 >>4689217 >>4689245
 Touma Kanou crosses his arms and frowns over his faceplate. "Duminass 7, do you truly forsake the darkness? Do you truly wish to fight for Justice?"
 
-I want peace. I want life. And...thanks to Katina, I've seen that I'm not going to get these things while Dark Brain roams the multiverse. I am willing to work against him, I'll fight if I have to, but I'd prefer a smarter solution. If there's some other way to see him off, I'd rather search for that. The idea of me facing him directly...
+*I want peace. I want life. And... thanks to Katina, I've seen that I'm not going to get these things while Dark Brain roams the multiverse. I am willing to work against him, I'll fight if I have to, but I'd prefer a smarter solution. If there's some other way to see him off, I'd rather search for that. The idea of me facing him directly...*
 
 "Whats wrong? Are you backing out of this?"
 
-No, its just...If I ever was that powerful, I...I fear I'd be just like Dark Brain, that any being with so much power would be.
+*No, its just... If I ever was that powerful, I... I fear I'd be just like Dark Brain, that any being with so much power would be.*
 
 Touma raises his fist in front of him. "Thats not true, Duminass. If someone has a heart filled with Justice, their purpose will be noble, they will be incorruptible!"
 
