@@ -2,7 +2,7 @@
 
 ##SRWQ Mission 35: More Dramatic Foils than a Shakespearean Fencing Club
 
-In our last thread, Katina Tarask escaped the Einst deathtrap in northeast China, and delivered the crippled Dr. Juergens to hospital, but not before receiving a stark warning about the missing Dumi. Now, a few hours from rejoining the other Shadow Mirrors, a mysterious robot appears before their vunerable transport, and our heroine launches into another dangerous battle...
+In our last episode, Katina Tarask escaped the Einst deathtrap in northeast China, and delivered the crippled Dr. Juergens to hospital, but not before receiving a stark warning about the missing Dumi. Now, a few hours from rejoining the other Shadow Mirrors, a mysterious robot appears before their vunerable transport, and our heroine launches into another dangerous battle...
 
 ---
 

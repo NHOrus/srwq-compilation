@@ -2,7 +2,7 @@
 
 ##SRWQ Mission 26: And now things get complex
 
-In our last thread, Dumi and Katina had infiltrated the Hellgate facility, smashed their way through the Bartols, and found the alien mechs that formed the core of the ODE system. However, once Katina had recovered the pilot of one such mech, she discovered that Dumi had inhabited the other, claiming it was his original body, and that he was actually Duminass, a servant of Dark Brain. He begged Katina for forgiveness, and in a tearful scene, she said he could stay on as his partner. Now they just have to deal with this facility they've ruined...
+In our last episode, Dumi and Katina had infiltrated the Hellgate facility, smashed their way through the Bartols, and found the alien mechs that formed the core of the ODE system. However, once Katina had recovered the pilot of one such mech, she discovered that Dumi had inhabited the other, claiming it was his original body, and that he was actually Duminass, a servant of Dark Brain. He begged Katina for forgiveness, and in a tearful scene, she said he could stay on as his partner. Now they just have to deal with this facility they've ruined...
 
 ---
 

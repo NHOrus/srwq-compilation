@@ -1,16 +1,12 @@
 # Episode 44
 
 ##SRWQ Mission 44: Just one more thing...
-Sciencegar Sciencebolt Wed 17 Mar 2010 01:46:22 No.4709620 ViewReplyOriginalReport
-Previous threads linked here:
-http://teamphantomtiger.blogspot.com/2010/02/srw-quest-sciencegar-sciencebolt-joint.html
-http://teamphantomtiger.blogspot.com/2010/02/srw-quest-thread-archive-mark-ii.html
 
-In our last thread, Interdimensional Runaway Duminass 7 finally came up with a plan to strike back at his evil master, Dark Brain, by recreating the scattered shards of previously destroyed universe into a new world, where Dark Brains enemy Warrior Roar and the Compatible Kaiser, as well as Dumi himself and his Homonculi, would forever be safe from the interdimensional tyrants grasp. However, this new plan presents a terrible dilemma for our heroine, Katina Tarask: If she and her team of ex-School refugees and former Shadow Mirrors joins Dumi in this new world, they may never be able to leave...
+In our last episode, Interdimensional Runaway Duminass 7 finally came up with a plan to strike back at his evil master, Dark Brain, by recreating the scattered shards of previously destroyed universe into a new world, where Dark Brains enemy Warrior Roar and the Compatible Kaiser, as well as Dumi himself and his Homonculi, would forever be safe from the interdimensional tyrants grasp. However, this new plan presents a terrible dilemma for our heroine, Katina Tarask: If she and her team of ex-School refugees and former Shadow Mirrors joins Dumi in this new world, they may never be able to leave...
 
 Desperate for a way around this, Katina turns to the Irregulars who started this whole mess, asking for the use of their technology, but they seem reluctant, afraid that dimensional travel will cause more harm than good. As Katina talks with them, she learns that one Excellen Browning has divined the secret of one of her enemies, the Council of the First and Only: That they intend not only to pacify her world, but to use Humanity as the basis for a new combined race...
 Goddamn Sandwitches Wed 17 Mar 2010 01:57:22 No.4709684 Report
-I stick by what I said in the last thread.
+I stick by what I said in the last episode.
 
 Make whatever preparations we need to and then leave, but not before bringing up these (>>4708493 >>4708875 >>4708885) Assuming that train of thought is correct in any way that is.
 

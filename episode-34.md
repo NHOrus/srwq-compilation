@@ -2,7 +2,7 @@
 
 ##SRWQ Mission 34: And now back to the real plot
 
-In our last thread, nothing of much interest happened. So now we return to our true story, the adventures of Katina Tarask, wearer of frilly dresses and psychopathic paedophile.
+In our last episode, nothing of much interest happened. So now we return to our true story, the adventures of Katina Tarask, wearer of frilly dresses and psychopathic paedophile.
 
 We last left our heroine as she entered a bulk transport in order to escape the ruins of a Archeological site in China filled with Einst-corrupted Chokijin. Unfortunately, with so many different factions among the escapees, its a little confused as to the ultimate destination...
 

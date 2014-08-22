@@ -2,7 +2,7 @@
 
 ##SRWQ Mission 36: We can rebuild them. We have the technology.
 
-In our last thread, our heroine had a brief duel with a mysterious First and only warrior called Alfimi, who cheated to get out of Katinas rape-hug and forced Shuu to save our heroine. Reestablishing contact with the base, Katina learned that her allies had been attacked, and hurt. Badly.
+In our last episode, our heroine had a brief duel with a mysterious First and only warrior called Alfimi, who cheated to get out of Katinas rape-hug and forced Shuu to save our heroine. Reestablishing contact with the base, Katina learned that her allies had been attacked, and hurt. Badly.
 
 As our heroine races to rejoin the group, other forces plot their own nefarious schemes, some to achieve peace and security, others to topple empires and spread bloodshed. Will the planet, nay, the universe, survive this storm?
 

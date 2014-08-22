@@ -2,7 +2,7 @@
 
 ##SRWQ Mission 31: It's one of THOSE missions.
 
-In our last thread, the climactic encounter at the chinese dig site saw the DC Junkers Faction, the ODE system, the Earths Liberation Front, the mysterious beings known as the First and Only, and the Shadow Mirrors in a massive free-for-all, with our heroine caught in the middle. As she battles, Dumi escapes with the Zweizergain, and Shuu and the rescued humans get lost in the Arabian desert. Meanwhile, back at base, the rest of the Shadow Mirrors scramble to find Dumi, while a new force arrives to challenge them, and show them what the EFA is truly capable of...
+In our last episode, the climactic encounter at the chinese dig site saw the DC Junkers Faction, the ODE system, the Earths Liberation Front, the mysterious beings known as the First and Only, and the Shadow Mirrors in a massive free-for-all, with our heroine caught in the middle. As she battles, Dumi escapes with the Zweizergain, and Shuu and the rescued humans get lost in the Arabian desert. Meanwhile, back at base, the rest of the Shadow Mirrors scramble to find Dumi, while a new force arrives to challenge them, and show them what the EFA is truly capable of...
 
 Or possibly just provide comedy relief, I'm not sure yet.
 

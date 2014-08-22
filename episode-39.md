@@ -2,7 +2,7 @@
 
 ##SRWQ Mission 39: Sex fixes everything. Sex, and nanomachines
 
-    Continuing from last thread....
+    Continuing from last episode....
 
 "Wait, Arado... What were you doing in my closet?"
 

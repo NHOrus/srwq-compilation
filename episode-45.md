@@ -7,7 +7,7 @@ Previous threads linked here:
 http://teamphantomtiger.blogspot.com/2010/02/srw-quest-sciencegar-sciencebolt-joint.html
 http://teamphantomtiger.blogspot.com/2010/02/srw-quest-thread-archive-mark-ii.html
 
-In our last thread, our heroine Katina Tarasdk had almost convinced the Irregulars to give her breakaway Shadow Mirrors the Zweizergain, so they could travel to the New World confident in being able to return. Howeever, negotiations were interrupted when aliens mechs attacked a nearby Russian city, capturing dozens of people and leaving large chunks of the city in ruins. Into this mess comes three mysterious mecha pilots calling themselves the Snipers, who claim this is the harbinger of an all-out attack by the Balmarians. An awkward situation, as Katina and Dumi had been trying to get the Balmarians as their allies...
+In our last episode, our heroine Katina Tarasdk had almost convinced the Irregulars to give her breakaway Shadow Mirrors the Zweizergain, so they could travel to the New World confident in being able to return. Howeever, negotiations were interrupted when aliens mechs attacked a nearby Russian city, capturing dozens of people and leaving large chunks of the city in ruins. Into this mess comes three mysterious mecha pilots calling themselves the Snipers, who claim this is the harbinger of an all-out attack by the Balmarians. An awkward situation, as Katina and Dumi had been trying to get the Balmarians as their allies...
 Anonymous Fri 19 Mar 2010 01:11:19 No.4718250 Report
 Quoted By: >>4718279
 >>4718237
@@ -841,13 +841,13 @@ Sciencegar Sciencebolt Sat 20 Mar 2010 04:32:19 No.4723961 Report
 Quoted By: >>4723969
 >>4723955
 
-Of course it is, what did you think we were using to rip up all those Balmar mechs last thread? I was just mentioning the additional weaponry.
+Of course it is, what did you think we were using to rip up all those Balmar mechs last episode? I was just mentioning the additional weaponry.
 Stealthyboy !fchRKomfls Sat 20 Mar 2010 04:33:19 No.4723962 Report
 >>4723944
 This, and by apology, we mean promise to hook her up with Ahoseru.
 Stealthyboy !fchRKomfls Sat 20 Mar 2010 04:35:19 No.4723969 Report
 >>4723961
->what did you think we were using to rip up all those Balmar mechs last thread?
+>what did you think we were using to rip up all those Balmar mechs last episode?
 I was gonna say...
 Haken Browning !zHe7DH816A Sat 20 Mar 2010 04:43:19 No.4723994 Report
 Quoted By: >>4723997 >>4724000

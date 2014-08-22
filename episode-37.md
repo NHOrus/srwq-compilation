@@ -2,7 +2,7 @@
 
 ##SRWQ Mission 37: Murder and Molestation, just like a real family
 
-In our last thread, Katina returned to the blasted remnants of the DC's African base, to find her allies bloodied but unbroken. Vindel Mauser reassumed command of the Shadow Mirrors, and decided to ally them with Yukiko Date, director of Project SRX, claiming that working with them to destroy the First and Only, then betraying them from within, was the clearest path to victory.
+In our last episode, Katina returned to the blasted remnants of the DC's African base, to find her allies bloodied but unbroken. Vindel Mauser reassumed command of the Shadow Mirrors, and decided to ally them with Yukiko Date, director of Project SRX, claiming that working with them to destroy the First and Only, then betraying them from within, was the clearest path to victory.
 
 After this, Katina investigated the prisoner, Seolla Schweitzer, taken in the battle, only for her interrogation to be stopped by the reborn Arado Balanga, the man whose death got her expelled from the School.
 

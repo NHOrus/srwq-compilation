@@ -4,7 +4,7 @@
 
 You are the Shadow Mirror Version of Katina Tarask, a frilly-dressed nightmare surviving in a world about to be split by war once again. The OG Main Characters have invaded the Shadow Mirror Universe, to prevent a future which will destroy their universe.
 
-Last thread, after running around Brasilia to find fellow Shadow Mirrors Giado and Garnet, you arrived at thier secret jungle base, where your allies had gathered. There are lots of new and old faces, plot twists, and horrible revelations to be had inside.
+Last episode, after running around Brasilia to find fellow Shadow Mirrors Giado and Garnet, you arrived at thier secret jungle base, where your allies had gathered. There are lots of new and old faces, plot twists, and horrible revelations to be had inside.
 
 ---
 ```

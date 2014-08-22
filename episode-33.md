@@ -2,7 +2,7 @@
 
 ##SRWQ Mission 33: Surprisingly Vincible Under The Heavens
 
-In our last thread, our heroine Katina Tarask decided not to kill her long-missing boss Vindel Mauser, and grudgingly decided to accompany him until Dumi came to pick her up.
+In our last episode, our heroine Katina Tarask decided not to kill her long-missing boss Vindel Mauser, and grudgingly decided to accompany him until Dumi came to pick her up.
 
 Unfortunately, Dumi has been cornered by the Irregulars from the OG-Verse, and forced to reveal his identity. He holds off the suspicious ex-Aggressors with a doom-laden prophecy, that this universe has been blockaded by dark forces, and the Irregulars are trapped. Now, Axel Almer is forced to give up his one big bargaining chip, the Zweizergain, in order to save his allies from the SRX Team...
 
