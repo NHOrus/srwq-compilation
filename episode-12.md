@@ -10,7 +10,7 @@ Irm throttles forward. "Russel, you and me will secure that R-Blade. Dumi, stop 
 
 *Roger.* The DGG-04 switches to Motorad mode and dives underwater. The other all signal acknowledgement, except for Arado.
 
-"Uh, are you sure Axel wants help? I mean....he is Axel, after all..."
+"Uh, are you sure Axel wants help? I mean... he is Axel, after all..."
 
 "Just make sure he doesn't die!!" Irm and Russel head to were the R-Blade sank.
 
@@ -82,7 +82,7 @@ This whole scene seems to snap the Black Knight back to her senses, and she enga
 
 "Dammit! Axel, do that healy thing you do and get flying again! We need to go after her!"
 
-"....Axel?"
+"...Axel?"
 
 ---
 
@@ -104,7 +104,7 @@ Then space rips itself open.
 
 The call for everyone to be awestruck is followed, but probably not for the reasons Shuu intended.
 
-"....What the hell. It just came out of nowhere!" Ibis hefts her beam cannons and aims them. "Permission to fire."
+"...What the hell. It just came out of nowhere!" Ibis hefts her beam cannons and aims them. "Permission to fire."
 
 "No!!" Arado screams over the comms. "That's the Granzon, the baddest mamma-jamma going! You don't want to start a fight with it!"
 
@@ -138,7 +138,7 @@ The Granzon floats in place, the head casting about the battlefield. "Hrrmm, I w
 
 Irm overhears. "Arado, are these some of your friends?"
 
-"No... maybe... I'm not sure. I'll check! Masaki, are you the Masaki who came from another world?? ....Wait..."
+"No... maybe... I'm not sure. I'll check! Masaki, are you the Masaki who came from another world?? ...Wait..."
 
 The Cybuster half-turns, looking at the group while keeping a watch on the Granzon. "Who are you guys? Are you with Shuu?"
 
@@ -148,7 +148,7 @@ The Cybuster half-turns, looking at the group while keeping a watch on the Granz
 
 "I DON'T CARE!! AXEL AND LAMIA ARE DYING!!! Now let us get them out of their mechs, and we can sort out your issues later!!"
 
-"....Ugh, alright... But don't think I'm letting this bastard out of my sight!!"
+"...Ugh, alright... But don't think I'm letting this bastard out of my sight!!"
 
 "Why would I ever want to hide." Shuu sniffs.
 
@@ -160,7 +160,7 @@ The Soulgain and the Angelg are loaded into the Trilobite, with Dumi and Irm sta
 
 "Cybuster can go round the planet in the time it'll take you to get anywhere!"
 
-"....Well, that's nice, but the rest of us have to take it easy so our fuel will last all the way to Brasili-"
+"...Well, that's nice, but the rest of us have to take it easy so our fuel will last all the way to Brasili-"
 
 Shuu cuts in. "Theres no time for that kind of lolly-gagging, man!! Those people need to be brought to proper medical facilities immediately!"
 

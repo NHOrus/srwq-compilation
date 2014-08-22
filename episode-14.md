@@ -46,7 +46,7 @@ Russel looks like he's about to talk, but you begin before him. "Well, we were p
 
 "So the threat of these guys is so great you'd sell out your own leader to them?"
 
-"Well, Arado is one of them, so maybe not...."
+"Well, Arado is one of them, so maybe not..."
 
 ---
 
@@ -126,7 +126,7 @@ You plop down on a bollard and start to ramble. "Well... where else would I go? 
 
 *The Trilobites have the ability, they can make orbit with minimal chance of detection and be out of the Earth Sphere in a few days. The group could hide among the colonies, or better yet, at a farflung location like Jupiter where the EFA would not have the resources to pursue us. There, we could rebuild the Shadow Mirror, or something similar.*
 
-"Hurm....maybe that wouldn't be the worst idea ever..."
+"Hurm... maybe that wouldn't be the worst idea ever..."
 
 *I don't think they build AIs specifically to come up with the worst ideas ever.*
 

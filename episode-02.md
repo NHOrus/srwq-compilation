@@ -143,7 +143,7 @@ The shadows charge en-masse into the heroes' formation. Rai blasts one back into
 
 Meanwhile the true Zweizergain back towards the busted Ashsaber. With no legs and one arm, Lemon's Assault Dragoon barely manages to lift itself to meet him.
 
-"Well....this isn't going like we expected, is it?" grunts Lemon, as the R-3 Strike Shields swat her last Sword Breaker out of the air.
+"Well... this isn't going like we expected, is it?" grunts Lemon, as the R-3 Strike Shields swat her last Sword Breaker out of the air.
 
 "No, but it's still survivable! This is the Alpha Event, Lemon! The distraction we needed, but never got! If we can get away, we can put the original plan in motion!"
 
@@ -235,7 +235,7 @@ Irm grabs the mike back off you. "Are you seriously saying that the world we wer
 
 You grab the mike back off Irm. "Axel, there's a group of our troops in the north, 100km from the base. You can head there and meet up with them, while we save some of our troops."
 
-"....I kinda had hoped to find Beowulf, this was the first time his unit actually seemed to be damaged in a long while, but I guess that's as good a place as any."
+"...I kinda had hoped to find Beowulf, this was the first time his unit actually seemed to be damaged in a long while, but I guess that's as good a place as any."
 
 "Great! We'll see you there later!"
 
@@ -245,7 +245,7 @@ You toss down the mike and turn to the others. "Right! After that transport!!!"
 
 It take a fair bit of convincing and a lot of using your moe-face to get Irm and Jonathan to turn the Tausendfuessler around and head to intercept the transport. As you complete the turn, you think you see the Soulgain far below you, heading north. TLI seems to be relatively intact, although wrecked vehicles are everywhere.
 
-Irm finally manages to raise the transport. "This is Transport 32C, we've got 3 pilots and 2 mechs aboard. No sign of EFA pursuit....no wait, there are some coming! They're so fast, no way those are Gespensts."
+Irm finally manages to raise the transport. "This is Transport 32C, we've got 3 pilots and 2 mechs aboard. No sign of EFA pursuit... no wait, there are some coming! They're so fast, no way those are Gespensts."
 
 "It's not the EFA, its the new guys. Right team, if we're really serious about saving these pilots and units..."
 

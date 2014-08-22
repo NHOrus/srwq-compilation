@@ -127,7 +127,7 @@ You pull up, a shell grazing your hull. "Turrets are too well-armored... Lat!"
 
 "Lamia?" Latooni seems almost confused.
 
-"Er.... I'll work on my diaWOOF!" The Angelg narrowly dodges a beam from the last battleship, which is redoubling its effort. The Schutzwald takes a missile head-on and loses an arm, and even Latooni has to seek cover.
+"Er... I'll work on my diaWOOF!" The Angelg narrowly dodges a beam from the last battleship, which is redoubling its effort. The Schutzwald takes a missile head-on and loses an arm, and even Latooni has to seek cover.
 
 "Akashic Busteeeeerrrr!!!" The Cybird flies through the enemy formation, wreathed in flamelike sorcerous power, and sends enemy suits flying, several exploding from the force. In his wake, the DC forces fly in, unloading their railguns into the beleagured troops. Against the old DC, these upgraded Gespensts would have done quite well, and held their own easily. But these were Van Vat Trans best, in top-of-the-line mechs, and with thier numbers drastically cut, the EFA grunts couldn't compare.
 

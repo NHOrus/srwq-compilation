@@ -144,7 +144,7 @@ Vindel nods. "No. It seems Helios and his friends may hold the key to the myster
 
 "Finally... Target groups Alpha and Gamma seem to be making a move. Both groups are sending forces to the west of the base. The Irregulars are moving as one, the Shadow Mirrors sending a small scout flotilla. Shall I pursue?"
 
-"Hmmm...."
+"Hmmm..."
 
 SRWQ SPECIAL MISSION: YUUKIQUEST
 

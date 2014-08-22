@@ -249,7 +249,7 @@ Arado stands there, mute, his hands quivering.
 
 The girl slams against the back wall, with Arado's hand around her throat. "LIAR!! You can't know that!!! That... thats not.."
 
-"... *Cough* Lidl'mor...."
+"... *Cough* Lidl'mor..."
 
 "Whu..."
 

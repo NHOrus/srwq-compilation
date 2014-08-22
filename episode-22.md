@@ -206,7 +206,7 @@ The morning sky over northern Africa suddenly gains a new sun, as 47 kilotons of
 
 ---
 
-"This....is intolerable."
+"This... is intolerable."
 
 "Indeed. An entire squad of our ascended defeated, the second such group this week, and forced to retreat to the Home Space, no less."
 
@@ -307,7 +307,7 @@ Irm grimaces. "Well, at least they'll have futures. Shuu says he can fix them...
 
 "We've confirmed from dismantling your R-Blade that you're with Project SRX, and we know about the clandestine war between them and the Council."
 
-"....And?"
+"...And?"
 
 "Well... maybe you'd like to tell us a little bit more about that?"
 
@@ -396,7 +396,7 @@ Axel grunts. "Dammit... I knew Beowulf had hit something important, but I didn't
 
 "Can you do something about it?"
 
-"I'm not sure..." Axel puts a hand on the Soulgains fuselage. As he does so the metal starts to glow, and the nearby scratches start to fill in....
+"I'm not sure..." Axel puts a hand on the Soulgains fuselage. As he does so the metal starts to glow, and the nearby scratches start to fill in...
 
 And then Axel collapses.
 

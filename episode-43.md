@@ -114,7 +114,7 @@ Gilliam turns back to the Diamond Eye. "What about Dark Brain?"
 
 "So we're still safe?"
 
-*Because you technically changed the timeline of another dimension rather than your own, yes, your dimension should be unchanged as regards its accessibility to him. But the Shards... They'll be in flux, caught between the states of resting in their original worlds, and being thrown into ours. They'll be adrift on the winds of the Storm, laden with Paradox at noxious levels....*
+*Because you technically changed the timeline of another dimension rather than your own, yes, your dimension should be unchanged as regards its accessibility to him. But the Shards... They'll be in flux, caught between the states of resting in their original worlds, and being thrown into ours. They'll be adrift on the winds of the Storm, laden with Paradox at noxious levels...*
 
 "An odd choice of words... You make it sound like they'd be poisonous."
 

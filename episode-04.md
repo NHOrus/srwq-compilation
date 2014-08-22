@@ -36,11 +36,11 @@ Things are becoming less and less canon and the plot is thickening faster than /
 
 ---
 
-"I...I..."
+"I... I..."
 
 *Is something the matter?* asks Dumi, as you stand there in your new unit.
 
-"I...I can't decide which one to kill first!"
+"I... I can't decide which one to kill first!"
 
 *Ah. That may be an issue.*
 
@@ -108,15 +108,15 @@ Meanwhile, Ibis stands dumbfounded over a pile of broken weapons, as the Transfo
 
 The Transformer flies level with you, sizing you up. "You're making a mistake, Mirror Katina. We planned to do this as peacefully as possible, but if you hurt Arado, so help me, I'll...I'll..."
 
-"It's ok, Mr. Loud. You just leave us alone and I'll take....special care of Arado-kun."
+"It's ok, Mr. Loud. You just leave us alone and I'll take... special care of Arado-kun."
 
 "...I don't like the way the way she said that."
 
 "Arado, don't you even think of going with that crazy hussy!! If you do I'll never forgive you!"
 
-"I..I don't have a whole lot of choice in the matter, Seolla..."
+"I... I don't have a whole lot of choice in the matter, Seolla..."
 
-"You...you're actually going to go with her. You cheat! You wannabe Casanova!! I'll-"
+"You... you're actually going to go with her. You cheat! You wannabe Casanova!! I'll-"
 
 "Snip it crochet girl! So, Big Damned Hero, what's it going to be??"
 
@@ -184,7 +184,7 @@ You turn back towards Kai, but now that you're alone with the living legend, you
 
 "Something?"
 
-"I....(sweatdrop) I'm not very good at catching details in the middle of a battle."
+"I... (sweatdrop) I'm not very good at catching details in the middle of a battle."
 
 Kai rubs his jaw competitively. "Well, the two of us aren't going to work this out alone. Let's have a chat with the other ship, see were we stand."
 
@@ -198,7 +198,7 @@ Kai rubs his jaw competitively. "Well, the two of us aren't going to work this o
 
 "Heh-heh. Wish I could, Miss, but the grease-monkey was careful not to leave pens or paper around a suspected spy."
 
-"Well, you.....youcouldjustcutmeandthenIdahaveascartorememberyouby!"
+"Well, you... youcouldjustcutmeandthenIdahaveascartorememberyouby!"
 
 Kai is absolutely expressionless for 8 seconds.
 
@@ -222,13 +222,13 @@ You pinch Rio to get her out of the way, and grab two headsets from the comms un
 
 Dumi helpfully patches you through to Ibis' Gespenst, and sure enough you hear the sniffs of someone trying to compose themselves.
 
-"I...Ibis isn't it? What's the matter?"
+"I... Ibis isn't it? What's the matter?"
 
-"...*sniff*...Damn you, Sleigh..."
+"...*sniff*... Damn you, Sleigh..."
 
 "That's your friend, isn't it? What about her?"
 
-"She...she's run off again, on another crazy tangent, without a word! Just a stupid message, hidden in the OS of her mech. 'I have been chosen.' She said the same thing when she ran off to the DC, and again when she went to Shadow Mirror. What does that even mean? Why does she do this to me? We're practically family, why can't she stay in one place? *sniff* I just want us to go back home together..."
+"She... she's run off again, on another crazy tangent, without a word! Just a stupid message, hidden in the OS of her mech. 'I have been chosen.' She said the same thing when she ran off to the DC, and again when she went to Shadow Mirror. What does that even mean? Why does she do this to me? We're practically family, why can't she stay in one place? *sniff* I just want us to go back home together..."
 
 ~~skip~~ [^1]
 
@@ -262,7 +262,7 @@ Ryoto Hikawa ('Microchips is right, you're needed over there on the Tausendfuess
 Prisoners
 Arado Balanga ('We need to have a proper chat with this kid...')
 
-"Yeah-heh-heh....er, yeah, a chat. With words. And whips. I mean, completely professional interrogation tools."
+"Yeah-heh-heh... er, yeah, a chat. With words. And whips. I mean, completely professional interrogation tools."
 
 "...We should go as a group to see him."
 
@@ -316,7 +316,7 @@ Latooni: "The optimal conservative strategy is to retreat to California, regardl
 
 Rio: "California. Definitely."
 
-Ryoto: "....Who let all these crazy people into the Shadow Mirror?"
+Ryoto: "...Who let all these crazy people into the Shadow Mirror?"
 
 Arado: "Please! Lets just go back to my friends! They'll explain everything!!"
 
@@ -376,8 +376,7 @@ Randgrith: "I'll need 3 or 4 hours to get it safe to walk around in and reattach
 
 You suggest the idea of taking the legs of the R-Blade and using them to fix the Wuerger.
 
-"Actually, from what I can see, those units are using very similar frames, some kind of upgraded Gespenst frame....Yeah, it should work, it won't be an exact match but it'll do the job.
-"It'd take a while though. There's not a lot of room in the 'fuessler for that kind of job. If I was to do it on the way to California, we'd be finished just about by the time we'd arrive, and that leaving the 'Grith and Gespenst in the lurch."
+"Actually, from what I can see, those units are using very similar frames, some kind of upgraded Gespenst frame... Yeah, it should work, it won't be an exact match but it'll do the job. It'd take a while though. There's not a lot of room in the 'fuessler for that kind of job. If I was to do it on the way to California, we'd be finished just about by the time we'd arrive, and that leaving the 'Grith and Gespenst in the lurch."
 
 "Could we give the Spider Nets to the Assault Lander?"
 
@@ -403,7 +402,7 @@ The three of you enter the Tausendfuessler's isolation room, where Arado is hand
 
 "He's been trying to convince me I'm his best friend and we're practically brother and sister, even though I met him maybe 5 times at The School."
 
-"Irm! Kai! You're like the real versions, aren't you? You'll listen, right? You....you're not like HER, right? Oh god, please don't be like her?"
+"Irm! Kai! You're like the real versions, aren't you? You'll listen, right? You... you're not like HER, right? Oh god, please don't be like her?"
 
 Irm winces as you attempt to turn Arado's testicles to mash potato with your Knee. Latooni shakes her head and tries to ignore you. Kai watched impassively.
 

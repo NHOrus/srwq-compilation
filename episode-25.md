@@ -108,7 +108,7 @@ The old man's voice is more guarded. "Whats so funny?"
 
 You kick at full power into Dumi's forcefield, sending the Motorad form racing like a bullet into the final shielding layer. With a massive explosion Dumi bursts through. You fly after him, and find yourself hovering over the center of the sphere.
 
-"Hooooolllyyyyyy...."
+"Hooooolllyyyyyy..."
 
 The Scorpion is massive, easily half as big again as your super robot. Its white-and-grey form exudes power. Its tail is buried in the heart of a massive orange sphere, covered in eye patterns, and festooned in lifeless wings.
 
@@ -118,7 +118,7 @@ The Scorpion is massive, easily half as big again as your super robot. Its white
 
 *The 'Orange' is where the ODE waves are coming from, but it not totally under Juergens control. The Scorpion is... stopping it, in a way. The energy of the Scorpion prevents the Orange from functioning, allowing Juergen to siphon of its power to run the system.*
 
-"Ugh....Ok."
+"Ugh... Ok."
 
 From all sides, Bartols start to flood into the room. You think theres at least a hundred in the first wave, with more on the way.
 

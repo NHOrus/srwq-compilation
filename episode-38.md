@@ -86,7 +86,7 @@ The Ezekiel lands atop of Dumi, and the whole assembly heads back to the Trilobi
 
 *She's merely intimating that the First appear to be altering themselves as much as they are altering humanity. Their process of assuming control of the Federation is the culmination of centuries of subtle political and humanitarian manipulation, simply to make the world capable of being controlled by one government. If the First were immutably alien compared to humanity, they wouldn't be capable of this level of subtlety, because their understanding of human psychology and culture would be rudimentary at best. You're right in saying that they're physically quite distinct from anything from Earth, but mentally, they can function as humans, to an astoundingly accurate degree.*
 
-"....Huh... Wait, are you taking her side?"
+"...Huh... Wait, are you taking her side?"
 
 *I'm playing devil's advocate, Katina.*
 
@@ -182,7 +182,7 @@ You rush out to find a safe place to talk.
 
 *Arado.*
 
-"....Oh... Oh! You did that? I thought he just... woke up!"
+"...Oh... Oh! You did that? I thought he just... woke up!"
 
 *It's complicated... But you have to agree, since his revival, Arado hasn't been the most... stable.*
 

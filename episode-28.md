@@ -134,7 +134,7 @@ All this feedback is freaky... Damn, Katina's people really did a number on us. 
 
 *I'm afraid I can't allow Laodicea to run around on his own anymore, my dear. That noble idiot will run what's left of the Empire into the ground if I leave it up to him. No, I'm afraid I'll have to take over for my little 'brother', and you'll have to help me.*
 
-"Nooo....Agghkkkk...."
+"Nooo... Agghkkkk..."
 
 *Nothing I can do about this, I'm afraid. Blame that Torah girl for being so idiotically self-sacrificing...*
 

@@ -46,7 +46,7 @@ You are holding desperately onto the leg of the Wild Wuerger, raining blow after
 
 "LIKE YOU FORCED YOURSELF ON THAT BIG-TITTED SLUT???"
 
-"Wha....TO HELL WITH YOU!!"
+"Wha... TO HELL WITH YOU!!"
 
 The Stag Beetle Crusher snags your blade arm, gets a firm grip, and then rips the arm right out of its socket and tosses it away."
 
@@ -60,9 +60,9 @@ Arado points the Wuergers left arm at you. It has a rather nice sword holstered 
 
 "I'm only going to count to three..."
 
-"BAAAAAAWHAWHAWHAAAAW!! I just wanted a friend! The School was so hard, I wanted someone to talk to! Someone to share the heartache! Please....I don't to be alone..."
+"BAAAAAAWHAWHAWHAAAAW!! I just wanted a friend! The School was so hard, I wanted someone to talk to! Someone to share the heartache! Please... I don't to be alone..."
 
-"....ngh....Dammit..."
+"...ngh... Dammit..."
 
 The arm cannons are lowered, and the Wuerger starts to lose altitude.
 
@@ -138,7 +138,7 @@ Arado releases the stricken Randgrith and starts to fight the buzzing Slash Ripp
 
 The Slash Rippers suddenly pop like clay pigeons. Russel turns around to see the Wildfalken steadying itself on a boulder, sighting its rifle right at him.
 
-"Stand down, you....you goddamn meatheads!!!"
+"Stand down, you... you goddamn meatheads!!!"
 
 "Seolla..."
 
@@ -152,7 +152,7 @@ The Raioh strides out of the Trilobite, wrapping a red cloth around its neck as 
 
 "Why are you doing that?" calls Rio from the Trilobite's cockpit. "That's just the tarpaulin we were covering it with."
 
-"DON'T....question me?"
+"DON'T... question me?"
 
 Ryusei is temporarily stunned. "A Kamen Rider mech?? That is so damned cool!! If a bit old-school."
 
@@ -170,7 +170,7 @@ Pic related strides out of the Trilobite, and joins you.
 
 *I am the Dynamic Unlimited Military Intelligence, Operation AI of DDG-XAM-04. You may call me Dumi-chan.*
 
-"Doomy???....I like it. Now lets go kick some ass"
+"Doomy???... I like it. Now lets go kick some ass"
 
 ---
 
@@ -182,11 +182,11 @@ Axel approaches the northern camp, and finds a few scattered Gespensts hiding be
 
 "Commitees still out. What are you hiding from? EFA?"
 
-"Er...no...it's a little more complicated than that..."
+"Er... no... it's a little more complicated than that..."
 
 Axel leaps up to the top of the ridge, and has a good look at the scene.
 
-"Well now....that is complicated, now that you mention it."
+"Well now... that is complicated, now that you mention it."
 
 ---
 #####THREAD OVER

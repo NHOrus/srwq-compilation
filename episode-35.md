@@ -26,7 +26,7 @@ Vindel looks incredibly worried. Kai checks the radio. "This is an excrypted cha
 
 "Are you mocking me, Lightning Wielder?"
 
-"Some one needs a huuu-uug...."
+"Some one needs a huuu-uug..."
 
 "...Who do you think you are? My mother?"
 
@@ -240,11 +240,11 @@ The statue's exterior cracks. Dead metal crumbles away, revealing fresh white be
 
 The hyperwave penetrates through meters of earth, rock, metal and concrete with ease. "Yes... these blasted Cells, they'd thrive in this charnel pit, wouldn't they? The souls of the murdered, the pain of the wounded, its like manna for them..."
 
-"....Magus..."
+"...Magus..."
 
 "Sophia! My name is Sophia, you damned robot!!"
 
-"...Sophia... it hurts... to think of you... as that woman... about the time... we had together...."
+"...Sophia... it hurts... to think of you... as that woman... about the time... we had together..."
 
 "Oh Sanger... damn this cursed existence we've been given... The Machine Cells were meant to preserve life, to protect it and seed the Earth with it after an apocalypse, but now... I've created an apocalypse of my own..."
 
@@ -290,7 +290,7 @@ The Thugater moans in Tis' head, asking her to lift the ugly disguise and let it
 
 "So... what do we do?"
 
-*This goddamn storm... I can't use my hyper-computation units or my Mind Impulse Planes... I... I can't think of anything conventionally....Dammit, I need her. Its gotten so bad... I near her just to figure out a simple theft for me... Oh, if My Master saw me now, he'd flay me to atoms for such weakness. Such a way to fall...*
+*This goddamn storm... I can't use my hyper-computation units or my Mind Impulse Planes... I... I can't think of anything conventionally... Dammit, I need her. Its gotten so bad... I near her just to figure out a simple theft for me... Oh, if My Master saw me now, he'd flay me to atoms for such weakness. Such a way to fall...*
 
 ---
 

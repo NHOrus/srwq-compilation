@@ -73,11 +73,11 @@ The Bergelmir turns to face the giant motorcycle. "Ugh, yeah, The Bergelmir stor
 
 *I'll monitor the Machine Cells, and try to ensure they retain the Raiohs original form. I have the full schematics, so I should be able to program them to do repair rather than full transformation.*
 
-"Ugh....damn, this decision was a lot easier to make when it was just theoretical..."
+"Ugh... damn, this decision was a lot easier to make when it was just theoretical..."
 
 "Dammit, Katina!" Jayce hops up beside the cockpit of the Raubtier. "Either launch in this damned thing or get out of it!"
 
-"But...using Raioh means using technology that could fuck me in the ass! Literally, if it turns Raioh into a tentacle monster or something..."
+"But... using Raioh means using technology that could fuck me in the ass! Literally, if it turns Raioh into a tentacle monster or something..."
 
 "You think I didn't catch that part? Ring and Shuu have been jawing about that stuff all fucking morning. And, dangerous as it might be, they both said they would like to test it out."
 
@@ -93,11 +93,11 @@ The Bergelmir nods, and a hatch opens in its chest, from which it takes a sphere
 
 Irm's Gespenst stops a bit away from the fallen Granzon. The mighty robot is immobile in the crater it landed in, glowing with heat. "Shuu! What the heck happened!?"
 
-"Urgh....I detected a high energy buildup from the Haganes bow, consistent with Tronium Discharge, so I attempted to use the Granzons portal generation abilities to deflect the weapon. It was 97.8% successful, but the remaining energy was still enough to overload my power couplings. I fear the Granzon will not be of much use in this fight."
+"Urgh... I detected a high energy buildup from the Haganes bow, consistent with Tronium Discharge, so I attempted to use the Granzons portal generation abilities to deflect the weapon. It was 97.8% successful, but the remaining energy was still enough to overload my power couplings. I fear the Granzon will not be of much use in this fight."
 
 "Well, you stopped them from wiping out the base in one shot, so I guess you did a good job."
 
-"Perhaps, but....do you have the firepower to deal with that?"
+"Perhaps, but... do you have the firepower to deal with that?"
 
 A dozen Gespensts Customs fly down out of the mighty EFA battleship, heralding the Cry Wolves return to the fray. Just behind them, come three unusual mecha, including a super robot, and on either flank, a large grey unit.
 

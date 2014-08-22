@@ -127,7 +127,7 @@ You turn around and see a green-haired woman pulling on a pair of fingerless glo
 
 "Oh, cool. I'm Katina Tarask, I'm the teams crazy one. There's a WildRaubtier sitting out there with no pilot, it'd be better if we gave it to a real person than one of Echidna's pod-people."
 
-"......Yes. I suppose it would. Well, I'd like to meet the others. See you around."
+"...Yes. I suppose it would. Well, I'd like to meet the others. See you around."
 
 She walks off. You look around at Axel, then at the dress in your hands.
 
@@ -249,7 +249,7 @@ The girl voice screeches over the comms. "Not now! Not to the likes of you! My f
 
 "I am the Princess of Foretold Victory, and I don't need to chat to useless grunt like you!!" She dives through the undergrowth, still firing, but Kai manages to dodge this time.
 
-"We've got one of the crazy ones...."
+"We've got one of the crazy ones..."
 
 "We have to stop her now, she's almost at the river!!" Lamia shouts.
 
@@ -407,7 +407,7 @@ Shine doesn't answer immediately, her eyes defocus for a moment. Then the hard-b
 
 "Really?"
 
-"....Ultimately, yes."
+"...Ultimately, yes."
 
 "But in the short-term?"
 

@@ -2,7 +2,7 @@
 
 ##SRWQ Mission 39: Sex fixes everything. Sex, and nanomachines
 
-    Continuing from last episode....
+    Continuing from last episode...
 
 "Wait, Arado... What were you doing in my closet?"
 
@@ -196,7 +196,7 @@ Arado mumbles into the nape of your neck. "Like what? I don't really know, I've 
 
 "OK, OK..."
 
-"We went to California, thats were Ryuune helped us reconcile with the Irregulars, and we decided to look for the Zweizergain together. We didn't even know what we'd do if we found it, whether we'd sell out Vindel to get rid of the Irregulars, or just hide him... we just head on regardless, for lack of anything better to do, really. I.... like that. Not having a direction, or a goal, just seeing what came along... at the time, it was thrilling."
+"We went to California, thats were Ryuune helped us reconcile with the Irregulars, and we decided to look for the Zweizergain together. We didn't even know what we'd do if we found it, whether we'd sell out Vindel to get rid of the Irregulars, or just hide him... we just head on regardless, for lack of anything better to do, really. I... like that. Not having a direction, or a goal, just seeing what came along... at the time, it was thrilling."
 
 "And now?"
 
@@ -306,7 +306,7 @@ You button up your dress, fix your hair and ribbons, and start tuning in your co
 
 You look back over at the shirtless Arado sitting up more bed, all sweaty and dishevelled. "...We're taking a break. Dumi, I need to ask you about the Raioh. With the Machine Cells in it, is it... safe for me??"
 
-*Hhhmmmmm..... Hhhhmmm..... Hhhmmmm....*
+*Hhhmmmmm... Hhhhmmm... Hhhmmmm...*
 
 "DUMI!"
 

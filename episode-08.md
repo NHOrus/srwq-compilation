@@ -66,7 +66,7 @@ Irm rubs his chin competitively. "Well, that might work...But getting into fight
 
 Russel pipes up. "I don't like the idea of jumping the bonfire either. I say we join this search of hers. Little bit of intelligence gathering with the odd skirmish with the EFA, sounds like the good old days again."
 
-Ibis speaks up meekly. "I....I just want to find my friend. I'll stay with you guys if I can, but as free agents, we can stay away from the war, and get our lives back into shape, somehow."
+Ibis speaks up meekly. "I... I just want to find my friend. I'll stay with you guys if I can, but as free agents, we can stay away from the war, and get our lives back into shape, somehow."
 
 Johnathan looks up sleepily from his toolbox. "Frankly son, I think we should stay put, for now at least. California's neutrality lets us keep ourselves out of the mess until things blow over, then we can see what we have left to rebuild from."
 
@@ -80,7 +80,7 @@ Latooni puts her datapad away. "The optimal strategy is to ally with the DC, and
 
 All eyes turn to you...
 
-"I...want to keep Arado...."
+"I... want to keep Arado..."
 
 Irm facepalms
 
@@ -130,7 +130,7 @@ The silver-haired man turns to you.
 
 "Can I... have your autographs?"
 
-"Thats..... quite an unusual reques-"
+"Thats... quite an unusual reques-"
 
 "And a lock of the blond ones hair."
 
@@ -146,7 +146,7 @@ There is a dead silence at this.
 
 "AH!!... Ok, my hair isn't all that special, Miss Tarask." mumbles Ratsel as you stroke one of his fine locks.
 
-"....It is to me. ...Wait a minute... how do you know my name?"
+"...It is to me. ...Wait a minute... how do you know my name?"
 
 Ratsel and Sanger look at each other strangely for a second, before Ratsel continues on. "We're in somewhat of a privileged position when it comes to skilled pilots. We know faces and names of almost all of the best mech pilots, but not their assignments. Hence the curious questions."
 
@@ -162,7 +162,7 @@ Ratsel shrugs. "I'm a spy, a mech pilot, a horse trainer and a gourmet cook. We'
 
 "Well, that's unfortunate. Your employer probably doesn't trust you all that much if she won't tell you who her new best friends are."
 
-"W-w-well...Well you've been delaying my important meeting with her!! I was just about to be told everything and then you walk past with your hair and your rugged good look and then I couldn't. So if your evil spy mission was to delay me, it's been accomplished."
+"W-w-well... Well you've been delaying my important meeting with her!! I was just about to be told everything and then you walk past with your hair and your rugged good look and then I couldn't. So if your evil spy mission was to delay me, it's been accomplished."
 
 You head towards the door of Ryuune's office, still shouting. "So why don't you just piss off back to your dimension and ride each other like horses for a while!?!?"
 
@@ -218,7 +218,7 @@ Arado looks on verge of tears. "So you're just going to leave me here? With...wi
 
 "This version of Ryuune Zoldark is quite the politician, and seems to like the art of deal-making quite a bit. If you approach her the right way, and try to make yourself useful to her, she may just make a deal with you to get you out of the chair. You'd still be stuck in the DC, but you'd be free to report on their activities for us. It's vital they don't get to hide any info from us. Please Arado, it's for the good of our entire world!"
 
-"....Ok, but you have to promise me..."
+"...Ok, but you have to promise me..."
 
 "Yes?"
 

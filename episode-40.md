@@ -169,7 +169,7 @@ Lamia pauses, her face conflicted. Axel jumps in ahead of her.
 
 "But wait, are you saying you want to take me somewhere? Is that a come-on?"
 
-"....Not yet. No Axel, I just think... you're too good of a guy to waste sitting around here. You deserve to go somewhere... interesting."
+"...Not yet. No Axel, I just think... you're too good of a guy to waste sitting around here. You deserve to go somewhere... interesting."
 
 Lamia looks really concerned now. "Wh-why would you drag Axel away from here? This... The Shadow Mirrors, their fight... It's his whole life! His entire existence is wrapped up in these people, their missions, the mech in that hangar... That isn't gone, is it?"
 

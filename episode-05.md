@@ -22,7 +22,7 @@ Having brutalized Arado's testicles to get him ready for interrogation, you back
 
 This is the quietest thing you've said all day. This only makes it more pronounced. Irm shivers a little.
 
-"....It was a few months ago. We'd just fought off a big palooka, someone called Dark Brain, massive guy from another dimension. We thought we'd seen the last of him, but then, the Cracks started happening.
+"...It was a few months ago. We'd just fought off a big palooka, someone called Dark Brain, massive guy from another dimension. We thought we'd seen the last of him, but then, the Cracks started happening.
 
 "Stuff just started... to change. It would disappear, and something similar but different would be there in its place. The New York crater disappeared, and in its place was a big dome with a different city inside, deserted except for tomato plants. A whole colony disappeared, and in its place was a gigantic laser cannon, crewed by a bunch of German guys who thought they were 'New-types'. We found a floating island full of weird monster-robots, and a giant red spear at the South Pole.
 
@@ -50,7 +50,7 @@ Irm looks shocked at this. "By us?! What the hell did we do to your dimens... Oh
 
 "Yeah! That's the L-word-one! Lygeus and Acguy-Arse! Your dimensional travel devices gives Dark Brain what he needs to attack us!
 
-"But...we never actually used Lygeus!! You guys came and blew it up!!!"
+"But... we never actually used Lygeus!! You guys came and blew it up!!!"
 
 "Exactly!! We used the Giest to travel in time to before you made the jump, and stop you, so the channel never exists! Then we can use the Giest, which Gill modified to make no channel, to get back, hopefully without getting lost in time as we go. I've had enough copies of us these past hours, I don't want to meet myself too"
 
@@ -70,7 +70,7 @@ Irm looks shocked at this. "By us?! What the hell did we do to your dimens... Oh
 
 "Grab her arms!!!"
 
-"YOU TREAT ME LIKE A BABY!! LIKE A BABY WHO BELIEVES IN FAIRY STORIES!! WELL I WON'T TAke iiiiittt...."
+"YOU TREAT ME LIKE A BABY!! LIKE A BABY WHO BELIEVES IN FAIRY STORIES!! WELL I WON'T TAke iiiiittt..."
 
 Kai releases his grip from your neck as you slide into unconsciousness.
 
@@ -90,7 +90,7 @@ Kai grunts. "So did I. Maybe she's a Trekkie."
 
 You've woken up in the port side toilet of the Tausendfuessler. The door has been locked from the outside somehow, and the inside handle is on the ground beside the door. You've been checked for weapons, you only have your hairpins, a hairbrush, a mobile phone with no credit and a melted chocolate bar you apparently left in your back pocket. There is half a roll of toiler paper, a relatively clean toilet brush, and a discarded porno magazine. The light fixture is broken, but light streams in through a small window.
 
-"BUHUHUHUHUomnomnomWAAAAAAOmnomsniffsniff...."
+"BUHUHUHUHUomnomnomWAAAAAAOmnomsniffsniff..."
 
 Ibis's voice sounds from outside. "What are you doing in there?"
 
@@ -98,13 +98,13 @@ Ibis's voice sounds from outside. "What are you doing in there?"
 
 "Wait, you have chocolate?"
 
-"I ate it all but I didn't eat it good and its all over my face and my dress and everythiiiing...."
+"I ate it all but I didn't eat it good and its all over my face and my dress and everythiiiing..."
 
 "...oh."
 
 "If you open the door, I'll let you lick it off."
 
-"....NO!!"
+"...NO!!"
 
 Just then, your mobile begins to ring. DO YOU ANSWER IT??
 
@@ -180,11 +180,11 @@ Tetsuya Onodera adjusts his captains jacket, still ill-fitting even after months
 
 "What about Masaki??"
 
-"...."
+"..."
 
 "Ah right."
 
-"Gilliam calculates they all should be somewhere on the planet, but where exactly is hard to narrow down. On top of that, Bullet and Kusuha seem to have been kidnapped by Vindel, and Arado....ran into some familiar faces."
+"Gilliam calculates they all should be somewhere on the planet, but where exactly is hard to narrow down. On top of that, Bullet and Kusuha seem to have been kidnapped by Vindel, and Arado...ran into some familiar faces."
 
 "Well, we were going to have to search the planet anyway, I suppose."
 

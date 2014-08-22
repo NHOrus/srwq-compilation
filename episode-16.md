@@ -234,7 +234,7 @@ Irm facepalms. "Well, I suppose it serves us right for taking on an entire EFA f
 
 Colonel Van Vat Tran turns his grizzled visage to you as you cross onto his ship. He seems like he might be about to break into a smile, but can't force his mouth to go through with it.
 
-"Well well, I certainly didn't expect Mauser's peons to come to our aid. A nice job you did on the Feds there, it took them months to build up that force, and you sent them scurrying back to Dakar. I'd like to thank....Is that Bian's girl? Here?"
+"Well well, I certainly didn't expect Mauser's peons to come to our aid. A nice job you did on the Feds there, it took them months to build up that force, and you sent them scurrying back to Dakar. I'd like to thank... Is that Bian's girl? Here?"
 
 Ryuune folds her arms and stares down Vat Tran. "I'm Ryuune Zoldark, but not the one you know. I'm from another world. And my friends and I need the help of you and the Shadow Mirrors."
 

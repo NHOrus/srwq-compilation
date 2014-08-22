@@ -50,11 +50,11 @@ Irm tries to facepalm, but doesn't have enough working fingers in either hand. "
 
 "Can't you, y'know, go to another dimension and get the Compy-Kaiser of that dimension?"
 
-I'm afraid the Compatible Kaiser is a multiplicity point, much in the same fashion as Dark Brain itself. Every universe has a version of it that can exist, but only one can exist at a time...well more accurately, only one exists at any on its own personal timeline, and due to to the Blinovitch Limitation Effect it cannot occur within traversable space-time of itself....There's only one, ok?
+I'm afraid the Compatible Kaiser is a multiplicity point, much in the same fashion as Dark Brain itself. Every universe has a version of it that can exist, but only one can exist at a time...well more accurately, only one exists at any on its own personal timeline, and due to to the Blinovitch Limitation Effect it cannot occur within traversable space-time of itself...There's only one, ok?
 
 "'Kay...Can't we just leave a bug on it or something, so we can leave, get awesome mechs, then come back for it later?"
 
-I...It could work, but again, we'd need an interdimensional communication method, in case it jumps to another world while we're away. Again, that would mean stealing from Gilliam Yeager, risking a peep at Izu Base, or investigating the signal in space. Also...I don't want to risk Dark Brain waiting for us out in the storm, and being emptyhanded when he asks me wh...Oh, there's Lalias ship.
+I... It could work, but again, we'd need an interdimensional communication method, in case it jumps to another world while we're away. Again, that would mean stealing from Gilliam Yeager, risking a peep at Izu Base, or investigating the signal in space. Also...I don't want to risk Dark Brain waiting for us out in the storm, and being emptyhanded when he asks me wh...Oh, there's Lalias ship.
 
 You look out of your porthole and see, waiting in the valley, something that might have been a standard EFA shuttle at one point, but is now almost unrecognisable. The black Stealth Coating and automated AAA turrets look strangely out of place.
 

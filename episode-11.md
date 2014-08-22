@@ -49,7 +49,7 @@ Irm nods. "Anyone else volunteering?"
 
 You pipe up. "Ugh, I just had a thought. Isn't it nearly Lent?"
 
-"....Yyyyeeeeesss. So?"
+"...Yyyyeeeeesss. So?"
 
 "Well... doesn't that mean its Mardi Gra's season?"
 
@@ -346,7 +346,7 @@ The other womans voice comes over the comms, slightly muffled by her mask. "Righ
 
 "Ok! For Victory Already Foretold, all units engage!!"
 
-The R-Blade, the Mass-production R-Series, and the modified Gespenst known as the SchartzRitter all surge forward, toward the Trilobite and its 3 valiant defenders....
+The R-Blade, the Mass-production R-Series, and the modified Gespenst known as the SchartzRitter all surge forward, toward the Trilobite and its 3 valiant defenders...
 
 ---
 

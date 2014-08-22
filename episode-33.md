@@ -308,7 +308,7 @@ Lanzekannone shots bounce across the TK Field, and into the turrets aiming at th
 
 "Axel! Are you alright??"
 
-"....You sound like a very pretty young lady. What's your name?"
+"...You sound like a very pretty young lady. What's your name?"
 
 "Eh... Lamia, Lamia Loveless."
 

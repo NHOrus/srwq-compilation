@@ -202,7 +202,7 @@ Kar-Wai is shaking his head. "I just find it hard to beleive... What kind of evi
 
 "...Perhaps from the horses mouth would be better. Can I talk to Kai?"
 
-"Hmmm.... Dumi, I think the EFA knows were we are by now, surely its safe to call home?"
+"Hmmm... Dumi, I think the EFA knows were we are by now, surely its safe to call home?"
 
 *The EFA fleet have gone to full alert and overboosted between us and Earth, and set up ECM. A direct line to Earth is impossible, our only hope would be to bounce it off the colonies, and for that to work, we'd need to use the DC channels. I've already promised Juergens a lot, a risky move like this may cost me more than I'd like.*
 

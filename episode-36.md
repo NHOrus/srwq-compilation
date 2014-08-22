@@ -20,7 +20,7 @@ The Raioh lands on the blast-plain, and you look out over a vast expanse of what
 
 The furrow in the earth, marking the centre of the beams path, passes right through the eastern part of the DC base. Little remains except the twisted hulks of two Rhinoceros battleships. The western half of the base has merely been flattened, with the battered but intact Trilobites the only things standing. Wreckage lies everywhere, some of it blown half a mile south by the force of the blast.
 
-"Jesus....where do I start?"
+"Jesus... where do I start?"
 
 You step down from the Raiohs hatch into the hangar, circling around the crater left by some sort of energy grenade. Given what happened, the Trilobites hangar is in pretty good shape.
 

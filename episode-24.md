@@ -8,7 +8,7 @@ Sounds totally legit, right?
 
 ---
 
-Setsuko comes in over the comms. "Target spotted! It's....bigger than I expected."
+Setsuko comes in over the comms. "Target spotted! It's... bigger than I expected."
 
 The spy satellite looks like a flower, armored petals open around the sensitive observation equipment, which are already starting to close. Large beam turrets pop up on pylons, missile banks emerge, and a set of Rangzen drone fighters pop off the rear of the satellite and begin to drop down to intercept you. 
 

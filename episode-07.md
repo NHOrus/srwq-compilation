@@ -227,7 +227,7 @@ Latooni turns slightly red at the mention of ribbons.
 
 Ryuune smiles. "You know, you're awfully attached to that young boy, given that you met him a few hours ago while he was trying to capture you."
 
-"I-i-its not like I'm....or anything to with him!! I'm just concerned, he's our valuable special prisoner!"
+"I-i-its not like I'm... or anything to with him!! I'm just concerned, he's our valuable special prisoner!"
 
 Ryuune giggles. "Well, alright then. The results say he's 100% human, so you can unstrap him if you like."
 
@@ -327,7 +327,7 @@ Russel's irish brogue is quite comforting to hear. "Well as can be expected, I s
 
 "About all thats happened. Aren't you sad that the Shadow Mirrors are gone?"
 
-"....Don't hate me for saying this, but I really only joined because Sleigh did."
+"...Don't hate me for saying this, but I really only joined because Sleigh did."
 
 "Really? Man, you're really dedicated to tracking your friend."
 
