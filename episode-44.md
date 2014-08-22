@@ -5,27 +5,22 @@
 In our last episode, Interdimensional Runaway Duminass 7 finally came up with a plan to strike back at his evil master, Dark Brain, by recreating the scattered shards of previously destroyed universe into a new world, where Dark Brains enemy Warrior Roar and the Compatible Kaiser, as well as Dumi himself and his Homonculi, would forever be safe from the interdimensional tyrants grasp. However, this new plan presents a terrible dilemma for our heroine, Katina Tarask: If she and her team of ex-School refugees and former Shadow Mirrors joins Dumi in this new world, they may never be able to leave...
 
 Desperate for a way around this, Katina turns to the Irregulars who started this whole mess, asking for the use of their technology, but they seem reluctant, afraid that dimensional travel will cause more harm than good. As Katina talks with them, she learns that one Excellen Browning has divined the secret of one of her enemies, the Council of the First and Only: That they intend not only to pacify her world, but to use Humanity as the basis for a new combined race...
-Goddamn Sandwitches Wed 17 Mar 2010 01:57:22 No.4709684 Report
-I stick by what I said in the last episode.
 
-Make whatever preparations we need to and then leave, but not before bringing up these (>>4708493 >>4708875 >>4708885) Assuming that train of thought is correct in any way that is.
+---
 
-... You did say they cannot get back home as they are without Dumi's help, correct?
-Sciencegar Sciencebolt Wed 17 Mar 2010 01:58:22 No.4709685 Report
-Quoted By: >>4709697 >>4709704 >>4709722
 You boot in the door of Tetsuya Onoderas office, almost taking it off the hinges. Which is particularly impressive since its a sliding door. The young captain almost jumps out of his seat.
 
 "YOU KNEW ABOUT THIS!" You point an accusatory finger. "You knew the EFA are aliens going to use us as fucktoys and breed their new master race! And you were going to FUCKING ABANDON US!! You self-righteous cockbags!!!"
 
-Katina, insulting the man won't help.
+*Katina, insulting the man won't help.*
 
 "It's the only thing stopping me from wringing his scrawny neck!! So I'd say its helping!!"
 
-Tetsuya raises his hands. "P-Please, Ka...Ms Tarask, we-we...We were as shocked by what Excellen learned as you were. We're still digesting the information. It's only been a few days, we haven't really had a chance to digest it al-"
+Tetsuya raises his hands. "P-Please, Ka... Ms Tarask, we-we... We were as shocked by what Excellen learned as you were. We're still digesting the information. It's only been a few days, we haven't really had a chance to digest it al-"
 
 "And you never would have, because you were going to run out on us, you prick!"
 
-Katina, please, try to be rational for once!
+*Katina, please, try to be rational for once!*
 
 "Fuck you, Dumi! These people are willing to let you MELT YOUR FUCKING BRAIN to save their stupid world, but they won't lift a finger to save us! How the fuck is that fair?"
 
@@ -35,208 +30,44 @@ Tetsuya gulps. "Its not like that, Ms Tarask, really, we just haven't worked it 
 
 "We don't have a plan! Or at least, we didn't have one that survived contact with the enemy, so to speak. Look, please, just sit down, and I'll explain! Seriously!"
 
-"....I'll stand, but go on."
-Anonymous Wed 17 Mar 2010 02:00:22 No.4709697 Report
-Quoted By: >>4709719
->>4709685
->Katina nearly kicks a SLIDING DOOR OFF OF ITS HINGES
-Katina runs pretty well off of righteous indignation, it seems.
-Goddamn Sandwitches Wed 17 Mar 2010 02:01:22 No.4709704 Report
-Quoted By: >>4709713
->>4709685
-Well, that is going pretty fucking well so far.
+"...I'll stand, but go on."
 
-
-... Well alright, at least it's not burning down all around us.
-Anonymous Wed 17 Mar 2010 02:03:22 No.4709713 Report
->>4709704
-At least Tetsuya is sympathetic.
-View SameGoogleiqdbSauceNAO DESU BEAM!.gif, 8KiB, 240x160
-Shady Negro !!FIKs9rk6k0M Wed 17 Mar 2010 02:06:22 No.4709719 Report
->>4709697
->>>Katina nearly kicks a SLIDING DOOR OFF OF ITS HINGES
-Anonymous Wed 17 Mar 2010 02:07:22 No.4709722 Report
-Quoted By: >>4709726
->>4709685
-Going by how much this Katina scares him, i bet Tetsuya is really glad the other one isn't on his ship.
-Anonymous Wed 17 Mar 2010 02:08:22 No.4709726 Report
-Quoted By: >>4709739
->>4709722
-Oh right, we haven't had Katina meet Katina yet.
-
-That would be an encounter for the ages.
-Goddamn Sandwitches Wed 17 Mar 2010 02:10:22 No.4709732 Report
-Quoted By: >>4709751
-... Do the Roar's know about this whole thing with the Einst?
-Haken Browning !zHe7DH816A Wed 17 Mar 2010 02:12:22 No.4709739 Report
-Quoted By: >>4709759
->>4709726
-I'd been wondering what OG!Katina's been doing since...Episode 3, was it?
-Sciencegar Sciencebolt Wed 17 Mar 2010 02:16:22 No.4709750 Report
-"When the Cracks started appearing in our world, we really didn't know what to do. We could tell it was some kind of dimensional effect, and that there were space-time distortions similar to the summoning of Dark Brain, so we knew who was responsible, but that was it. There wasn't a whole lot we could do with the technology at hand. Then, out of nowhere, the XN Giest appeared in low earth orbit, and Lefina managed to recover it before it burned up. She took it to Gilliam. He was reluctant, but he found out what has happening and how. Originally, he was going to take it alone to your world, and...well, I'm not sure he was planning to come back. But Ratsel and Sanger convinced him, and the rest of us agreed, that after what happened with Ring, we had to do it properly."
+"When the Cracks started appearing in our world, we really didn't know what to do. We could tell it was some kind of dimensional effect, and that there were space-time distortions similar to the summoning of Dark Brain, so we knew who was responsible, but that was it. There wasn't a whole lot we could do with the technology at hand. Then, out of nowhere, the XN Giest appeared in low earth orbit, and Lefina managed to recover it before it burned up. She took it to Gilliam. He was reluctant, but he found out what has happening and how. Originally, he was going to take it alone to your world, and... well, I'm not sure he was planning to come back. But Ratsel and Sanger convinced him, and the rest of us agreed, that after what happened with Ring, we had to do it properly."
 
 "So you all jumped to our world to attack us and take the Zweizergain."
 
-"Not exactly...Things went wrong quickly. We originally had planned to arrive well before when we did, possibly even to Gilliams own past as Helios Olympos, and convince him to stop the creation of the Lygeios and Acquies before it became an issue. Then we would deal with Duminass, and return. But, once we approached your world, we crossed too close to the time-stream we were trying to stop. The Zweizergains signal drew us in and we hit the Shadow Mirror fleet head-on. We would have been lost in the void if Gilliam hadn't forced us to materialise then and there."
-Anonymous Wed 17 Mar 2010 02:16:22 No.4709751 Report
->>4709732
-They will NOW.
-Anonymous Wed 17 Mar 2010 02:16:22 No.4709752 Report
-Quoted By: >>4709755
-Does anyone else fear people will start getting annoyed about Katina because of these threads?
-Anonymous Wed 17 Mar 2010 02:17:22 No.4709755 Report
->>4709752
-Why would they?
-Sciencegar Sciencebolt Wed 17 Mar 2010 02:18:22 No.4709759 Report
-Quoted By: >>4709766
->>4709739
+"Not exactly... Things went wrong quickly. We originally had planned to arrive well before when we did, possibly even to Gilliams own past as Helios Olympos, and convince him to stop the creation of the Lygeios and Acquies before it became an issue. Then we would deal with Duminass, and return. But, once we approached your world, we crossed too close to the time-stream we were trying to stop. The Zweizergains signal drew us in and we hit the Shadow Mirror fleet head-on. We would have been lost in the void if Gilliam hadn't forced us to materialise then and there."
 
-She was assigned to the Hiryu Kai with Russel and Kai. They've been chasing Lalia and the XLR crew through Canada and Siberia, for lack of anything much else to do.
-Zeta Zaku Wed 17 Mar 2010 02:20:22 No.4709766 Report
-Quoted By: >>4709774
->>4709759
-Oh lovely. Let's hope that the Illusion of Serenity's stealth systems are as good as advertised, lest we end up with Katina vs. SchoolKatina '10.
-Anonymous Wed 17 Mar 2010 02:23:22 No.4709774 Report
->>4709766
-Why would we NOT want that?
-Sciencegar Sciencebolt Wed 17 Mar 2010 02:25:22 No.4709780 Report
-Quoted By: >>4709790 >>4709797 >>4709799 >>4709811
 "After that, we tried to salvage the plan by talking to your EFA for assistance finding the Zweizergain. We'd expected them to be hard to deal with, based on what Lamia knew, but literally five minutes after our first transmission, they started using their jamming satellites and assembling their fleet for attack. We had no idea they'd be this hostile. We soon found ourselves with no allies bar Ryuune and maybe your ship, and half the planet was out to kill us for no reason we could determine. We're not unused to tough times, but this, this was a bit much..."
 
 "I'm been like that for months and you don't see me bitching about it!"
 
-"Yeah, well...I'm trying to explain how off the Plan things had gotten. Even with Gilliam, who knew this universe, we weren't getting anywhere. Literally the only things going right for us were what you were finding. So when we discovered about the First and Only...We didn't think we could do anything about it without screwing everything up even worse."
+"Yeah, well... I'm trying to explain how off the Plan things had gotten. Even with Gilliam, who knew this universe, we weren't getting anywhere. Literally the only things going right for us were what you were finding. So when we discovered about the First and Only... We didn't think we could do anything about it without screwing everything up even worse."
 
 "And that's your excuse? Being afraid of things going wrong?"
 
-"Well given our track record so far! Katina, we're responsible for the deaths of HUNDREDS, Shadow Mirrors and EFA pilots that have basically impaled themselves on our weapons because of a glitch in our travel data! That...that doesn't sit easy with us. We've managed, in one week, to set in motion the collapse of the entire resistance movement of your world, and put your EFA on the brink of a civil war! Thousands could die because of this! We're...afraid, that if we keep this up, we'll just make things worse."
-Anonymous Wed 17 Mar 2010 02:27:22 No.4709790 Report
->>4709780
-At least since the OG people interfered there might be a way to prevent the Einst from winning. We might even be able to prevent wholesale slaughter.
-Anonymous Wed 17 Mar 2010 02:32:22 No.4709797 Report
-Quoted By: >>4709817
->>4709780
+"Well given our track record so far! Katina, we're responsible for the deaths of HUNDREDS, Shadow Mirrors and EFA pilots that have basically impaled themselves on our weapons because of a glitch in our travel data! That... that doesn't sit easy with us. We've managed, in one week, to set in motion the collapse of the entire resistance movement of your world, and put your EFA on the brink of a civil war! Thousands could die because of this! We're... afraid, that if we keep this up, we'll just make things worse."
 
-And you prevent the entire Human race from being used a breeding tools. You saved billions from horrid tentacle rape (and cut off the potential re-vitalisation of the SM porn industry).
-Anonymous Wed 17 Mar 2010 02:32:22 No.4709799 Report
-Quoted By: >>4709808
->>4709780
-Compared to what, the shit that would have likely happened in the SM!Universe had things occured as they originally did? Hell, they could have saved many, many more lives than they indirectly ended - or did they not consider that?
-These OG-ers are so self-centered. Also angsty.
-Anonymous Wed 17 Mar 2010 02:34:22 No.4709808 Report
-Quoted By: >>4709820
->>4709799
-Not self centered so much as had the shit scared out of them so badly that they aren't thinking straight.
-Anonymous Wed 17 Mar 2010 02:36:22 No.4709811 Report
-Quoted By: >>4709814
->>4709780
-Point out to Tetsuya that according to Gilliam, if they hadn't come our entire dimension would have been annihilated. So hell, things are actually looking pretty up at this point in comparison.
-Anonymous Wed 17 Mar 2010 02:36:22 No.4709813 Report
-Quoted By: >>4709818
->Not self centered so much as had the shit scared out of them so badly that they want to stop giving their all to be general do-gooders.
-
-I need to fine a RoarIsDissapoint.jpg really badly.
-Stealthyboy !fchRKomfls Wed 17 Mar 2010 02:36:22 No.4709814 Report
->>4709811
-Exactly.
-Haken Browning !zHe7DH816A Wed 17 Mar 2010 02:37:22 No.4709817 Report
-Quoted By: >>4709828
->>4709797
->You saved billions from horrid tentacle rape (and cut off the potential re-vitalisation of the SM porn industry).
-
-Hey hey, I'll have you know that my plans hinge entirely on Gentle Tentacle Loving. Horrid Tentacle Rape is as much a wrench in MY works as it is in yours.
-Anonymous Wed 17 Mar 2010 02:37:22 No.4709818 Report
->>4709813
->find a
-
-self-fix
-Anonymous Wed 17 Mar 2010 02:37:22 No.4709820 Report
->>4709808
-Also, point out that many if not all, in fact possibly MORE, of those people would have died when they got to OG!verse if the Irregulars HADN'T interfered, and the SM!verse STILL would be screwed by the Einst.
-Anonymous Wed 17 Mar 2010 02:39:22 No.4709828 Report
-Quoted By: >>4709842 >>4709866
->>4709817
-
-I'm sure their would be a few stories of "love can bloom then suddenly tentacles but this is ok" just by and large I think most would not go willingly.
-Anonymous Wed 17 Mar 2010 02:45:22 No.4709842 Report
-Quoted By: >>4709866
->>4709828
-Nah, really?
-Haken Browning !zHe7DH816A Wed 17 Mar 2010 02:52:22 No.4709866 Report
->>4709828
->>4709842
-Well, there IS that "they haven't been softened up by psychic coercion on a scale only SM!Yukiko could pull off" thing...
-Goddamn Sandwitches Wed 17 Mar 2010 02:53:22 No.4709871 Report
-Quoted By: >>4709886 >>4709894
-Wait a sec guys... isn't Yukiko going to be hunting the Irregulars right now because they didn't join with her?
-Anonymous Wed 17 Mar 2010 02:56:22 No.4709886 Report
->>4709871
-Oh fuck.
-Anonymous Wed 17 Mar 2010 02:56:22 No.4709890 Report
->>4709881
-This needs to happen. This SO needs to happen.
-Anonymous Wed 17 Mar 2010 02:57:22 No.4709894 Report
->>4709871
-That just leaves us open to the possibility of OG SRX team crushing SM SRX team in a moment of awesome which will probably follow shortly after OG Ryuusei gets off on the idea of a double-SRX teamup or something.
-Sciencegar Sciencebolt Wed 17 Mar 2010 02:57:22 No.4709895 Report
-Quoted By: >>4709902 >>4709905 >>4709908 >>4709909
 "...But you saved us all."
 
 Tetsuya is unprepared for the sudden moe-face. "Uh, whu?"
 
-"I heard from Dumi that our universe would have been destroyed by the Shards just the same as yours. Your coming here and changing time, it saved us from Dark Brain too. And you got the First and Only to show their true colors. Now everyone is working against them, and people are spreading the world about them....The civil war you've set in motion, I hate to sound like Vindel, but it could be what this world needs."
+"I heard from Dumi that our universe would have been destroyed by the Shards just the same as yours. Your coming here and changing time, it saved us from Dark Brain too. And you got the First and Only to show their true colors. Now everyone is working against them, and people are spreading the world about them... The civil war you've set in motion, I hate to sound like Vindel, but it could be what this world needs."
 
 Tetsuya looks stunned. "Er, well, I hadn't thought of it that way..."
 
-"Mr Andale...We're not mad at you. Well, I'm not anyway. I...I understand what its like to have everything you plan turn to ash in your hands, I know how heart-breaking it can be. But, you don't have to worry about this. This thing you've started, we can turn it around. You can go home with a clear conscience, and we can solve the problems of this world. We just need this one thing from you..."
+"Mr Andale... We're not mad at you. Well, I'm not anyway. I... I understand what its like to have everything you plan turn to ash in your hands, I know how heart-breaking it can be. But, you don't have to worry about this. This thing you've started, we can turn it around. You can go home with a clear conscience, and we can solve the problems of this world. We just need this one thing from you..."
 
-"Th...The Zweizergain, right?"
+"Th... The Zweizergain, right?"
 
-"Please, Mr Overday, this one thing is the one missing piece of the puzzle. Once we can get from the New World to this one, we can finally have a safe place to regroup, to get ourselves sorted out, and to turn this whole mess around. If you can just convince Gilliam of that, we'll be able to save the world...not as well as you did, but enough to matter."
+"Please, Mr Overday, this one thing is the one missing piece of the puzzle. Once we can get from the New World to this one, we can finally have a safe place to regroup, to get ourselves sorted out, and to turn this whole mess around. If you can just convince Gilliam of that, we'll be able to save the world... not as well as you did, but enough to matter."
 
-"Erm....Well...I'll have to-"
+"Erm... Well... I'll have to-"
 
 Loud blaring sirens go off as Tetsuyas comm panel lights up.
 
 "MOTHERFUCKING ALARMS!! WHY ALWAYS AT THE IMPORTANT MOMENTS!??!"
-Haken Browning !zHe7DH816A Wed 17 Mar 2010 02:59:22 No.4709902 Report
-Quoted By: >>4709916
->>4709895
-Because otherwise there wouldn't be mission, Mr. On-Tape-Delay.
-Goddamn Sandwitches Wed 17 Mar 2010 03:00:22 No.4709905 Report
->>4709895
-...
 
-This is the Second Time in the last 20 minutes that I can say I have "CALLED IT."
-
-GET TO THE R-BLADE ASAP.
-
-PREPARE FOR BATTLE WITH YUKIKO!
-Anonymous Wed 17 Mar 2010 03:00:22 No.4709908 Report
->>4709895
-It's the SM!SRX team, isn't it?
-
-Ah well, we know who'd win in a R-1 vs. Alteisen R fight.
-Anonymous Wed 17 Mar 2010 03:01:22 No.4709909 Report
->>4709895
-We need to go kill shit so we can get back to sex. I mean diplomacy. Hm, sex sounds more fun though. Such a dilemma - lets just go kill shit and work it out later.
-Goddamn Sandwitches Wed 17 Mar 2010 03:01:22 No.4709915 Report
-IT IS TIME FOR US TO GO OUT THERE AND SHOW THE IRREGULARS THAT WE ARE NOT FUCKING VILLAINS!
-
-IT"S HERO TIME!
-Anonymous Wed 17 Mar 2010 03:01:22 No.4709916 Report
-Quoted By: >>4709925
->>4709902
-I assumed this was Katina talking. Tetsuya didn't seem to be in quite the right mindset to swear.
-Stealthyboy !fchRKomfls Wed 17 Mar 2010 03:03:22 No.4709925 Report
-Quoted By: >>4709936
->>4709916
-But Tetsuya being surprised by alarms is a running joke.
-Anonymous Wed 17 Mar 2010 03:04:22 No.4709936 Report
->>4709925
-Oh right. Sorry, I have more experience with Lefina.
-Sciencegar Sciencebolt Wed 17 Mar 2010 03:10:22 No.4709965 Report
-Quoted By: >>4709977 >>4709980 >>4710000
 Dumi helpfully tunes your earpiece into the Kuroganes bridge as you run to the Hangar to pick up your R-Blade.
 
 "Eita, report!"
@@ -245,102 +76,21 @@ Dumi helpfully tunes your earpiece into the Kuroganes bridge as you run to the H
 
 "By who?"
 
-"The enemy teleported in with a distinct space-time signature...It appears to be the Aerogaters, sir!"
+"The enemy teleported in with a distinct space-time signature... It appears to be the Aerogaters, sir!"
 
-"What?? But thats...They're not supposed to be in this dimension, are they?"
+"What?? But thats... They're not supposed to be in this dimension, are they?"
 
-The voices fade out as you reach the Hangar, and Dumi's voice reasserts itself. Ah yes...We never did tell them about the Balmarians in much detail, did we? Probably to prevent them overreacting like this. It seems they've met the Neviim forces before.
+The voices fade out as you reach the Hangar, and Dumi's voice reasserts itself. *Ah yes... We never did tell them about the Balmarians in much detail, did we? Probably to prevent them overreacting like this. It seems they've met the Neviim forces before.*
 
 "But what the hell are they doing attacking a random city? Why would they do anything to the Earth? They said they were going to work with us to make the Earth friendly to Aliens, how does this help them?"
 
-I don't think we have the full picture here, Katina. We won't know until we get there, I suspect.
-Goddamn Sandwitches Wed 17 Mar 2010 03:12:22 No.4709977 Report
-Quoted By: >>4709983
->>4709965
-So... Bet is gonna turn on us when?
-Anonymous Wed 17 Mar 2010 03:13:22 No.4709980 Report
-Quoted By: >>4709986 >>4709993 >>4710001
->>4709965
-Our Katina is gonna be going where their Katina is?
-Oh Hell Yes.
-Goddamn Sandwitches Wed 17 Mar 2010 03:13:22 No.4709983 Report
->>4709977
-Shit, wait a sec, what if this is a Ambush!
-Anonymous Wed 17 Mar 2010 03:13:22 No.4709985 Report
-Pime Taradox time?
-GUNDAMU !0smG1gQz9c Wed 17 Mar 2010 03:14:22 No.4709986 Report
-Quoted By: >>4709999
->>4709980
-This can either end in hilairous hijinks and "My own clone?" or, it will end in a horrible bloody mess.
+*I don't think we have the full picture here, Katina. We won't know until we get there, I suspect.*
 
-...Maybe both at once.
-View SameGoogleiqdbSauceNAO Hotblooded Kamille.jpg, 52KiB, 420x330
-Stealthyboy !fchRKomfls Wed 17 Mar 2010 03:15:22 No.4709993 Report
-Quoted By: >>4710005
->>4709980
->Our Katina is gonna be going where their Katina is?
+---
 
-There will be awesome.
-Also selfcest.
-Anonymous Wed 17 Mar 2010 03:15:22 No.4709999 Report
-Quoted By: >>4710013
->>4709986
-Wait, where's OG Arado at the moment? He'd so freak if he were flanked on both sides by Katina.
-Trivia Dopant Wed 17 Mar 2010 03:15:22 No.4710000 Report
->>4709965
-Wait...I know this is an RP clusterfuck, but Aerogaters fucking up MY hometown?! Those wannabe jews are going down...
-NuBlackAnon !!z6ldXGL61Wm Wed 17 Mar 2010 03:16:22 No.4710001 Report
->>4709980
-image_black_meets__rx.jpg
-View SameGoogleiqdbSauceNAO 4776831.jpg, 835KiB, 1600x1600
-Anonymous Wed 17 Mar 2010 03:17:22 No.4710004 Report
-As long as things don't end up quite like this
-Anonymous Wed 17 Mar 2010 03:17:22 No.4710005 Report
-Quoted By: >>4710049
->>4709993
-Wait, wait, it could be worse. There could be identity swapping involved.
-Anonymous Wed 17 Mar 2010 03:18:22 No.4710011 Report
-Let's remember to tell the Irregulars about the different faction that we know after the battle is over.
-Sciencegar Sciencebolt Wed 17 Mar 2010 03:18:22 No.4710013 Report
-Quoted By: >>4710044 >>4710411
->>4709999
+Ryusei blinks at the cloud of enemies surrounding the city. "They look like Bugs, but they're more... fish-shaped."
 
-Fortunately for OG Arado, he's in the Meditteranean right now.
-Goddamn Sandwitches Wed 17 Mar 2010 03:25:22 No.4710041 Report
-Now that I'm actualyl thinking about it... Is it really a good idea to get involved in this?
-
-As far as the other factions know we are MIA/Gone correct? It might be a good idea to go in this with our comms limited to our allies only so that no one outside of them knows we are here.
-Anonymous Wed 17 Mar 2010 03:26:22 No.4710044 Report
->>4710013
-Well damn. At least SM Arado is around to comment on it being just like twins.
-Anonymous Wed 17 Mar 2010 03:27:22 No.4710049 Report
-Quoted By: >>4710067
->>4710005
-SWAPPING PLACES WOULD BE A POTENTIALLY AWESOME IDEA!
-
-
-Also, god dammit that godhand edit needs a complete redo sometime soon. Maybe once we get our new mechs or something.
-Anonymous Wed 17 Mar 2010 03:31:22 No.4710067 Report
->>4710049
-If one of the panels does not make mention of the great tentacle sex plot, i will be greatly disappointed.
-Anonymous Wed 17 Mar 2010 03:31:22 No.4710069 Report
-Quoted By: >>4710080
-We put Deadrado in the R-Blade then sneak into the Kurogane's hanger:
-
-Sneak oboard G-Thundergate
-adviceDesu.jpg
-Molest Sleigh
-Goddamn Sandwitches Wed 17 Mar 2010 03:35:22 No.4710080 Report
->>4710069
-I agree with the Deadrado in R-Blade part actually... The other part, not so much.
-Anonymous Wed 17 Mar 2010 03:39:22 No.4710092 Report
-Quoted By: >>4710108
-I vote for running in without a plan and fucking everything up. Has worked so far!
-Sciencegar Sciencebolt Wed 17 Mar 2010 03:40:22 No.4710096 Report
-Quoted By: >>4710104 >>4710112 >>4710145
-Ryusei blinks at the cloud of enemies surrounding the city. "They look like Bugs, but they're more...fish-shaped."
-
-Viletta floats up beside the R-series mechs, the Boxer Frame flexing its massive fists. "They certainly look like Aerogater technology...And they're using the same MO, they appear to be capturing people. We don't have time to waste, let's move people!!"
+Viletta floats up beside the R-series mechs, the Boxer Frame flexing its massive fists. "They certainly look like Aerogater technology... And they're using the same MO, they appear to be capturing people. We don't have time to waste, let's move people!!"
 
 The SRX team blast off into the fight, with the Angelg flying after. Kai warms up his Tesla Drive and eases his Gespenst up into the air. "We're gonna be late for the fight, people! Get the lead out!"
 
@@ -351,121 +101,16 @@ Katina gives her partner a dirty look over the comm window. "Don't give me lip, 
 "Lt., I don't think we're meant to split away from the others..."
 
 "You're not being paid to think, Russel! Now either get moving or get out of my way!"
-Zeta Zaku Wed 17 Mar 2010 03:42:22 No.4710104 Report
->>4710096
->Katina and Russel in Gespenst Kais
 
-WELL IT'S ABOUT DAMN TIME.
-Anonymous Wed 17 Mar 2010 03:42:22 No.4710108 Report
->>4710092
+---
 
-This
-Anonymous Wed 17 Mar 2010 03:43:22 No.4710112 Report
-Quoted By: >>4710127
->>4710096
-
-So should we assume Katina has the dual Plasma Stake option while Russel has the F2W Cannon?
-Stealthyboy !fchRKomfls Wed 17 Mar 2010 03:47:22 No.4710127 Report
-Quoted By: >>4710144 >>4710155 >>4710156
->>4710112
-I thought the double stake version was only made for Kai's custom.
-Sciencegar Sciencebolt Wed 17 Mar 2010 03:50:22 No.4710144 Report
->>4710127
-
-This, Katina and Russel are in standard Gespent Customs with F2Ws. She's managed to stash her trusty Shotgun on a rear hardpoint though.
-Anonymous Wed 17 Mar 2010 03:50:22 No.4710145 Report
->>4710096
->You're not being paid to think, Russel!
-With the hazard pay he must be getting for working with Katina, does he really need to be?
-Zeta Zaku Wed 17 Mar 2010 03:51:22 No.4710155 Report
->>4710127
-Kai's dialogue says that the delivery of his and the Cry Wolves' Gespenst Mk IIs came with a spare Plasma Buckler, which he stuck on his own. At the very least, the forearms are modular, so someone could probably go into battle with no stakes at all. Why they would ever want to is beyond me, but hey.
-Anonymous Wed 17 Mar 2010 03:51:22 No.4710156 Report
-Quoted By: >>4710170
->>4710127
-F2W doesn't really fit Katina now does it.....so what other options do we have besides double stakes, and besides who says they can't make another Gespy Kai with double stakes.
-Zeta Zaku Wed 17 Mar 2010 03:55:22 No.4710170 Report
-Quoted By: >>4710173 >>4710180
->>4710156
-Well, she did have a great Range stat in OG1, at least. Odds are she's actually pretty good at shooting, she just prefers beating the hell out of the enemy because it's more fun.
-
-...this might explain her preference for the shotgun. Best of both worlds.
-Anonymous Wed 17 Mar 2010 03:56:22 No.4710173 Report
->>4710170
-That makes a lot of sense
-Stealthyboy !fchRKomfls Wed 17 Mar 2010 03:58:22 No.4710180 Report
-Quoted By: >>4710193
->>4710170
-I'm sure I'm having deja vu, haven't we discussed this kind of thing in an earlier thread? Sciencegar said that Katina's an assault pilot, not specifically a melee one.
-Anonymous Wed 17 Mar 2010 04:00:22 No.4710193 Report
-Quoted By: >>4710197
->>4710180
-i was under the impression that her scramble gather incarnation implied a sniper background in her pre-pilot days.
-Stealthyboy !fchRKomfls Wed 17 Mar 2010 04:01:22 No.4710197 Report
-Quoted By: >>4710207 >>4710218
->>4710193
-I really can't imagine Katina as a sniper.
-Anonymous Wed 17 Mar 2010 04:03:22 No.4710203 Report
-Was kinda hoping for Katina's custom Valkyrlion
-Anonymous Wed 17 Mar 2010 04:04:22 No.4710207 Report
-Quoted By: >>4710217 >>4710225 >>4710240
->>4710197
-Maybe she had some kind of horrible trauma which put her off it. Like, uh, having a squad ripped apart while she was too far away to help or something.
-Anonymous Wed 17 Mar 2010 04:05:22 No.4710217 Report
-Quoted By: >>4710235 >>4710268
->>4710207
-Weren't both her and Russel piloting those planes when we first see them in OG1?
-Anonymous Wed 17 Mar 2010 04:06:22 No.4710218 Report
->>4710197
-Me either, her mech mounting some kind of super awesome shotgun really seems more in character, and it's not really something you see very often.
-Stealthyboy !fchRKomfls Wed 17 Mar 2010 04:06:22 No.4710225 Report
-Quoted By: >>4710250
->>4710207
-Which then caused her to do stupid things like run off far too in front of her allies in an underpowered Gespenst Mk II M and get shot down?
-NO I'M NOT FUCKING BITTER AT ALL
-Anonymous Wed 17 Mar 2010 04:07:22 No.4710235 Report
->>4710217
-You're lucky i didn't say 'a sniper killed her parents' or something equally stupid. But the sniper i would imagine to have occured before she got into piloting at all - so predating OG by a bit.
-Kusuha Mizuha !!I9FEAGkTIsZ Wed 17 Mar 2010 04:08:22 No.4710240 Report
-Quoted By: >>4710258
->>4710207
-
-Like every other female original character over 22?
-
-(Also hi, I'm not in this thread, just making a comment about Selena, Calvina, Xine, technically Sleigh, Aqua I think...)
-Anonymous Wed 17 Mar 2010 04:09:22 No.4710250 Report
-Quoted By: >>4710268
->>4710225
-It would explain a sudden shift to being close up, where she'd never be too far away to help ever again.
-Anonymous Wed 17 Mar 2010 04:10:22 No.4710258 Report
->>4710240
-Well, if you want an alternate explanation - unless her heterochromia is natural it would have resulted from head/eye trauma (hell, even a replacement eye i guess) that sort of thing would kind of exempt her from being a sniper again.
-Stealthyboy !fchRKomfls Wed 17 Mar 2010 04:12:22 No.4710268 Report
-Quoted By: >>4710300
->>4710250
-No, instead she's far too far ahead.
-But
->>4710217
-is right, they were in Messers at the start of OG1.
-
-Besides, Katina really doesn't have the personality to be a sniper anyway. Too rash and impulsive.
-Anonymous Wed 17 Mar 2010 04:18:22 No.4710300 Report
-Quoted By: >>4710314
->>4710268
-Well, she is now yeah but hey, with enough trauma she could have been anything. A pity she'll probably never get any offical background anytime soon.
-Stealthyboy !fchRKomfls Wed 17 Mar 2010 04:20:22 No.4710314 Report
-Quoted By: >>4710336
->>4710300
-Her official background is that she's a test pilot.
-Sciencegar Sciencebolt Wed 17 Mar 2010 04:21:22 No.4710324 Report
-Quoted By: >>4710343
 You wait patiently as the Irregulars arrange themselves on the Kuroganes catapults and launch platforms first, leaving you as part of the second wave. "Dumi, link the comm to Bet Barshem, as secure as you can make it. We need to hear her side to this."
 
-I've already talked to her. She claims she knows nothing of this, and is talking to her superiors to try to get clarification. Her vital signs indicate she's being truthful, but its possible she's been kept in the dark on this.
+*I've already talked to her. She claims she knows nothing of this, and is talking to her superiors to try to get clarification. Her vital signs indicate she's being truthful, but its possible she's been kept in the dark on this.*
 
-"Yeah, maybe...But I still don't see what the Balmarians would gain from just attacking a place like this."
+"Yeah, maybe... But I still don't see what the Balmarians would gain from just attacking a place like this."
 
-I can't think of much either, expect perhaps...people.
+*I can't think of much either, expect perhaps... people.*
 
 "What, you mean like they did with Tytti and Kar-Wai? Brainwash them into their soldiers? Why would they do that now?"
 
