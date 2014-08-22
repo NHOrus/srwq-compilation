@@ -320,4 +320,4 @@ Touma Kanou crosses his arms and frowns over his faceplate. "Duminass 7, do you 
 
 Touma raises his fist in front of him. "Thats not true, Duminass. If someone has a heart filled with Justice, their purpose will be noble, they will be incorruptible!"
 
-...I guess I have a lot more to learn, then.
+*...I guess I have a lot more to learn, then.*

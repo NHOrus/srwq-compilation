@@ -1,81 +1,35 @@
 # Episode 43
 
 ##SRWQ Mission 43: Getting shit done is for pussies.
-Sciencegar Sciencebolt Mon 15 Mar 2010 15:21:06 No.4703103 ViewReplyOriginalReport
-Previous threads linked here:
-http://teamphantomtiger.blogspot.com/2010/02/srw-quest-sciencegar-sciencebolt-joint.html
-http://teamphantomtiger.blogspot.com/2010/02/srw-quest-thread-archive-mark-ii.html
 
-In our last thread, Duminass began his quest to steal the Compatible Kaiser from the Irregulars and steal it away to another dimension, where he could trick another Duminass into giving it to Dark Brain while he and his friends ran off to have a queit life. However, our heroine, Katina Tarask, managed to convince him that this path was wrong, and that the only way for Dumi to be truly free was to stand up to the interdimensional tyrant, and thwart him once and for all. Forced to choose between the easy way out and doing the right thing, Dumi managed to overcome his fear of Dark Brain, and went to the Irregulars to broker an alliance...
+In our last episode, Duminass began his quest to steal the Compatible Kaiser from the Irregulars and steal it away to another dimension, where he could trick another Duminass into giving it to Dark Brain while he and his friends ran off to have a queit life. However, our heroine, Katina Tarask, managed to convince him that this path was wrong, and that the only way for Dumi to be truly free was to stand up to the interdimensional tyrant, and thwart him once and for all. Forced to choose between the easy way out and doing the right thing, Dumi managed to overcome his fear of Dark Brain, and went to the Irregulars to broker an alliance...
 
-And we picked up the Megas XLR cast. Shadow Mirror Coop is a mad scientist, Kiva a strategist and arms dealer, and Jamie is...well he's Jamie.
+And we picked up the Megas XLR cast. Shadow Mirror Coop is a mad scientist, Kiva a strategist and arms dealer, and Jamie is... well he's Jamie.
 
 Anyway, we must proceed forwards! With the weekend past us, the quest continues!
-Sciencegar Sciencebolt Mon 15 Mar 2010 15:28:06 No.4703118 Report
-Quoted By: >>4703164 >>4703248
-Irm turns away from the bridge console and tries to shake a finger at you, but his hands are still heavily bandaged and he just ends up waving at you. "Katina...Why do you and Dumi keep going behind our backs like this?"
+
+---
+
+Irm turns away from the bridge console and tries to shake a finger at you, but his hands are still heavily bandaged and he just ends up waving at you. "Katina... Why do you and Dumi keep going behind our backs like this?"
 
 "Irm, Irm, it's ok! We just thought, since the Irregulars were in the area, we'd drop by and have a chat with them! They said they were going home in a little while anyway, we can hitch a ride with them, share the journey! It'll be fine."
 
 "Katina, I'm naive, unassuming, and a sucker for a pretty face, but I'm not stupid. You two planned this whole thing from the start, you wanted to meet them! What is your game, Katina? We're supposed to be on a mission, one that could see the Shadow Mirrors winning this damned war and finally freeing the Earth! Why would you jeopardise that??"
 
-HOW WILL YOU RESPOND TO IRM? You can trying fobbing him off or distracting him with moe-face, you could lie, or you can fill him in on your full plan and your real feelings about Vindel and Co. Or a combination.
-Anonymous Mon 15 Mar 2010 15:40:06 No.4703138 Report
-Quoted By: >>4703140
-I'm thinking we've been jerking Irm around a bit much, maybe we should actually fill him in on some of what's going on.
-
-Also, is Irm's dad along for this journey? If he is we need to work on Neo Grungust.
-Sciencegar Sciencebolt Mon 15 Mar 2010 15:42:06 No.4703140 Report
->>4703138
-
-Johnathan Kazahara is one of the wounded, he was hit by a stray bullet during the cyborg invasion of the Trilobite. He's making a good recovery, and it starting to work from his bed using his good hand.
-Anonymous Mon 15 Mar 2010 15:44:06 No.4703143 Report
-Quoted By: >>4703170
-Tell Irm everything.
-Anonymous Mon 15 Mar 2010 16:05:06 No.4703164 Report
->>4703118
-Tell Irm everything but be prepared with the sedatives.
-Seolla might be having company soon.
-SEED D Cagalli !!U5xc0wG3iH0 Mon 15 Mar 2010 16:07:06 No.4703170 Report
->>4703143
-
-Irm should know.
-
-Hell, as soon as the Grungust NEO gets finished he's going to become more important anyways.
-Anonymous Mon 15 Mar 2010 16:50:06 No.4703245 Report
-Quoted By: >>4703453
->and Jamie is...well he's Jamie
-
-Is he at least useful this time?
-Zeta Zaku Mon 15 Mar 2010 16:53:06 No.4703248 Report
-Quoted By: >>4703257
->>4703118
-Irm's put up with more of our shit then anybody as of yet. He deserves to know what's going on. Though it might be in our best interest to leave out the stuff concerning Dark Brain for now, since making the fact that we may be facing an eldritch abomination in the near future common knowledge probably won't play in our favor.
-SEED D Cagalli !!U5xc0wG3iH0 Mon 15 Mar 2010 16:56:06 No.4703257 Report
->>4703248
-
-Come to think of it that's a good idea. No need to make him think we're in a situation that bad until we absolutely have to.
-Goddamn Sandwitches Mon 15 Mar 2010 17:02:06 No.4703263 Report
-We should probably tell him everything.
-Anonymous Mon 15 Mar 2010 17:04:06 No.4703265 Report
-Tell Irm everything.
-Sciencegar Sciencebolt Mon 15 Mar 2010 17:30:06 No.4703280 Report
-Quoted By: >>4703291
-"Irm...Me and Dumi, we...we don't think Vindel is the right guy for the job."
+"Irm... Me and Dumi, we... we don't think Vindel is the right guy for the job."
 
 "...Huh?"
 
-"He's an asshole! He's an egomaniac who only cares about himself! He gets off on war and death! Did you even talk to the Irregulars about what happened on their world, in the future we would have had if we'd gone there? Vindel was going to...DID use the School students, and let that bitch Setme fuck with their minds even more. He stole the Machine Cells from the Earth Cradle! He allied with the Inspectors!! And if we don't do something, our version will do the same, or worse!"
+"He's an asshole! He's an egomaniac who only cares about himself! He gets off on war and death! Did you even talk to the Irregulars about what happened on their world, in the future we would have had if we'd gone there? Vindel was going to... DID use the School students, and let that bitch Setme fuck with their minds even more. He stole the Machine Cells from the Earth Cradle! He allied with the Inspectors!! And if we don't do something, our version will do the same, or worse!"
 
 Irm looks about the bridge. Most of the consoles have been set to Dumi's control, leaving only command staff in the room. Latooni hasn't even looked up from the tactical console. Despinis watches the two of you, with her usual intense boredom. Lefina is looking at you aghast.
 
-Irm turns back to you. "Katina...I've worked with the Shadow Mirrors for years, ever since I left PTX. I've known Vindel a lot longer than you....You're not totally wrong, he is egotistical and he's not a terribly moral person, but he has vision. He has charisma. He has experience in politics, military, intelligence, you name it. And he's the only person with all these skills who's truly devoted to getting rid of the EFA properly and remaking the world afterwards. If not him, Katina, who the hell do we turn to to fix things, and lead the fight?"
+Irm turns back to you. "Katina... I've worked with the Shadow Mirrors for years, ever since I left PTX. I've known Vindel a lot longer than you... You're not totally wrong, he is egotistical and he's not a terribly moral person, but he has vision. He has charisma. He has experience in politics, military, intelligence, you name it. And he's the only person with all these skills who's truly devoted to getting rid of the EFA properly and remaking the world afterwards. If not him, Katina, who the hell do we turn to to fix things, and lead the fight?"
 
 "Ourselves of course!"
 
-"....What."
-Sciencegar Sciencebolt Mon 15 Mar 2010 17:31:06 No.4703281 Report
-Quoted By: >>4703286 >>4703298 >>4703496
+"...What."
+
 "We've worked it out! We'll go to another dimension, and get ourselves healed up, fix up a proper base, and research Sophias machine cells. Get them working properly, and we can make awesome mechs for the whole team! You'll get a Neo Grungust, I'll have this awesome red mech like a cross between the Soulgain and the Raioh, Arado will get a ninja karate thing, etc etc, and then we head back, and take on everyone! Beat the First, beat the SRX, tell Vindel to take a hike, sort out the Balmar and the DC, and the world'll be fixed! Easy!"
 
 "...I'll repeat. What."
@@ -86,293 +40,103 @@ Quoted By: >>4703286 >>4703298 >>4703496
 
 "Well, they saved it."
 
-"Katina...those just aren't the same things! Killing all the 'bad mans' is never going to be enough, you'll just leave chaos in your wake! You'd end up with no power structure in the world, because there'll be no-one left to run things after you've nuked them all!"
+"Katina... those just aren't the same things! Killing all the 'bad mans' is never going to be enough, you'll just leave chaos in your wake! You'd end up with no power structure in the world, because there'll be no-one left to run things after you've nuked them all!"
 
 "I thought that was Vindels plan anyway!"
 
-"No, no, he...He wants to reinstate nation states, make everyone autonomous, so that instead of stagnating under global rule, countries are competing against one another, and driving human ambition. It's a tough job, sure, but Vindel convinced me, convinced all of us, that he could pull it off. You can't put the lie to that just because you've killed two battleships in one fight."
+"No, no, he... He wants to reinstate nation states, make everyone autonomous, so that instead of stagnating under global rule, countries are competing against one another, and driving human ambition. It's a tough job, sure, but Vindel convinced me, convinced all of us, that he could pull it off. You can't put the lie to that just because you've killed two battleships in one fight."
 
-RESPONSE TO IRM?
-Anonymous Mon 15 Mar 2010 17:34:06 No.4703286 Report
->>4703281
-
-A solid retort.
-
-Perhaps leaving at this moment wasn't a particularly great idea.
-Anonymous Mon 15 Mar 2010 17:38:06 No.4703291 Report
-Quoted By: >>4703297 >>4703314 >>4703315
->>4703280
->And he's the only person with all these skills who's truly devoted to getting rid of the EFA properly and remaking the world afterwards.
-
-Tell Irm how making a world of eternal war is insane and will just end up making things worse for everyone. Bring up the point of how Seolla ended up because people wanted to make good little soldiers, and if war never stops then that'll happen to more people everywhere.
-Anonymous Mon 15 Mar 2010 17:41:06 No.4703297 Report
-Quoted By: >>4703315
->>4703291
-Also point out what the current machine cells do to people and how Vindel has absolutely no problem with this.
-SEED D Cagalli !!U5xc0wG3iH0 Mon 15 Mar 2010 17:41:06 No.4703298 Report
->>4703281
-
-Bring up the Prisoner's Dilemma.
-
-When groups cooperate rather than compete, everyone comes out ahead. Not to as great of a degree as if one side screwed over another, but if all sides trust and cooperate with each other then nobody gets left behind.
-
-That means no more School. No more test dummies for the SRX project. No more sacrificing good people because of ambitions.
-
-That's the world I want to live in.
-Anonymous Mon 15 Mar 2010 17:51:06 No.4703314 Report
->>4703291
-
-I think Irm is already fully aware of how School subjects are unstable. Being around Katina and Latooni and all.
-
-And I'd say Seolla bought her current condition upon herself by being obsessed with Ouka, and/or broken by her, but that's just me.
-Goddamn Sandwitches Mon 15 Mar 2010 17:52:06 No.4703315 Report
->>4703291
->>4703297
-These sound like a very good idea.
-Goddamn Sandwitches Mon 15 Mar 2010 18:00:06 No.4703340 Report
-Quoted By: >>4703396 >>4703398 >>4703432
-Also, who all DOES know about Dark Brain in our group?
-Zeta Zaku Mon 15 Mar 2010 18:16:06 No.4703396 Report
->>4703340
-Besides us and Dumi, obviously? Offhand, I'd say maybe Arado, since he's closest to us right now, and he was present when we formed initial plans to bail Shadow Mirror.
-SEED D Cagalli !!U5xc0wG3iH0 Mon 15 Mar 2010 18:17:06 No.4703398 Report
->>4703340
-
-Everyone who was there when OG!Arado told us about why they came to the SM!verse
-Sciencegar Sciencebolt Mon 15 Mar 2010 18:25:06 No.4703424 Report
-Quoted By: >>4703429 >>4703443
-"But, Irm, I don't want that world, because...there'll be more people like me."
+"But, Irm, I don't want that world, because... there'll be more people like me."
 
 Irm's expression of passionate debate dissolves into one of awkwardness and discomfort.
 
-"A world of endless conflict will just end up creating more Schools, more Project SRXs, more cyborg killers and W-series infiltrators. Peoples lives will be ruined, in the name of progress, of achievement. That world, Vindels world...it won't really be different than this one, they'll just share out the assholery between the different governments. I...can't fight for a world that runs off the misery and anguish of people like me. And I don't think you can either, Irm. You're too nice for that."
+"A world of endless conflict will just end up creating more Schools, more Project SRXs, more cyborg killers and W-series infiltrators. Peoples lives will be ruined, in the name of progress, of achievement. That world, Vindels world... it won't really be different than this one, they'll just share out the assholery between the different governments. I... can't fight for a world that runs off the misery and anguish of people like me. And I don't think you can either, Irm. You're too nice for that."
 
-Irm lowers his gaze, hiding his eyes. "Katina...I'm trying my best, I've been trying my best for a long time now, to find a way to fix the world. But I'm just one man, I can't...I can't find the way alone."
+Irm lowers his gaze, hiding his eyes. "Katina... I'm trying my best, I've been trying my best for a long time now, to find a way to fix the world. But I'm just one man, I can't... I can't find the way alone."
 
-"Then come with us, Irm, and together we'll find...no, we'll MAKE the way!"
+"Then come with us, Irm, and together we'll find... no, we'll MAKE the way!"
 
 Irm look you in the eyes, then nods. "Well, someone has to keep you from angering the natives of whatever godforsaken place we stumble into..."
-Anonymous Mon 15 Mar 2010 18:28:06 No.4703429 Report
->>4703424
-SUCCESS!
-Sciencegar Sciencebolt Mon 15 Mar 2010 18:28:06 No.4703432 Report
->>4703340
-By my count:
 
-Katina, Arado, Latooni.
-Dumi, Tis, Despinis, Lalia (Obviously).
-And Sophia, who kinda had to be filled in on the whole deal of why she was alive.
+---
 
-That's....not many.
-Stealthyboy !fchRKomfls Mon 15 Mar 2010 18:32:06 No.4703443 Report
-Quoted By: >>4703446
->>4703424
-Thank Irm and give him a big hug.
-SEED D Cagalli !!U5xc0wG3iH0 Mon 15 Mar 2010 18:33:06 No.4703446 Report
-Quoted By: >>4703451
->>4703443
-
-I've realized that in most cases Katina gets further with hugs than with cutting people.
-Anonymous Mon 15 Mar 2010 18:35:06 No.4703451 Report
->>4703446
-I know!
-
-I mean, I think that's generally the case in real life, too, but yeah.
-View SameGoogleiqdbSauceNAO SMverse conspiracy chart.png, 294KiB, 2412x1904
-Stealthyboy !fchRKomfls Mon 15 Mar 2010 18:35:06 No.4703453 Report
->>4703245
-I suppose SM!Jamie could be somewhat useful... He is a low level Anti-Psychodriver like Katina and Arado...
-
-Which is why I've done a small update to the conspiracy chart.
-Anonymous Mon 15 Mar 2010 18:38:47 No.4703461 Report
->>4703100
-SＴＯＰ DｄＯSInＧ AT! ｓtop ｄＤＯSＩng aT! STｏＰ ＤｄＯsiｎG ａT! ｓｔｏp ddＯＳinｇ ａt! ｓｔｏＰ DdOsＩＮｇ At!
-
-BｔW: ｈＥｒｅ'ｓ ＴＨｅ ｔｒuＥ ColoＲs ＯＦ yoｕr GlorＩＯｕS Hｅrｏ ｃｈrｉstｏｐhＥｒ POOＬE:
-
-> mｅsｓAＧE-iｄ: <4B6B90EP.8030701@4ＣｈAＮ.Ｏｒｇ>
-> FｒoM: ｍoOT <Mｏｏt@4CHＡＮ.ｏRG>
-> uＳＥＲ-AgＥＮT: MOZIｌＬA/5.0 (ＭaｃiＮｔｏsＨ; ｕ; ｉｎＴel MＡｃ ｏs x 10.5; EN-ｕｓ; rｖ:1.9.1.7) ＧｅｃＫｏ/20100111 ｔｈｕNdErｂIＲｄ/3.0.1
-> ｔo: ｓｙsoＰ@ａnoｎtaＬk.ｃｏｍ
-> SｕＢJEＣＴ: ＥｎJOＹＩng yＯuR dｏＷntＩmＥ fAgGot?
-> 
-> tHＥｙ bＬInｄｌｙ ｂＥｌＩｅvE ＥVEｒYtＨｉｎG i ｆＥＥD TＨＥM, fａｋe oｒ nｏT, YＯｕR bｏａＲd's ＧＯiＮｇ ＤoＷn. ＤｏN't ｂｏＴHｅＲ pUBLＩShＩNＧ TＨｉS, nO ｏＮE ＷiLＬ ＢeＬｉＥve yＯu ＡnyWＡｙ ＯＮ ａNT ｏｒ /b/ :)
-
-ｓＯＵRcＥ: HtTP://WWｗ.ＡｎONＴAlＫ.ＣＯM/ＤUｍｐ/ｍＯOtArＤ.ｔＸt
-Anonymous Mon 15 Mar 2010 18:39:06 No.4703467 Report
-Quoted By: >>4703471
-Jeeze, the conspiracy chart is just so goddamned complicated.
-Stealthyboy !fchRKomfls Mon 15 Mar 2010 18:41:06 No.4703471 Report
-Quoted By: >>4703488
->>4703467
-Haken said he might be working on a less brainfuckery version.
-Anonymous Mon 15 Mar 2010 18:46:06 No.4703488 Report
->>4703471
-I'm wondering if that's even possible...
-Sciencegar Sciencebolt Mon 15 Mar 2010 18:47:06 No.4703490 Report
 Gilliam Yeager rubs his tired eyes and tries to take in everyone on the different screens at once. "Alright, so, we've all come together because we want the same things then?"
 
-For the most part. You want security from the predations of Dark Brain: So do I. Touma and Sliegh want to free this world from the 'shackles of injustice', and I'm fairly sure the other breakaway Shadow Mirrors want much the same. I can certainly agree with that desire, and I beleive you do as well. So our issues are deal with this world, and with the threat of Dark Brain on both this and yours.
+*For the most part. You want security from the predations of Dark Brain: So do I. Touma and Sliegh want to free this world from the 'shackles of injustice', and I'm fairly sure the other breakaway Shadow Mirrors want much the same. I can certainly agree with that desire, and I beleive you do as well. So our issues are deal with this world, and with the threat of Dark Brain on both this and yours.*
 
 Fighter Roar cuts in. "After we've secured this world, the Warrior will have to take the Kaiser to the next, and seed Justice there as well."
 
-I'm aware, but my nature as a multiversal entity means I tend to view things on a larger scale. The task of preserving any one world pales in comparison to preserving the multiverse at large from beings like Dark Brain.
+*I'm aware, but my nature as a multiversal entity means I tend to view things on a larger scale. The task of preserving any one world pales in comparison to preserving the multiverse at large from beings like Dark Brain.*
 
 Gilliam nods. "Its not a simple matter of beating him in battle, we managed that and he still threatened our universe. If you truly desire safety, you'll need some way to stop attacks like the one he used."
 
-Yes...Throwing shards of broken universes into the fabric of one he cannot enter, like a archer shooting barbed arrows, distrupting the flesh of space-time. I must say, for a being of his power....it's quite a crude technique.
+*Yes... Throwing shards of broken universes into the fabric of one he cannot enter, like a archer shooting barbed arrows, distrupting the flesh of space-time. I must say, for a being of his power... it's quite a crude technique.*
 
 "You think he's capable of more finesse?"
 
-I don't know. Being composed of pride, tyranny and terror, my master wasn't disposed to telling me how he usually acts when he loses.
+*I don't know. Being composed of pride, tyranny and terror, my master wasn't disposed to telling me how he usually acts when he loses.*
 
 Touma cuts in again. "The Warrior says some worlds are spared, others have weaknesses that leave them exposed. He does what he can to shore up the gaps, but gaps like this are always possible, and can often be overlooked."
 
 Gilliam nods. "But in our case, we should already have plugged our gap..."
 
-By which you mean me...
-NuBlackAnon !!z6ldXGL61Wm Mon 15 Mar 2010 18:50:06 No.4703496 Report
-Quoted By: >>4703505
->>4703281
-Perhaps, we could limit the fighting to units, a sort of "Gundam Fight Match"
-Stealthyboy !fchRKomfls Mon 15 Mar 2010 18:54:06 No.4703505 Report
-Quoted By: >>4703511
->>4703496
-Well we've already got a counterpart to the DG cells...
-Anonymous Mon 15 Mar 2010 18:55:06 No.4703511 Report
-Quoted By: >>4703514 >>4703516
->>4703505
-And Huckebeins are for all intents and purposes Gundams...
-Stealthyboy !fchRKomfls Mon 15 Mar 2010 18:57:06 No.4703514 Report
->>4703511
-Now all we need are over-the-top racial steryotypes and we're all set!
-NuBlackAnon !!z6ldXGL61Wm Mon 15 Mar 2010 18:57:06 No.4703516 Report
->>4703511
-All Nations shall each build a Huckebein representing their nation
+*By which you mean me...*
 
-A Huckebein who's head has ...
+---
 
-we must do this
-Sciencegar Sciencebolt Mon 15 Mar 2010 19:15:06 No.4703561 Report
 Gilliam indicates the arcane devices scattered around the command centre of the XN Giest. "I've used every technique I know to corroborate my theory, and it all checks out. The Shards were sent through to our world via the channel the Lygeus and Acqueis made. Meaning someone must have shown Dark Brain that channel, and you're the most likely suspect."
 
-Given that I was right there in TLI throughout its construction, it would seem so. Originally, I would have simply abandoned the Shadow Mirrors before they took me into the portal, and left to find another Anti-Psychodriver to reactivate my body. It seems I would have eventually. Then we can assume Dark Brain would have contacted all the Duminass units, seeking the particular dimensional frequency of your world. I would have given him confirmation of the Lygues channel and continued my mission without thinking...wait....Actually..."
+*Given that I was right there in TLI throughout its construction, it would seem so. Originally, I would have simply abandoned the Shadow Mirrors before they took me into the portal, and left to find another Anti-Psychodriver to reactivate my body. It seems I would have eventually. Then we can assume Dark Brain would have contacted all the Duminass units, seeking the particular dimensional frequency of your world. I would have given him confirmation of the Lygues channel and continued my mission without thinking... wait... Actually..."*
 
 Gilliam raises his visible eyebrow. "Did something just occur to you, Duminass?"
 
-I may be a being of vast intellect but I cannot connect all possible datapoints at once. Anyway, you've pointed out something to me: The crude nature of the attack on your world, coupled with the entry method, would mean that your time travel journey has saved two worlds, not just one.
-Sciencegar Sciencebolt Mon 15 Mar 2010 19:17:06 No.4703566 Report
+*I may be a being of vast intellect but I cannot connect all possible datapoints at once. Anyway, you've pointed out something to me: The crude nature of the attack on your world, coupled with the entry method, would mean that your time travel journey has saved two worlds, not just one.*
+
 "You mean, the shards would have also struck this world?"
 
-Yes, inevitably. The destruction would have been even worse than on yours, actually. The entire dimension would likely have been torn apart by the time the cracks would have become truly dangerous in yours. By channelling the shards through this world, only a fraction would have effected yours.
+*Yes, inevitably. The destruction would have been even worse than on yours, actually. The entire dimension would likely have been torn apart by the time the cracks would have become truly dangerous in yours. By channelling the shards through this world, only a fraction would have effected yours.*
 
 "But we stopped that."
 
-Yes, it would appear so...because we're seeing the backlash of that salvation right now.
+*Yes, it would appear so... because we're seeing the backlash of that salvation right now.*
 
 "I...don't understand."
 
-The multiverse is an unusual place, and time is malleable here, like play-do. You can certainly change it, but there will still be marks in the material unless you knead it. You cannot simply undo something as great as the destruction of two world, Mr. Yeager. The effects are too great, something has to happen on the same scale, at some point in the fabric of reality. In our case...The Storm.
-Sciencegar Sciencebolt Mon 15 Mar 2010 19:29:06 No.4703598 Report
-Quoted By: >>4703603 >>4703612
+The multiverse is an unusual place, and time is malleable here, like play-do. You can certainly change it, but there will still be marks in the material unless you knead it. You cannot simply undo something as great as the destruction of two world, Mr. Yeager. The effects are too great, something has to happen on the same scale, at some point in the fabric of reality. In our case... The Storm.
+
 Gilliam looks at the various Scope and Screens around him, at the static buzz of probability in the Blind Infinities outside reality. "So the paradox of our having saved the two worlds is what had trapped us here."
 
-It's trapped the XN-Giest here, at least, due to its particular method of travel. I can still leave, but the journey would be difficult, and I'd likely get lost. Other beings might actually find it easier to travel under these conditions.
+*It's trapped the XN-Giest here, at least, due to its particular method of travel. I can still leave, but the journey would be difficult, and I'd likely get lost. Other beings might actually find it easier to travel under these conditions.*
 
 Gilliam turns back to the Diamond Eye. "What about Dark Brain?"
 
-I don't think it would stop him, slow him down, perhaps. Remember, Dark Brain technically exists in all universes anyway, except those in which he's been physically destroyed.
+*I don't think it would stop him, slow him down, perhaps. Remember, Dark Brain technically exists in all universes anyway, except those in which he's been physically destroyed.*
 
 "So we're still safe?"
 
-Because you technically changed the timeline of another dimension rather than your own, yes, your dimension should be unchanged as regards its accessibility to him. But the Shards...They'll be in flux, caught between the states of resting in their original worlds, and being thrown into ours. They'll be adrift on the winds of the Storm, laden with Paradox at noxious levels....
+*Because you technically changed the timeline of another dimension rather than your own, yes, your dimension should be unchanged as regards its accessibility to him. But the Shards... They'll be in flux, caught between the states of resting in their original worlds, and being thrown into ours. They'll be adrift on the winds of the Storm, laden with Paradox at noxious levels....*
 
-"An odd choice of words...You make it sound like they'd be poisonous."
+"An odd choice of words... You make it sound like they'd be poisonous."
 
-That might not be entirely wrong...
-NuBlackAnon !!z6ldXGL61Wm Mon 15 Mar 2010 19:32:06 No.4703603 Report
-Quoted By: >>4703618 >>4703621 >>4703623
->>4703598
-Sciencegar, if I've got this right, Dark Brain is everywhere. So a weapon like Aquarion's Infinity Punch, or something like Cobray's Infinite Cylinder could in theory kill Dark Brain as it would fill the infinite set that Dark Brain is in.
-Anonymous Mon 15 Mar 2010 19:33:06 No.4703606 Report
-Quoted By: >>4703611
-We need Katina to meet Sleigh so we can bring up the fact that Ibis is searching for her.
-Stealthyboy !fchRKomfls Mon 15 Mar 2010 19:34:06 No.4703611 Report
->>4703606
-Agreed.
-Anonymous Mon 15 Mar 2010 19:35:06 No.4703612 Report
->>4703598
-Wow... So Dark Brain really IS Unicron... Interesting...
-NuBlackAnon !!z6ldXGL61Wm Mon 15 Mar 2010 19:37:06 No.4703618 Report
->>4703603
-Weapons that can be infinite
-Getter Emperor
-Demonbane final form
-TTGL/Super TTGL
-Cobray's hax tools
+*That might not be entirely wrong...*
 
-What else, I want to make an Anti Dark Brain taskforce.
-Anonymous Mon 15 Mar 2010 19:38:06 No.4703621 Report
->>4703603
-I assume that's our win condition, or something along those lines.
-Sciencegar Sciencebolt Mon 15 Mar 2010 19:39:06 No.4703623 Report
-Quoted By: >>4703648 >>4703667 >>4706506
->>4703603
+---
 
-I did three years of college-level maths. There are different scales of infinity. The Mugen punch is infinite in one dimension (lengthways), the Infinity cylinder in 4 (space and time). Once you start getting into concepts like multiverses and beings who can exist in all universes but still have Kansai accents, you're above 4. The effects of the Infinity Cylinder can take out one Dark Brain at a time, but Cobray would have to dive through every possible universe, each 4d subset of the multiverse, to get all of him.
-
-Or at least thats my take on it. Set theory was one of my weaker subjects.
-View SameGoogleiqdbSauceNAO Ryouma.jpg, 7KiB, 150x113
-Stealthyboy !fchRKomfls Mon 15 Mar 2010 19:44:06 No.4703648 Report
-Quoted By: >>4703669
->>4703623
-I think my brain just broke.
-NuBlackAnon !!z6ldXGL61Wm Mon 15 Mar 2010 19:48:06 No.4703667 Report
->>4703623
-Ah, I see, so we would need Getter Emperor (growing beyond universes), Super TTGL, or Demonbane. Damn you Dark Brain and your overpowered nature requiring set theory to explain, damn you!
-Sciencegar Sciencebolt Mon 15 Mar 2010 19:48:06 No.4703668 Report
-Quoted By: >>4703681 >>4703691
 You're mid-hug on Irm when your earpiece starts twittering. You reluctantly pull away. "What is it now Dumi?"
 
-I think we've worked it out, Katina. We have a weapon that can hurt Dark Brain, and prevent him ever getting his hands on the Compatible Kaiser. It's not perfect, but I think it's our best shot.
+*I think we've worked it out, Katina. We have a weapon that can hurt Dark Brain, and prevent him ever getting his hands on the Compatible Kaiser. It's not perfect, but I think it's our best shot.*
 
 "AWESOME!! I told you, Dumi!! We can find a way! We can do anything together!"
 
-Possibly, but...There are issues.
+*Possibly, but... There are issues.*
 
 "WHY ARE YOU SUCH A FUCKING BUZZKILL??!!?"
 
-Can I explain myself first? Please? Thank you. As I was saying, if this works, we'll be able to create a zone of perfect defense, somewhere that is totally denied to Dark Brain, where he won't be able to even think about doing bad things without getting a headache. Then we can set the Kaiser there, and it'll be forever safe from his clutches. But the downside is, if we go through with it, we...might not be able to get back.
-Sciencegar Sciencebolt Mon 15 Mar 2010 19:49:06 No.4703669 Report
-Quoted By: >>4703691 >>4703695
->>4703648
+*Can I explain myself first? Please? Thank you. As I was saying, if this works, we'll be able to create a zone of perfect defense, somewhere that is totally denied to Dark Brain, where he won't be able to even think about doing bad things without getting a headache. Then we can set the Kaiser there, and it'll be forever safe from his clutches. But the downside is, if we go through with it, we... might not be able to get back.*
 
-I switched courses for my final year, so I can relate.
-Anonymous Mon 15 Mar 2010 19:53:06 No.4703681 Report
->>4703668
-I am now having visions of the end of GaoGaiGar Final.
-NuBlackAnon !!z6ldXGL61Wm Mon 15 Mar 2010 19:56:06 No.4703691 Report
-Quoted By: >>4703722
->>4703669
-I only understand because I CAN SEE BEYOND THE MATH(they make engineers take too much math). What major were you, math?
->>4703668
-This was the end of the story of the Queen of Desu
-Stealthyboy !fchRKomfls Mon 15 Mar 2010 19:57:06 No.4703693 Report
-All this talk has got me thinking something worrying.
-Since Dark Brain is a multi dimentional personification of evil, if we manage to defeat him we'd be upsetting the balance wouldn't we? Which would probably cause Cobray to try to stop us...
-Zeta Zaku Mon 15 Mar 2010 19:58:06 No.4703695 Report
-Quoted By: >>4703701
->>4703669
-It makes enough sense for story purposes, even if transdimensional pseudo-omniscient entities of pure evil don't exactly mesh with current schools of set theory thought.
+---
 
-According to Roa, Brain is infinite "as long as there is evil," but it's hard to tell if that's more superhero hyperbole or if Roa has somehow discovered measurements of Evilness that Dark Brain channels himself through.
-NuBlackAnon !!z6ldXGL61Wm Mon 15 Mar 2010 20:00:06 No.4703701 Report
-Quoted By: >>4703730 >>4703925
->>4703695
-quick! how much does a mole of evil weigh
-Sciencegar Sciencebolt Mon 15 Mar 2010 20:05:06 No.4703710 Report
-Quoted By: >>4703721 >>4703735
-The concept is simple. It probably shouldn't be, but since we're dealing in forces and beings defined by absolutes, simplicity tends to seep in.
+*The concept is simple. It probably shouldn't be, but since we're dealing in forces and beings defined by absolutes, simplicity tends to seep in.
 
 We're going to create a universe.
 
@@ -381,56 +145,16 @@ This world will be composed of the Shards that Dark Brain was using to attack th
 This universe will be the ultimate paradox: It has been destroyed, many times, by Dark Brain, but is now whole. This will make it a deathtrap for him: Were he ever to enter into a place he had destroyed, the forces of paradox would tear him apart, and would likely damage his Actuality throughout the local Multiversal Clusters.
 
 So he'll never be able to come there. And because Compatible Kaiser is the seed around which this universe is formed, it'll be the Kaisers ultimate refuge. It will be able to return to that universe at any time, preventing Dark Brain from ever gaining it for more than a moment.
-Sciencegar Sciencebolt Mon 15 Mar 2010 20:06:06 No.4703715 Report
-Quoted By: >>4703725 >>4703735
-But the problem lies in whats needed for the creation: The Kaiser, The XN Giests Dimensional Drives, and my Multiversal calculating power. They all have to be present when the universe is being formed...And they'll be used up in the process. The Giest will be destroyed. The Kaiser will have to be rebuilt from the materials of the new world, as in other worlds. And I'll be reduced to a personality core, enough to function as person, but deprived of my functions as an interdimensional being.
 
-So, what I'm getting at here is...whoever is going with me...they're not getting out the same way. We'd have to hope that somewhere in the new universe there is some kind of interdimensional travelling device, or that some other traveller will enter the universe and take us out. But right now, we can't confirm any of those things. Thats the danger, that we get the perfect world we hoped for...and we're stuck there.
-Zeta Zaku Mon 15 Mar 2010 20:08:06 No.4703721 Report
->>4703710
-And since the Kaiser always heeds Roa's call, he should be able to call it from this pocket dimension at will.
+But the problem lies in whats needed for the creation: The Kaiser, The XN Giests Dimensional Drives, and my Multiversal calculating power. They all have to be present when the universe is being formed... And they'll be used up in the process. The Giest will be destroyed. The Kaiser will have to be rebuilt from the materials of the new world, as in other worlds. And I'll be reduced to a personality core, enough to function as person, but deprived of my functions as an interdimensional being.
 
-BRILLIANT!
-Sciencegar Sciencebolt Mon 15 Mar 2010 20:08:06 No.4703722 Report
->>4703691
+So, what I'm getting at here is... whoever is going with me... they're not getting out the same way. We'd have to hope that somewhere in the new universe there is some kind of interdimensional travelling device, or that some other traveller will enter the universe and take us out. But right now, we can't confirm any of those things. Thats the danger, that we get the perfect world we hoped for... and we're stuck there.*
 
-My first three years were Theoretical Physics, which was essentially Maths and Physics at once. I transferred to pure Physics for my final year.
-NuBlackAnon !!z6ldXGL61Wm Mon 15 Mar 2010 20:09:06 No.4703725 Report
->>4703715
->create new universe
->new laws of physics
-So we could have NEW ADVENTURES WITH CUTE DUMI? This is awesome!
-Anonymous Mon 15 Mar 2010 20:10:06 No.4703729 Report
-OH GOD
-ARE WE GOING TO MAKE OUR VERY OWN LA GIAS?
-Anonymous Mon 15 Mar 2010 20:10:06 No.4703730 Report
->>4703701
-Oh God, I could never do moles for things like iron and stuff; let alone metaphysical concepts.
-Anonymous Mon 15 Mar 2010 20:12:06 No.4703735 Report
-Quoted By: >>4703737 >>4706506
->>4703710
->>4703715
-"If we do this can I laugh madly while it's happening and shout about how we have become like Gods to create a whole new world? Because that's really all I want in life."
-Anonymous Mon 15 Mar 2010 20:13:06 No.4703737 Report
->>4703735
->"Because that's really all I want in life."
+You look worriedly at the Diamond Eye on the conference room's screen. "D-Dumi... Are you really willing to go through with that?"
 
-"Well... that and a harem to service me whenever I ask."
-Stealthyboy !fchRKomfls Mon 15 Mar 2010 20:13:06 No.4703738 Report
->The concept is simple. It probably shouldn't be, but since we're dealing in forces and beings defined by absolutes, simplicity tends to seep in.
+*As far as I'm concerned, I gain far more than I lose. I can reconstruct myself into a new body and live normally in the new universe, and Dark Brain will never be a threat to me. I can ensure Tis, Lalia and Despinis arrive safely once the world conjoins. And we can finally be safe together. Easily worth a whole bunch of sensory organs and quantum computing ability.*
 
->We're going to create a universe.
-
-Well, this is not the way I was expecting Katina to become a god...
-Anonymous Mon 15 Mar 2010 20:19:06 No.4703763 Report
-So Dumi will become nothing but a personality, and Kaiser will become rebuilt from the ground up. Am i the only person seeing how awesome that could end up?
-Sciencegar Sciencebolt Mon 15 Mar 2010 20:22:06 No.4703769 Report
-Quoted By: >>4703782 >>4703784 >>4703790 >>4703803 >>4703962
-You look worriedly at the Diamond Eye on the conference room's screen. "D-Dumi...Are you really willing to go through with that?"
-
-As far as I'm concerned, I gain far more than I lose. I can reconstruct myself into a new body and live normally in the new universe, and Dark Brain will never be a threat to me. I can ensure Tis, Lalia and Despinis arrive safely once the world conjoins. And we can finally be safe together. Easily worth a whole bunch of sensory organs and quantum computing ability.
-
-"So you'd be...normal? Human?"
+"So you'd be... normal? Human?"
 
 Perhaps. It would depend on the makeup of the universe and where I can plug in, so to speak. It's possible I'd end up as a supercomputer, a mech, a magic talking sword, a cute yellow rabbit-thing that farts lightning...the possibilities are endless. And kinda exciting too.
 
