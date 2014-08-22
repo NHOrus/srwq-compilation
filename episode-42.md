@@ -1,29 +1,14 @@
 # Episode 42
 
 ##SRWQ Mission 42: Life, the Multiverse, and RAEP
-Sciencegar Sciencebolt Fri 12 Mar 2010 00:16:59 No.4684877 ViewReplyOriginalReport
-Quoted By: >>4684887 >>4684892
-Previous threads linked here:
-http://teamphantomtiger.blogspot.com/2010/02/srw-quest-sciencegar-sciencebolt-joint.html
-http://teamphantomtiger.blogspot.com/2010/02/srw-quest-thread-archive-mark-ii.html
 
-In our last thread, through an epic set of hoodwinks, secret capturings, and some obvious natural 20s, our heroine, Katina Tarask, managed to get herself and most of her friends away from the clutches of Vindel Mauser, and began her epic journey to another dimension. Unbeknownst to her, one of her 'friends' used the oppurtunity to escalate the conflict on Earth, by allowing the Balmarians, allied with the Council of the First and Only, to attack the Shadow Mirrors, allied with Project SRX and the scheming Yukiko Date.
+In our last episode, through an epic set of hoodwinks, secret capturings, and some obvious natural 20s, our heroine, Katina Tarask, managed to get herself and most of her friends away from the clutches of Vindel Mauser, and began her epic journey to another dimension. Unbeknownst to her, one of her 'friends' used the oppurtunity to escalate the conflict on Earth, by allowing the Balmarians, allied with the Council of the First and Only, to attack the Shadow Mirrors, allied with Project SRX and the scheming Yukiko Date.
 
 How will our heroine fare on her journey? Will she make it to the Endless Frontier, and glimpse infinity itself? And what will become of those left behind?
-View SameGoogleiqdbSauceNAO DO WANT-Dere.png, 49KiB, 272x281
-Haken Browning !zHe7DH816A Fri 12 Mar 2010 00:18:59 No.4684886 Report
-OH GOD THAT PIC
-View SameGoogleiqdbSauceNAO 1245540604859.jpg, 19KiB, 300x289
-Nameless Grunt Fri 12 Mar 2010 00:18:59 No.4684887 Report
->>4684877
-I approve this image.
-View SameGoogleiqdbSauceNAO 1265672724125.jpg, 579KiB, 640x2436
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 00:19:59 No.4684892 Report
->>4684877
->That image
-Sciencegar Sciencebolt Fri 12 Mar 2010 00:25:59 No.4684917 Report
-Quoted By: >>4684928 >>4684929 >>4684930 >>4684931 >>4684932 >>4684935 >>4684943
-Irm grumbles as he scratches at his cast. "Dumi...Where are we going?"
+
+---
+
+Irm grumbles as he scratches at his cast. "Dumi... Where are we going?"
 
 North, Irm.
 
@@ -31,352 +16,38 @@ North, Irm.
 
 Then why ask the question?
 
-"No...You...Ok, we teleported to America to drop off Mrs Fonda, to the southern islands of Japan to drop off Ms Kobayashi, and to India to drop off Ms Byran. Now that we're done with that...Shouldn't we be going to another dimension, like we said we'd do?"
+"No... You... Ok, we teleported to America to drop off Mrs Fonda, to the southern islands of Japan to drop off Ms Kobayashi, and to India to drop off Ms Byran. Now that we're done with that... Shouldn't we be going to another dimension, like we said we'd do?"
 
-The teleportations have taxed my transport mechanisms, they will need some time to recharge. And besides, there's someone we need to pick up. Another friend of mine, who I can't leave behind.
+*The teleportations have taxed my transport mechanisms, they will need some time to recharge. And besides, there's someone we need to pick up. Another friend of mine, who I can't leave behind.*
 
 "Who? And would we have room for him?"
 
-He has his own ship, and some assistants that could really help with our research. Oh, and Irm...I have to ask that you keep a little secret for him.
+*He has his own ship, and some assistants that could really help with our research. Oh, and Irm... I have to ask that you keep a little secret for him.*
 
 Irm tries to facepalm, but doesn't have enough working fingers in either hand. "What now, Dumi?"
 
-Nothing much, its just that he's assumed the mantle of the missing Helios Olympus, who as you may have noticed, is one of the Irregulars now. If you could refer to him by that name, that would be super. Thanks!!
+*Nothing much, its just that he's assumed the mantle of the missing Helios Olympus, who as you may have noticed, is one of the Irregulars now. If you could refer to him by that name, that would be super. Thanks!!*
 
 "...Why do we even pretend I'm in command anymore?"
-Nameless Grunt Fri 12 Mar 2010 00:27:59 No.4684928 Report
->>4684917
->"...Why do we even pretend I'm in command anymore?"
-Apparently, to let you hold on to what little sanity you have left, Irm.
-Couch Fri 12 Mar 2010 00:27:59 No.4684929 Report
->>4684917
-Lalia, I presume? Or is this someone else?
 
-Anyone have any idea who it is?
-Haken Browning !zHe7DH816A Fri 12 Mar 2010 00:27:59 No.4684930 Report
->>4684917
->A "him" that Dumi can't leave behind
->Is filling in for Helios/Gilliam
+---
 
-Wait, Shuu already said he'd back out...
-
-YES WE'RE MEETING LALIA
-Zeta Zaku Fri 12 Mar 2010 00:27:59 No.4684931 Report
->>4684917
-Because although everyone else may have more skill, you'll always be better-looking, Irm.
-Anonymous Fri 12 Mar 2010 00:27:59 No.4684932 Report
->>4684917
-Someone using Gilliam's old codename? Interesting...
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 00:28:59 No.4684935 Report
->>4684917
-So Lalia is pretending to be Helios Olympus, eh?
-
-There goes my theory.
-
-And It's good to see Irm's learning his place in things, to sit there and look pretty.
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 00:30:59 No.4684943 Report
-Quoted By: >>4684971
->>4684917
-Also, is it just me, or is Dumi starting to sound more emotional recently?
-
-Case in point:
->If you could refer to him by that name, that would be super. Thanks!!
-GUNDAMU !0smG1gQz9c Fri 12 Mar 2010 00:33:59 No.4684954 Report
-Calling it now, the fake Helios is Bian Zoldark who barely escaped death, and the fact that he wasn't dead was suppressed by the EFA to avoid having the DC remnants unify under him.
-Sciencegar Sciencebolt Fri 12 Mar 2010 00:36:59 No.4684965 Report
-Quoted By: >>4684977 >>4684997 >>4686002
 "Helios Pimple-us, gotcha!"
 
-Theres a little more to this sidetrip than just picking up Lalia, Katina. We also need to get through our issues with the Irregulars once and for all.
+*Theres a little more to this sidetrip than just picking up Lalia, Katina. We also need to get through our issues with the Irregulars once and for all.*
 
 "You never struck me as the vengeful sort, Dumi."
 
-I'm not. The Irregulars can go and have happy lives in homes made of solid gold and have a million babies for all I care. But I need the Compatible Kaiser, and it's onboard the Irregulars main ship. We have to figure out a way of at least getting it to follow us before we leave this world.
+*I'm not. The Irregulars can go and have happy lives in homes made of solid gold and have a million babies for all I care. But I need the Compatible Kaiser, and it's onboard the Irregulars main ship. We have to figure out a way of at least getting it to follow us before we leave this world.*
 
 "What is the deal with this Compy-Kaiser thing anyway? You said it was just a mech!"
 
-Honestly, Katina? I don't know. Dark Brain neglected to mention what he wanted it for. All I know is that it should be a very powerful Super Robot, better than a Grungust and at least a match for the DGG series. Possibly some component of it has dimensional significance, but lacking additional info, I'm forced to grab the whole thing.
+*Honestly, Katina? I don't know. Dark Brain neglected to mention what he wanted it for. All I know is that it should be a very powerful Super Robot, better than a Grungust and at least a match for the DGG series. Possibly some component of it has dimensional significance, but lacking additional info, I'm forced to grab the whole thing.*
 
 "Hmm...With Wodans Thrudgey-chan, we might be able to beat it down, but if all the other Irregulars get involved, we wouldn't have much chance as we are..."
 
-Lalia's arrival may alter things slightly, but he still only has his own mech, which is hardly a gamebreaker. We'll need to ruminate on this before we take any action.
+*Lalia's arrival may alter things slightly, but he still only has his own mech, which is hardly a gamebreaker. We'll need to ruminate on this before we take any action.*
 
-START BRAINSTORMING WHILE I FIGURE OUT EXACTLY WHAT THE DEAL WITH LALIA IS.
-Nameless Grunt Fri 12 Mar 2010 00:38:59 No.4684971 Report
->>4684943
-That, or the person we are going to meet is so wrapped up in the Helios Olympus identity that calling said person by their true name will be very upset.
-
-Like, threaten to shove an Atomic Bazooka up our collective asses upset.
-GUNDAMU !0smG1gQz9c Fri 12 Mar 2010 00:40:59 No.4684977 Report
-Quoted By: >>4684994 >>4685001
->>4684965
-....Huh.
-
-I don't suppose there's any chance Lalia is actually Bian Zoldark, is there?
-
-Anywho, there's an easy way to fix this. All we have to do is, have Arado kill Kouta while he's Fighter Roa. Then, we'll "stumble" into the Kaiser, and with no alternative, Katina becomes the new pilot of Compati-Kaiser.
-
-And then we can pull a gigantic JUST AS PLANNED face when asked what we'll do with it first.
-Zeta Zaku Fri 12 Mar 2010 00:45:59 No.4684994 Report
-Quoted By: >>4685015
->>4684977
-Kaiser is probably linked to the original Roa in some way in that killing Kouta will make it useless. We could still steal it, but nobody would be able to pilot it.
-
-Plus, we'd still have a very mad Emi/Shouko and G-Thundergate to deal with. Our best option is to somehow lure it out somewhere alone and within our jump radius. After that, Thrud should be able to deter anything he can throw on us, provided we don't screw up and end up with G-Compatible Kaiser on our asses.
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 00:46:59 No.4684997 Report
->>4684965
->The Irregulars can go and have happy lives in homes made of solid gold and have a million babies for all I care
-
-Oh yeah, exposure to Katina's definately corrupting his mind.
-DAWWWWWWWW He's trying to be more like her so she'll love him.
-Sciencegar Sciencebolt Fri 12 Mar 2010 00:47:59 No.4685001 Report
-Quoted By: >>4685020
->>4684977
-
-If it makes you feel any better, I really did think about putting Bian Zoldark in somehow, but with the plot the way it was going, I felt he'd just mess up the characterisation I had for ExceLune and VVT. Plus, I had too many mysterious background figures as it was.
-GUNDAMU !0smG1gQz9c Fri 12 Mar 2010 00:47:59 No.4685002 Report
-Quoted By: >>4685015 >>4685016 >>4685024 >>4685071
->>4684987
-Either way, killing Kouta outside of the Kaiser seems like the best option. It saves us the pain of dealing with OVERKAISER SWORD being rammed up our ass.
-
-Also, the more intact it is when we give it to Dark Brain, the better the chance of improving our standing with the evil overlord of the universe! So then, when we become the moon-sized-tentacle-raping-jetzt-overlord, we can have an easier time adding Dark Brain to the harem.
-Anonymous Fri 12 Mar 2010 00:49:59 No.4685008 Report
-I don't like this one bit. Not only do I doubt we can STEAL the Compatible Kaiser, but I think that obtaining it is a bad idea. Ask if Dumi is sure that he/she/it has its priorities straight. Assumedly, the Compatible Kaiser can't be unique or Dark Brain wouldn't have dumped Dumi into this dimension. Surely there must be another one SOMEWHERE.
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 00:49:59 No.4685009 Report
-I've got to say, trying to take on the Compatikaiser with only the Thrud and an R-Blade sounds a bit suicidal... especially if the rest of the OGnumbers get involved.
-BSRaven !!pZhu/eJf6iW Fri 12 Mar 2010 00:50:59 No.4685015 Report
->>4685002
->add Dark Brain to the harem
->add a multi-dimensional evil to our harem
-
-Holyshitthisisawesome.jpg
-
->>4684994
-G-Compatible Kaiser = WE'RE SCREWED, RELOAD THE SAVE STATE, right?
-View SameGoogleiqdbSauceNAO 1264717053903.jpg, 84KiB, 382x314
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 00:50:59 No.4685016 Report
->>4685002
->we can have an easier time adding Dark Brain to the harem
-GUNDAMU !0smG1gQz9c Fri 12 Mar 2010 00:51:59 No.4685020 Report
-Quoted By: >>4685027 >>4685028
->>4685001
-I'm still holding true to my original suggestion way back in one of the earlier threads where Bian managed to escape, and he now lives in a log cabin in the middle of nowhere on top of a secret hangar, where it spends his remaining years doing research with the help of his robot maid.
-
-...Okay, maybe all of that wasn't suggested last time, but Bian totally strikes me as the kind of guy who'd make a robot maid in his spare time.
-View SameGoogleiqdbSauceNAO I ACCIDENTALLY THE WHOLE EINST.jpg, 51KiB, 509x454
-Haken Browning !zHe7DH816A Fri 12 Mar 2010 00:51:59 No.4685024 Report
-Quoted By: >>4685026 >>4685030
->>4685002
->So then, when we become the moon-sized-tentacle-raping-jetzt-overlord, we can have an easier time adding Dark Brain to the harem.
-
-SUDDENLY, APPROPRIATE STOCK IMAGE
-Anonymous Fri 12 Mar 2010 00:52:59 No.4685026 Report
->>4685024
-I dunno if it's my occasional visit to /d/, the freckles, or DAT GRIN...
-
-But I like what I see.
-Haken Browning !zHe7DH816A Fri 12 Mar 2010 00:53:59 No.4685027 Report
->>4685020
->Bian is alive
->living in the middle of nowhere
->robot maid
-
-...ALSO YES. FUCK YOU PETE PAIN, HAPPY CARDIA END.
-BSRaven !!pZhu/eJf6iW Fri 12 Mar 2010 00:53:59 No.4685028 Report
->>4685020
-Holy... Wow, thirded.
-GUNDAMU !0smG1gQz9c Fri 12 Mar 2010 00:53:59 No.4685030 Report
-Quoted By: >>4685042 >>4685044 >>4685071 >>4685118
->>4685024
-I am surprised anybody actually went through the trouble of saving one of my horrible mspaint doodles.
-
-...Now I kind of want to draw tentacle-katina molesting dark brain.
-View SameGoogleiqdbSauceNAO 1268001671291.jpg, 44KiB, 576x432
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 00:56:59 No.4685042 Report
->>4685030
->tentacle-katina molesting dark brain.
-Haken Browning !zHe7DH816A Fri 12 Mar 2010 00:57:59 No.4685044 Report
-Quoted By: >>4685050 >>4685200
->>4685030
-...I've still yet to write Katina molesting Lydia. Gimme a month.
-BSRaven !!pZhu/eJf6iW Fri 12 Mar 2010 00:58:59 No.4685050 Report
-Quoted By: >>4685066 >>4685074 >>4685118
->>4685044
-You could always make it Katina-Lydia-DarkBrain threesome... Somehow.
-GUNDAMU !0smG1gQz9c Fri 12 Mar 2010 01:01:59 No.4685066 Report
-Quoted By: >>4685087 >>4685118
->>4685050
-Katina makes Dark Brain her bitch, and then they descend upon the world to rape Lydia, who then in turn infects the machine cells with her nanomachines and during a massive orgy of evil and tentacles, all three of them fuse together to become Perfect Dark Brain, who then inserts a tentacle into the center of the galaxy.
-
-That's right. We're going to rape the entire galaxy.
-View SameGoogleiqdbSauceNAO 1264827769057.jpg, 19KiB, 704x396
-Nameless Grunt Fri 12 Mar 2010 01:01:59 No.4685071 Report
->>4685030
-Don't know if want.
->>4685002
-Why do I have the feeling Katina would be turned on by that?
-Couch Fri 12 Mar 2010 01:01:59 No.4685073 Report
-Quoted By: >>4685087 >>4685095
-I'm wondering...maybe now we should spring the logic trap we were considering?
-
-http://archive.easymodo.net/cgi-board.pl/m/thread/4639545#p4641136
-
-Under the current priority set, the only way to leave is to either get the Kaiser, which is bad for obvious reasons, or to provoke the Kaiser into following us, which is bad because Kaiser, sword, our ass. The solution is to change the priority set.
-Haken Browning !zHe7DH816A Fri 12 Mar 2010 01:02:59 No.4685074 Report
-Quoted By: >>4685094 >>4685118 >>4685191
->>4685050
-And then Lydia was one of the 12 Keys?
-
-Improbable, but doable. However, must respectfully decline on account of, well, Dark Brain is just a hyper-malevolent interdimensional brain.
-View SameGoogleiqdbSauceNAO 1268008890967.jpg, 59KiB, 292x302
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 01:04:59 No.4685087 Report
->>4685073
-I'm for this.
-
-whereas >>4685066
->fuse together to become Perfect Dark Brain, who then inserts a tentacle into the center of the galaxy.
-BSRaven !!pZhu/eJf6iW Fri 12 Mar 2010 01:05:59 No.4685094 Report
->>4685074
-Was merely throwing the idea out there for ya.
-GUNDAMU !0smG1gQz9c Fri 12 Mar 2010 01:05:59 No.4685095 Report
-Quoted By: >>4685105 >>4685106
->>4685073
-...Huh. That's actually a very plausible idea.
-
-I still kind of want to add Dark Brain to the harem, though.
-BSRaven !!pZhu/eJf6iW Fri 12 Mar 2010 01:07:59 No.4685105 Report
->>4685095
-That comes later.
-
-Probably after we find ourselves infested with True Machine Cells -AND- Einst tentacle rape.
-
-And possibly other stuff.
-
-STILL WANNA EMBRACE YOU ALFIMI!
-View SameGoogleiqdbSauceNAO RmF_WilyEyebrow.gif, 1KiB, 50x50
-SpoilerClick to view
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 01:07:59 No.4685106 Report
-Quoted By: >>4685115
->>4685095
-It's also the first step towards freeing Dumi from his bondage to Dark Brain.
-And then putting him into a different sort of bondage
-BSRaven !!pZhu/eJf6iW Fri 12 Mar 2010 01:08:59 No.4685115 Report
-Quoted By: >>4685127 >>4685175
->>4685106
-Dumi's already going psychodere because of/for us anyway.
-
-So all we gotta do is nuke the MUST OBEY DARK BRAIN deal, then we're good.
-Couch Fri 12 Mar 2010 01:09:59 No.4685118 Report
->>4685030
->>4685050
->>4685066
->>4685074
->Dark Brain
->Anything to do with rule 34
-
-Don't actually want.
-Anonymous Fri 12 Mar 2010 01:09:59 No.4685121 Report
-Quoted By: >>4685137 >>4685145
-I forget...is Shouko with the irregulars?
-Sent Thrud to grab Shouko and the G-Thundergate.
-Say that if Roar and Kaiser hand themselves then no harm will come to Shouko. (AND BY HARM I MEAN HOT RAPE) Give them 1 Hour at most to comply.
-
-But make sure your engines are securely ready to jump the moment you have the Kaiser, if you wait to long they'll do something, heroic.
-Like Dress up one of their men as a girl, or attack from underground.
-
-If they don't comply, make the Jump, since it might be worth a gamble on the Kaiser making a jumping after Shoko if Roar wants it that bad.
-GUNDAMU !0smG1gQz9c Fri 12 Mar 2010 01:09:59 No.4685127 Report
-Quoted By: >>4685131
->>4685115
-This, however, raises the possibility of Dumi going yandere and killing off our carefully constructed Harem so he'll be the only one in our heart.
-Anonymous Fri 12 Mar 2010 01:10:59 No.4685131 Report
->>4685127
-Killing off the harem?
-
-...INEXCUSABLE!
-BSRaven !!pZhu/eJf6iW Fri 12 Mar 2010 01:12:59 No.4685137 Report
->>4685121
->dress up one of their men as a girl
-
-Against KATINA MOTHERFUCKING TARASK, THE THUNDEROUS FURY?
-
-...Probably would work.
-View SameGoogleiqdbSauceNAO Arado in dress.png, 75KiB, 304x259
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 01:12:59 No.4685145 Report
->>4685121
->Like Dress up one of their men as a girl
-Anonymous Fri 12 Mar 2010 01:14:59 No.4685160 Report
-Quoted By: >>4685191
-Harem Dark Brain is the stupidest idea I've ever heard...
-Anonymous Fri 12 Mar 2010 01:16:59 No.4685175 Report
-Quoted By: >>4685275
->>4685115
-Yes, I really think we had better. Stealing the Compatible Kaiser seems like a bad plan.
-Haken Browning !zHe7DH816A Fri 12 Mar 2010 01:18:59 No.4685191 Report
->>4685160
-I've been agreeing long before it was cool: >>4685074
-
-As for our plans to loot the Kaiser, I can't weigh in one way or another on account of I never played OGG or managed to finish Great Battle 4.
-Anonymous Fri 12 Mar 2010 01:20:59 No.4685200 Report
-Quoted By: >>4685224
->>4685044
-Dammit man we need the canon Arado and Katina scene.
-Haken Browning !zHe7DH816A Fri 12 Mar 2010 01:24:59 No.4685224 Report
-Quoted By: >>4685304
->>4685200
-THREE WEEKS. ALL I ASK.
-
-One to wrap up some backlog, another to copypasta the proper lead-in dialogue so I can refer to it on my writing laptop, and the last to write the thing.
-Zeta Zaku Fri 12 Mar 2010 01:32:59 No.4685275 Report
-Quoted By: >>4685330
->>4685175
-I think Dumi's reasoning is that Dark Brain will know if he leaves the dimension, and assume that Dumi's finished his mission. If he comes to check on his creation and find it's picked up a bunch of pets and no Kaiser...well, we'll have one extremely pissed off eldritch abomination to deal with.
-
-Dumi'll probably gladly accept any alternate solutions we can come up with, but given that this is Dark Brain we're talking about, our options are kinda scarce.
-Ratsel Feinschmecker !VFYL66iWMA Fri 12 Mar 2010 01:36:59 No.4685304 Report
->>4685224
->>4685224
-
-Indeed.... we need some more time to develop ze plot. (This all coming from a writerfag).
-Couch Fri 12 Mar 2010 01:42:59 No.4685330 Report
-Quoted By: >>4685349 >>4685358 >>4685374
->>4685275
-Actually...Dark Brain -can't- see where Dumi is, can he? That's the point that was made earlier with our need to get a communicator - even Dark Brain can't see through dimensions easily, especially with the storm.
-Anonymous Fri 12 Mar 2010 01:48:59 No.4685349 Report
-Quoted By: >>4685399
->>4685330
-If Dark Brain was able to keep tabs on Dumi, I'm pretty sure we'd all be dead right now. More to the point, I believe Dumi has to actually SUMMON Dark Brain.
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 01:49:59 No.4685358 Report
-Quoted By: >>4685399
->>4685330
-Precisely. The problem is that obeying Dark Brain is literally programmed into him. He can't willfully perform an action which goes against Dark Brain's orders.
-Zeta Zaku Fri 12 Mar 2010 01:52:59 No.4685374 Report
->>4685330
-True, but Dumi has implied that Dark Brain somehow does know when Dumi jumps between dimensions. It seems like the only reliable way for him to keep track on his servants, since even he can't be everywhere at once and jumping in periodically would be more trouble then it's worth.
-
-Either way, Dumi knows he has to present Dark Brain with -something- sooner or later, unless he wants to put in his two weeks notice early.
-Couch Fri 12 Mar 2010 01:56:59 No.4685399 Report
-Quoted By: >>4685432
->>4685349
->>4685358
-
-Right. Hence the logic trap - changing what Dark Brain's orders mean to Dumi. Once that's done, we'll have bought some time until we can find a way to properly reprogram Dumi.
-
-If that doesn't fully accomplish the goal, and I'm not sure it does, then we plant a bug on the Kaiser so that it can be kept track of, and convince Dumi that since we now know where it is, we can come back and get it once we've got a sufficiently powerful force that securing it becomes trivial.
-Goddamn Sandwitches Fri 12 Mar 2010 02:01:59 No.4685432 Report
-Quoted By: >>4685443
->>4685399
-
-Sounds like a plan to me.
-
-Of course just HOW are we gonna pull off that bug?
-Haken Browning !zHe7DH816A Fri 12 Mar 2010 02:03:59 No.4685443 Report
-Quoted By: >>4685720
->>4685432
-"Dumi, do you ever get that...not so fresh feeling?"
-View SameGoogleiqdbSauceNAO Black Serenity.jpg, 24KiB, 450x313
-Sciencegar Sciencebolt Fri 12 Mar 2010 02:17:59 No.4685494 Report
-Quoted By: >>4685510 >>4685523 >>4685525 >>4685554
 "Can't you, y'know, go to another dimension and get the Compy-Kaiser of that dimension?"
 
 I'm afraid the Compatible Kaiser is a multiplicity point, much in the same fashion as Dark Brain itself. Every universe has a version of it that can exist, but only one can exist at a time...well more accurately, only one exists at any on its own personal timeline, and due to to the Blinovitch Limitation Effect it cannot occur within traversable space-time of itself....There's only one, ok?
@@ -388,22 +59,9 @@ I...It could work, but again, we'd need an interdimensional communication method
 You look out of your porthole and see, waiting in the valley, something that might have been a standard EFA shuttle at one point, but is now almost unrecognisable. The black Stealth Coating and automated AAA turrets look strangely out of place.
 
 You tune into internal comms and here the crackle of the new ships hail. "This is the Illusion of Serenity, Helios Olympos, asking to join your formation and to come aboard."
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 02:20:59 No.4685510 Report
->>4685494
->Illusion of Serenity
-iseewhatyoudidthere.jpg
-View SameGoogleiqdbSauceNAO 1253152099964.jpg, 24KiB, 500x365
-Nameless Grunt Fri 12 Mar 2010 02:24:59 No.4685523 Report
->>4685494
-Anonymous Fri 12 Mar 2010 02:24:59 No.4685525 Report
->>4685494
-I clearly see weapons in that pic. The Serenity never had any! Jayne even remarks about it. "Damn yokels can't tell a transport ship aint got no guns on it."
-Anonymous Fri 12 Mar 2010 02:29:59 No.4685554 Report
-Quoted By: >>4685623
->>4685494
-Damn, I guess it's time for the Logic bomb then...
-View SameGoogleiqdbSauceNAO Helios.jpg, 4KiB, 100x99
-Sciencegar Sciencebolt Fri 12 Mar 2010 02:36:59 No.4685583 Report
+
+---
+
 Ring rubs her chin at the sight of the young man walking onto the Eurydice. "I knew Helios Olympus was meant to be young, but not that young..."
 
 You shrug. "He must be some kind of child genius. Like how I am with breaking stuff."
@@ -414,16 +72,12 @@ You shrug. "He must be some kind of child genius. Like how I am with breaking st
 
 "Don't we all know it..."
 
-The young man bows at Despinis and 'Cynthia'. "Its been too long, sis...my friends. Now hopefully, we'll be able to realise our dreams at last."
+The young man bows at Despinis and 'Cynthia'. "Its been too long, sis... my friends. Now hopefully, we'll be able to realise our dreams at last."
 
-Indeed, although we have one last obstacle to face. Perhaps the famed scientist Helios Olympus, and his retinue, can find us a solution?
+*Indeed, although we have one last obstacle to face. Perhaps the famed scientist Helios Olympus, and his retinue, can find us a solution?*
 
 "Indeed, Dumi. We'll try our best, allow me to introduce you..."
-Anonymous Fri 12 Mar 2010 02:49:59 No.4685623 Report
->>4685554
-Only reasonable plan. Mind, it's not EXACTLY a logic bomb, since it's not designed to cripple Dumi's systems, just alter them.
-Sciencegar Sciencebolt Fri 12 Mar 2010 02:50:59 No.4685632 Report
-Quoted By: >>4685640 >>4685646 >>4685647 >>4685648 >>4685657 >>4685668
+
 You never thought of a labcoat as an 'ironic' fashion statements, but somehow the large man who's entered the hangar manages. His frame oozes laid-back-ness like most men his size would ooze sweat, and his grin as he takes in the contents of the Eurydices bay is disturbingly like looking into a mirror.
 
 "Well, quite a feast you've got for us this time, Heel-o! If it wasn't for the exciting dimensional trip business, I'd have to get stuck in to these babies right now."
@@ -432,48 +86,14 @@ Ring steps in front of him. "No-one touches the EX without my say-so, and I doub
 
 "Miss Mao! You've forgotten me already? Harry Cooplowski, worked in R&D for 4 months. The middle management didn't seem to like my style, even though I was getting awesome results! You did see those, didn't you?"
 
-"Cooplowski...You're the one that wrecked the 009!"
+"Cooplowski... You're the one that wrecked the 009!"
 
 "Wrecked! I upgraded that baby like no-one else could! Just because your test pilot couldn't handle the G-Sword Diver..."
 
 "Hector was our best test pilot" He's still in the hospital!!"
 
 "Man, how can he call himself the best if he can't surf a huckebien on the moon? That's right, he CAN'T." With this, Cooplowski walks away, leaving Ring rather confused at to what sort of point he just made.
-Nameless Grunt Fri 12 Mar 2010 02:52:59 No.4685640 Report
->>4685632
-Harry Cooplowski?
 
-Is that who I think it is?
-Anonymous Fri 12 Mar 2010 02:52:41 No.4685641 Report
-Well a logic bomb is this.
-Is it better to flee with nothing so as to be able to gain something in the future, or get your self destroyed in a futile attempt at getting the something.
-It's a choice between possible failure and certain failure.
-Anonymous Fri 12 Mar 2010 02:53:59 No.4685646 Report
->>4685632
-Who the hell is this asshat? He sounds like he escaped from Eureka 7.
-View SameGoogleiqdbSauceNAO 1267479427439.jpg, 27KiB, 541x405
-Stealthyboy !fchRKomfls Fri 12 Mar 2010 02:53:59 No.4685647 Report
-Quoted By: >>4685652
->>4685632
->Harry Cooplowski
->Cooplowski
->Coop
-View SameGoogleiqdbSauceNAO Maygar.gif, 20KiB, 256x256
-Haken Browning !zHe7DH816A Fri 12 Mar 2010 02:54:59 No.4685648 Report
->>4685632
->Cooplowski
-Anonymous Fri 12 Mar 2010 02:54:59 No.4685652 Report
->>4685647
-Oh fuck. This can end very, very well, or VERY VERY VERY VERY BADLY
-Anonymous Fri 12 Mar 2010 02:55:59 No.4685655 Report
-What is this I don't even?
-Goddamn Sandwitches Fri 12 Mar 2010 02:55:59 No.4685657 Report
->>4685632
->Cooplowski
-
-... OH DEAR GOD YES!
-Sciencegar Sciencebolt Fri 12 Mar 2010 02:56:59 No.4685661 Report
-Quoted By: >>4685671 >>4685673 >>4685675 >>4685680
 You run up to the large man. "Ooh, Coop, I can call you Coop right?"
 
 "All the cool kids are doing it!"
