@@ -136,19 +136,19 @@ You're mid-hug on Irm when your earpiece starts twittering. You reluctantly pull
 
 ---
 
-*The concept is simple. It probably shouldn't be, but since we're dealing in forces and beings defined by absolutes, simplicity tends to seep in.
+*The concept is simple. It probably shouldn't be, but since we're dealing in forces and beings defined by absolutes, simplicity tends to seep in.*
 
-We're going to create a universe.
+*We're going to create a universe.*
 
-This world will be composed of the Shards that Dark Brain was using to attack the universe of the Irregulars, that are now floating in the Paradox Storm. This will require a vast harnessing of interdimensional energy and near-infinite calculating power, but I think we can manage it. Once we create the appropriate Seed, using the Compatible Kaiser as a base, the Shards should collate into one universe.
+*This world will be composed of the Shards that Dark Brain was using to attack the universe of the Irregulars, that are now floating in the Paradox Storm. This will require a vast harnessing of interdimensional energy and near-infinite calculating power, but I think we can manage it. Once we create the appropriate Seed, using the Compatible Kaiser as a base, the Shards should collate into one universe.*
 
-This universe will be the ultimate paradox: It has been destroyed, many times, by Dark Brain, but is now whole. This will make it a deathtrap for him: Were he ever to enter into a place he had destroyed, the forces of paradox would tear him apart, and would likely damage his Actuality throughout the local Multiversal Clusters.
+*This universe will be the ultimate paradox: It has been destroyed, many times, by Dark Brain, but is now whole. This will make it a deathtrap for him: Were he ever to enter into a place he had destroyed, the forces of paradox would tear him apart, and would likely damage his Actuality throughout the local Multiversal Clusters.*
 
-So he'll never be able to come there. And because Compatible Kaiser is the seed around which this universe is formed, it'll be the Kaisers ultimate refuge. It will be able to return to that universe at any time, preventing Dark Brain from ever gaining it for more than a moment.
+*So he'll never be able to come there. And because Compatible Kaiser is the seed around which this universe is formed, it'll be the Kaisers ultimate refuge. It will be able to return to that universe at any time, preventing Dark Brain from ever gaining it for more than a moment.*
 
-But the problem lies in whats needed for the creation: The Kaiser, The XN Giests Dimensional Drives, and my Multiversal calculating power. They all have to be present when the universe is being formed... And they'll be used up in the process. The Giest will be destroyed. The Kaiser will have to be rebuilt from the materials of the new world, as in other worlds. And I'll be reduced to a personality core, enough to function as person, but deprived of my functions as an interdimensional being.
+*But the problem lies in whats needed for the creation: The Kaiser, The XN Giests Dimensional Drives, and my Multiversal calculating power. They all have to be present when the universe is being formed... And they'll be used up in the process. The Giest will be destroyed. The Kaiser will have to be rebuilt from the materials of the new world, as in other worlds. And I'll be reduced to a personality core, enough to function as person, but deprived of my functions as an interdimensional being.*
 
-So, what I'm getting at here is... whoever is going with me... they're not getting out the same way. We'd have to hope that somewhere in the new universe there is some kind of interdimensional travelling device, or that some other traveller will enter the universe and take us out. But right now, we can't confirm any of those things. Thats the danger, that we get the perfect world we hoped for... and we're stuck there.*
+*So, what I'm getting at here is... whoever is going with me... they're not getting out the same way. We'd have to hope that somewhere in the new universe there is some kind of interdimensional travelling device, or that some other traveller will enter the universe and take us out. But right now, we can't confirm any of those things. Thats the danger, that we get the perfect world we hoped for... and we're stuck there.*
 
 You look worriedly at the Diamond Eye on the conference room's screen. "D-Dumi... Are you really willing to go through with that?"
 
