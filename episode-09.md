@@ -69,7 +69,7 @@ Yukiko continues looking out over her desk, chin on hands. "If she'd been lying,
 
 "And yet, Hamill, that appears to be exactly what has happened. That cannot be denied. Either we have a leak, or this group has been able to extract the data from outside our base. Either way, we have to recapture this unit and any other they before the EFA engage it. If they get any more combat data on the R-Series, they may finally realise exactly what we're capable of."
 
-Kirk Hamill sighs. "Unit BP...It won't be ready for another few months. If its stopped now..."
+Kirk Hamill sighs. "Unit BP... It won't be ready for another few months. If its stopped now..."
 
 "Bump all SRX units up an alert level and have Intelligence check for any breach on the R-Gun. And find me some more agents. We need to track down each and every one of these Irregulars, now."
 

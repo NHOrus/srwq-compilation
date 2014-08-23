@@ -16,7 +16,7 @@ In our last episode, the team had managed to fight the Cry Wolves and the Hagane
 
 *None of the other mechs have the capability to reach orbit without external boosters. However, I do beleive the Altairlion has a second seat in the cockpit, which is currently unused. We could bring someone along, in a support role.*
 
-"I...I'm not sure. I'd kinda like Ibis along...But I'm not sure what for?"
+"I... I'm not sure. I'd kinda like Ibis along... But I'm not sure what for?"
 
 *Ibis' skill is as a support gunner, not an engineer. I don't see how much she can add to the combat efficiency of a DC-trained team with new mechs.*
 
@@ -40,7 +40,7 @@ Dr. Sophia Nate, her off-greay skin catching the light in a disturbing way. She 
 
 Vat Tran nods approvingly. "Once again, your technology astounds me, Dr. Nate. Once we can mass-produce the Machine Cells, we might actually stand a chance against the Federation."
 
-"Yes...that would be quite a sight..." 
+"Yes... that would be quite a sight..." 
 
 ---
 
@@ -66,11 +66,11 @@ Kirk Hamill frowns. "Is it possible theres any truth to them? That Shine was wro
 
 "An assault, then?"
 
-"No...something more subtle." 
+"No... something more subtle." 
 
 ---
 
-"So...Star-3, was it?"
+"So... Star-3, was it?"
 
 "Er, you can call me Lt. Ohara, and my partner is Lt. Watson."
 
@@ -82,7 +82,7 @@ Kirk Hamill frowns. "Is it possible theres any truth to them? That Shine was wro
 
 "Damned right!!" You say. "We're all dedicated to the same thing, knocking down this stupid Federation and... erm, knocking it down good!!"
 
- "So, ugh, anyway...How'd you guys get in on the whole DC thing, anyway? Tragic past, EFA burned down your house, that sort of thing?"
+ "So, ugh, anyway... How'd you guys get in on the whole DC thing, anyway? Tragic past, EFA burned down your house, that sort of thing?"
 
 "...That's a little forward of you, isn't it?"
 
@@ -130,7 +130,7 @@ As the kilometers flash by and the sky dissipates into darkness, you hear a fami
 
 *I'll take that as a compliment. I'm scanning my databanks, and I do beleive there may be something. Shadow Mirror intelligence apparently had suspicions about a resource satellite, just on the far side of the moon. Reports are sketchy, but apparently they suspected it was some form of weapons factory, belonging to which faction was unclear.*
 
-"Huh...isn't that a bit out of our way?"
+"Huh... isn't that a bit out of our way?"
 
 *On our current units, without a doubt. But if we were to secure ourselves a proper vessel, perhaps claim one from the EFA, we may be able to make it there within a day.*
 

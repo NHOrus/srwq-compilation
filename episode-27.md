@@ -145,7 +145,7 @@ Patricia just blinks at you. "Deee-Seee?"
 
 *I had thought of this. If this bodies mass were a little higher, I could probably simulate a space vessel. Maybe a Tausendfeussler would do for now...*
 
-"I was thinking something a little more...petite."
+"I was thinking something a little more... petite."
 
 *A word implying not only small, but feminine. Why am I not surprised?*
 
@@ -153,7 +153,7 @@ Patricia just blinks at you. "Deee-Seee?"
 
 A*ccuracy of that statement aside, I'm not sure I can do that... safely. Shrinking this body to that size runs the risk of energy overload from the mass conversion, and creating an autonomous avatar... I couldn't be sure that such a being would still be me.*
 
-"Ugh...why not?"
+"Ugh... why not?"
 
 *I've done it before. Three times in fact. And the resulting Homunculi all developed distinct personalities. It's how I stayed sane through all the long years watching this planet before the Balmarians came. Far better to let Despinis act in my stead, I can feed her my lines, and she'll happily repeat them.*
 

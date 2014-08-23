@@ -36,7 +36,7 @@ But what draws your attention the most is whats holding the ancient metal device
 
 *...Yes and no. It looks like a hybrid of some kind, like two similar sets of bio-technology were spliced together somehow. One the things we saw before, the other... more earthly.*
 
-"Ok...has it warned the other aliens?"
+"Ok... has it warned the other aliens?"
 
 *No.*
 

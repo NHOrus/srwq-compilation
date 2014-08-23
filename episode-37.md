@@ -319,7 +319,7 @@ You return to base and fetch the Raioh. Dumi hovers over the mass as it slowly s
 
 "What?" You ask as you charge up the Plasma Converter.
 
-*A lull in the storm...I  think I'll use my Crosstiem Correspondence Driver like I did with the Bergelmir... Yes, the Irregulars universe has something we can use.*
+*A lull in the storm... I  think I'll use my Crosstiem Correspondence Driver like I did with the Bergelmir... Yes, the Irregulars universe has something we can use.*
 
 Plasma flies from the Raioh to Dumi, who converts it into waves warmth that soak into the machine cells. They begin to frantically divide and multiply, turning black as they perform their final duty.
 

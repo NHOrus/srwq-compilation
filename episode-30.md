@@ -104,7 +104,7 @@ Kar-Wai blinks in the harsh sunlight. "I thought you were taking us to the jungl
 
 Kar-Wai shakes his head. "Maybe we should just take the Eurydice, and save the bother. All this warping is making my implants ache..."
 
-"Yes...a few hours on a stable platform should be enough."
+"Yes... a few hours on a stable platform should be enough."
 
 ---
 
@@ -122,7 +122,7 @@ The door of the cabin bursts in, and Bullet leaps in front of Kusuha, chair-leg 
 
 Vindel Mauser grins. "You recognise me, don't you boy? I'd expect no less from the agents of Helios Olympus. Now, you have to get out of here!" Lemon tosses a gun to the confused young man.
 
-"Wh...You're just freeing us? Like that?"
+"Wh... You're just freeing us? Like that?"
 
 "It seems my own agents have turned on us, securing my Zweizergain but neglecting to look for us. But, with the ELF transport broken open, you two should be able to get to your mech. Given the chaos thats raging out there, I think we'd be safer if you intervened."
 

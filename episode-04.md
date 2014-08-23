@@ -78,7 +78,7 @@ The Wuerger and the Raioh dance across the sky, the massive super trying to conn
 
 "Who thought putting this crazy woman in such a big robot was a good idea??"
 
-Seeing a chance, Arado dives in and slices the Raioh deeply just above the right eye, but the Camera just about remains on. You reach out to grab him, but he's way too fast...until you recall the arm weapons.
+Seeing a chance, Arado dives in and slices the Raioh deeply just above the right eye, but the Camera just about remains on. You reach out to grab him, but he's way too fast... until you recall the arm weapons.
 
 **"Plasma Leader!!"**
 
@@ -106,7 +106,7 @@ Meanwhile, Ibis stands dumbfounded over a pile of broken weapons, as the Transfo
 
 "...There are worse ways to die, but I'd rather you didn't." quips Arado.
 
-The Transformer flies level with you, sizing you up. "You're making a mistake, Mirror Katina. We planned to do this as peacefully as possible, but if you hurt Arado, so help me, I'll...I'll..."
+The Transformer flies level with you, sizing you up. "You're making a mistake, Mirror Katina. We planned to do this as peacefully as possible, but if you hurt Arado, so help me, I'll... I'll..."
 
 "It's ok, Mr. Loud. You just leave us alone and I'll take... special care of Arado-kun."
 
@@ -146,7 +146,7 @@ The conflicted look on Arado's face is priceless.
 
 Dumi's body twists into a motorcycle shape and rolls into the Trilobite, followed by you. The young mechanic, still smarting from where you kicked him in the jaw when tossing him out of the Raioh's cockpit, straps you in as the doors close. Theres a rumble, and the two ships lift off.
 
-Ryoto Hikawa (That's what the tag on his overalls call him anyway) comes over to you as you exit the Raioh, still rubbing his jaw. "What...what did you do that for?!?!"
+Ryoto Hikawa (That's what the tag on his overalls call him anyway) comes over to you as you exit the Raioh, still rubbing his jaw. "What... what did you do that for?!?!"
 
 "You were in my way, I just got you out of the way."
 
@@ -162,7 +162,7 @@ You go goggle-eyed. "You! You're Kai Kitamura!!"
 
 "You're the federations top ace!! Ex-Aggressor and head of the Cry Wolves!! What are you doing on a Shadow Mirror ship?"
 
-Kai taps his eyepatch. "Things got a little...complicated. Now, maybe you'd like to tell me exactly how deep in shit we are right now?"
+Kai taps his eyepatch. "Things got a little... complicated. Now, maybe you'd like to tell me exactly how deep in shit we are right now?"
 
 Ryoto turns at him aghast. "N-no! We're still under orders from Colonel Mauser to keep you secure. You're still not cleared as a true Shadow Mirror!"
 
@@ -176,7 +176,7 @@ Now clutching both cheeks due to the pain, Ryoto backs off, then runs towards th
 
 You turn back towards Kai, but now that you're alone with the living legend, you're feeling sort of intimidated. You absentmindedly twiddle one of the ribbons on your dress as you talk to him.
 
-"W-well, I'm not certain of all the details, but...the portal thing, which we were going to escape into, mechs starting coming out of it while we were getting ready to go in. Powerful mechs, and some of them had School pilots, except they're different versions of who're de...who can't be in mechs like that. There's more than one of more than one person, if you know what I mean."
+"W-well, I'm not certain of all the details, but... the portal thing, which we were going to escape into, mechs starting coming out of it while we were getting ready to go in. Powerful mechs, and some of them had School pilots, except they're different versions of who're de... who can't be in mechs like that. There's more than one of more than one person, if you know what I mean."
 
 "...Copies, from another world."
 
@@ -210,7 +210,7 @@ On the bridge, Ryoto is sitting in the corner nursing his wounds, while a chines
 
 *I'm merely trying to relieve you of a pointless task, so you can undertake matters of greater concern. We require technicians far more than pilots right now, the Tausendfuessler's mech complement is several damaged and needs repair.*
 
-"But...but you're a computer!! What if you bluescreen, or get a virus, or go crazy and decide to destroy humanity?"
+"But... but you're a computer!! What if you bluescreen, or get a virus, or go crazy and decide to destroy humanity?"
 
 *Rio, I understand what you're saying, but Ibis is crying.*
 
@@ -300,7 +300,7 @@ The others:
 
 Johnathan: "We can't do anything like this. Either we head to California, or we turn around and surrender ourselves to the newcomers."
 
-Irm: "I...I think we should give the kid back his mech and send him back to his friends, otherwise they'll chase us down again, and I don't think we can handle another assault."
+Irm: "I... I think we should give the kid back his mech and send him back to his friends, otherwise they'll chase us down again, and I don't think we can handle another assault."
 
 Kai: "We're keeping the kid: We need all the intel we can get. Top speed to California Base, at least we can make a stand there."
 

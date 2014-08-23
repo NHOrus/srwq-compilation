@@ -36,13 +36,13 @@ You are the Shadow Mirror version of Katina Tarask. You are equally as filled wi
 
 You're sitting on guard duty, as the meeting between sides continues, when Irm and Kai finally return to the Trilobite. Everyone dismounts from their mechs and gathers round to hear the news.
 
-Irm seems to be expecting Kai to start, but eventually speaks up himself. "Ok, basically, Ms Zoldark has agreed to help the newcomers to find certain things they're looking for, in particular, the Zweizergain. In return, they...well, she was vague on that score, probably on purpose, so she has leverage on them in the future."
+Irm seems to be expecting Kai to start, but eventually speaks up himself. "Ok, basically, Ms Zoldark has agreed to help the newcomers to find certain things they're looking for, in particular, the Zweizergain. In return, they... well, she was vague on that score, probably on purpose, so she has leverage on them in the future."
 
 "Wait, so they're together now? Does that mean she'll give them back Arado?"
 
 Kai shakes his head. "She's not stupid, she knows a bargaining chip when she sees one. They even mentioned that they had several pilots missing after their arrival here, and she said she knew nothing on that score. Hopefully they didn't see Irm squirm in his boots when the topic came up."
 
-"H-hey! I just...don't think keeping him locked up is going to benefit us long-term."
+"H-hey! I just... don't think keeping him locked up is going to benefit us long-term."
 
 "We'll cross that bridge when we come to it. Right now, we have another bridge to cross."
 
@@ -62,7 +62,7 @@ Latooni again looks up from her datapad. "Then there is the option to go it alon
 
 Kai chips in first. "If we can convince Ryuune to hand over Arado now, we should be able to keep buddy-buddy with the new guys for now, and join up with any surviving Shadow Mirrors stuck in the EFA cordon. I think sticking close to these new guys is our best bet, if we want to be moving and shaking in this new war."
 
-Irm rubs his chin competitively. "Well, that might work...But getting into fighting as tough as what they're going to be doing? I don't like the sound of that. I like the idea of working with Ryuune more, working this mercenary angle."
+Irm rubs his chin competitively. "Well, that might work... But getting into fighting as tough as what they're going to be doing? I don't like the sound of that. I like the idea of working with Ryuune more, working this mercenary angle."
 
 Russel pipes up. "I don't like the idea of jumping the bonfire either. I say we join this search of hers. Little bit of intelligence gathering with the odd skirmish with the EFA, sounds like the good old days again."
 
@@ -84,9 +84,9 @@ All eyes turn to you...
 
 Irm facepalms
 
-"W-well, first things first...we need more troops! We can't make any decision until we have our maximum power. Then we can be the hot new unit that everyone wants on their side!!"
+"W-well, first things first... we need more troops! We can't make any decision until we have our maximum power. Then we can be the hot new unit that everyone wants on their side!!"
 
-Kai smirks and rubs his eyepatch. "Not the worst suggestion...but with the EFA crackdown at the level it is, finding a bunch of mechs lying around is no trivial matter."
+Kai smirks and rubs his eyepatch. "Not the worst suggestion... but with the EFA crackdown at the level it is, finding a bunch of mechs lying around is no trivial matter."
 
 Irm nods. "Yeah. With Mao Industries essentially run by the EFA, Itsurugi and TLI were essentially the only other places producing mechs on any scale, and they've both been bombed out of existence now."
 
@@ -210,7 +210,7 @@ Ratsel takes his hand of Arado's mouth as the boy finally calms down. "Oh thank 
 
 "SSSSSHHHH!!!! Arado, you're being held prisoner by the DC, one of the few factions on this world that is willing to work with us. We need every ally we can get or else we risk Vindel trying to get away and bringing Dark Brain down on us. If I break you out of here, that vital alliance will be broken, and we could have risked this whole trip for nothing."
 
-Arado looks on verge of tears. "So you're just going to leave me here? With...with HER??"
+Arado looks on verge of tears. "So you're just going to leave me here? With... with HER??"
 
 "Not quite. First, I'm giving you this earplug comm device. It's partially faded out of this dimension, so it should be undetectable. You'll still be in contact with us. Secondly, I'm giving you a mission."
 

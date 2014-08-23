@@ -44,17 +44,17 @@ Irm tries to facepalm, but doesn't have enough working fingers in either hand. "
 
 *Honestly, Katina? I don't know. Dark Brain neglected to mention what he wanted it for. All I know is that it should be a very powerful Super Robot, better than a Grungust and at least a match for the DGG series. Possibly some component of it has dimensional significance, but lacking additional info, I'm forced to grab the whole thing.*
 
-"Hmm...With Wodans Thrudgey-chan, we might be able to beat it down, but if all the other Irregulars get involved, we wouldn't have much chance as we are..."
+"Hmm... With Wodans Thrudgey-chan, we might be able to beat it down, but if all the other Irregulars get involved, we wouldn't have much chance as we are..."
 
 *Lalia's arrival may alter things slightly, but he still only has his own mech, which is hardly a gamebreaker. We'll need to ruminate on this before we take any action.*
 
 "Can't you, y'know, go to another dimension and get the Compy-Kaiser of that dimension?"
 
-I'm afraid the Compatible Kaiser is a multiplicity point, much in the same fashion as Dark Brain itself. Every universe has a version of it that can exist, but only one can exist at a time...well more accurately, only one exists at any on its own personal timeline, and due to to the Blinovitch Limitation Effect it cannot occur within traversable space-time of itself...There's only one, ok?
+I'm afraid the Compatible Kaiser is a multiplicity point, much in the same fashion as Dark Brain itself. Every universe has a version of it that can exist, but only one can exist at a time... well more accurately, only one exists at any on its own personal timeline, and due to to the Blinovitch Limitation Effect it cannot occur within traversable space-time of itself... There's only one, ok?
 
-"'Kay...Can't we just leave a bug on it or something, so we can leave, get awesome mechs, then come back for it later?"
+"'Kay... Can't we just leave a bug on it or something, so we can leave, get awesome mechs, then come back for it later?"
 
-I... It could work, but again, we'd need an interdimensional communication method, in case it jumps to another world while we're away. Again, that would mean stealing from Gilliam Yeager, risking a peep at Izu Base, or investigating the signal in space. Also...I don't want to risk Dark Brain waiting for us out in the storm, and being emptyhanded when he asks me wh...Oh, there's Lalias ship.
+I... It could work, but again, we'd need an interdimensional communication method, in case it jumps to another world while we're away. Again, that would mean stealing from Gilliam Yeager, risking a peep at Izu Base, or investigating the signal in space. Also... I don't want to risk Dark Brain waiting for us out in the storm, and being emptyhanded when he asks me wh... Oh, there's Lalias ship.
 
 You look out of your porthole and see, waiting in the valley, something that might have been a standard EFA shuttle at one point, but is now almost unrecognisable. The black Stealth Coating and automated AAA turrets look strangely out of place.
 
@@ -152,7 +152,7 @@ Kusuha's face pops up on the screen. Its a big contrast, between the bright pepp
 
 You blink as Kusuha finishes the story. "Woah, thats... thats pretty heavy."
 
-"But...Why are you asking me this? Did you meet another Duminuss? Gilliam said he'd seen another, but it didn't attack him."
+"But... Why are you asking me this? Did you meet another Duminuss? Gilliam said he'd seen another, but it didn't attack him."
 
 "I... guess I just wanted to know what the fuss was about. That giant turkey flapping about, causing a ruckus... I wanted to know what the story was."
 
@@ -218,7 +218,7 @@ You run into the hangar, suddenly realise that Dumi is flying outside the ship, 
 
 "What? Who'd piloting i... wait, don't bother answering that. What's she doing?"
 
-"She's landing on Duminass, sir. She's... um...s he's spread-eagled the mech on its surface."
+"She's landing on Duminass, sir. She's... um... s he's spread-eagled the mech on its surface."
 
 "...She's hugging him. Ok, false alarm, everyone back to your posts."
 

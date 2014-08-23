@@ -104,7 +104,7 @@ You walk mostly straight out to the main street, where you find Dumi covered in 
 
 "Huh. S'interesting."
 
-*I realise this may not be the best time to ask this, Katina...But have you given major thought to what you're doing with this group?*
+*I realise this may not be the best time to ask this, Katina... But have you given major thought to what you're doing with this group?*
 
 You plop down on a bollard and start to ramble. "Well... where else would I go? The Shadow Mirrors are my friends, the only people I've ever known who'd really give me a chance to be me. I can barely remember life before the School, and those old farts at the School just think I'm a defect. The Mirrors have seen the worst I can do, and will still let me go with them. Besides, the idea of a world of fighting forever... I can get behind that."
 
@@ -138,7 +138,7 @@ You plop down on a bollard and start to ramble. "Well... where else would I go? 
 
 *From scanning my archives, it appears the man is a cypher of the highest order. He has worked with basically every faction on the planet for almost a decade, the EFA, EOTI, DC, multiple scientific institutions and engineering companies. He's abandoned each one in mysterious circumstances, sometimes leaving scattered notes on his theories in twisted recompense for stealing information or cash. And now that I've actually met the man, he doesn't present the kind of demeanour needed to justify such actions.*
 
-"Ugh...how so?"
+"Ugh... how so?"
 
 *Well, primarily, I am unimpressed by his grandstanding over his great 'plan', which he seems to be incredibly vague on the details of. I suspect either it's of a contraversial nature he cannot reveal to us, or he actually doesn't have a real plan at all.*
 
@@ -206,7 +206,7 @@ You put an arm around both Ibis and Kusuha and grin over at Ryoto.
 
 "Hey, Ryo, how many women are you going home with tonight? I've got two."
 
-"Urm... Ugh...Y ou shouldn't be saying things like that, Ms Tarask."
+"Urm... Ugh... You shouldn't be saying things like that, Ms Tarask."
 
 You uncross your legs. "You could make it three if you play your cards right."
 

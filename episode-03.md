@@ -4,7 +4,7 @@
 
 You are the Shadow Mirror version of Katina Tarask. You wear frilly dresses and don't afraid of anything.
 
-You and the other Shadow Mirrors were about to escape destruction by the EFA by traveling to another dimension, when an army of mechs from that dimension arrived to...do something. It wasn't entirely clear what was happening, but then things started exploding. You and your allies climbed into a Tausendfuessler and escaped the Tesla-Liecht Institute, but you were followed.
+You and the other Shadow Mirrors were about to escape destruction by the EFA by traveling to another dimension, when an army of mechs from that dimension arrived to... do something. It wasn't entirely clear what was happening, but then things started exploding. You and your allies climbed into a Tausendfuessler and escaped the Tesla-Liecht Institute, but you were followed.
 
 Then the ghost of your best friend Arado, who you strangled with a power lead in a fit of psychotic rage 2 months ago, came back from hell to claim your soul for your many sins.
 
@@ -96,7 +96,7 @@ You boost out of the fall and land roughly but intact near the Trilobite. You lo
 
 You shrug and head toward the Trilobite.
 
-"That flying style...I know you."
+"That flying style... I know you."
 
 "That voice!"
 
@@ -110,7 +110,7 @@ Latooni had already anticipated the second of confusion. An armor-piercing shell
 
 The Cold Metal Sword slices through Latooni's Linear Cannon, and the Wuerger's leg strikes the side of her units cockpit-head. Latooni grits her teeth and fights the urge to vomit from the rocking.
 
-"Bronzo 28...Arado Balanga."
+"Bronzo 28... Arado Balanga."
 
 "No! To hell with this! I don't care if you are Latooni, you Shadow Mirrors are all crazy!! We came here to end your stupid organisation, and we will! And if some of you madmen die on the way, I won't shed any tears!!!"
 

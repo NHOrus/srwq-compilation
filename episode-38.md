@@ -42,7 +42,7 @@ Dumi morphs once more into his Transport form, and you land atop of him, as he c
 
 "Oh Radha honey, we won't make you stay! But running off my yourself won't do you any good! You'll just get lost and run out of fuel, and then you'll be stuck in the middle of the jungle or the sea or something. Come on, give us back the mech, and we'll get you home properly."
 
-"Y...You mean it? Really?"
+"Y... You mean it? Really?"
 
 "Well... to be blunt, otherwise you're dead weight stinking up the camp."
 
@@ -202,7 +202,7 @@ She goes silent for a moment. "...I just feel so selfish right now..."
 
 "Huh?"
 
-"I want him back. I'd give my other hand just to see him standing there, giving a snide comment or trying not to look bored when people talk science... I don't know, maybe its just the painkillers, or the stress, or the fact that it was just so sudden and I didn't see it, I was blinded by the blast and they just told me he was dead later...But right now, I want him back. Thats... thats all I know."
+"I want him back. I'd give my other hand just to see him standing there, giving a snide comment or trying not to look bored when people talk science... I don't know, maybe its just the painkillers, or the stress, or the fact that it was just so sudden and I didn't see it, I was blinded by the blast and they just told me he was dead later... But right now, I want him back. Thats... thats all I know."
 
 A tear rolls down her cheek as she settles on the trolley. Kusuha and the other nurse wheel her into the operating theatre. You're left alone, watching Irm chat with his father and Kai whispering to a groggy Hugo.
 
@@ -340,7 +340,7 @@ Lemon looks at you. Her lips are smiling, as if she's just won a great victory. 
 
 "SHUT UP!! It's not about just me, its what'll happen if we use those cells. We'll end up with a horde of tortured people, who'll kill just do they can live. They'll spread fear, and anguish all across the world, just to do it!"
 
-Another tear down her face. "Those sound like...perfect soldiers."
+Another tear down her face. "Those sound like... perfect soldiers."
 
 "Lemon, you gotta-"
 

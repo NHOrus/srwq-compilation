@@ -74,7 +74,7 @@ Irm shakes his head. "No sir, but the Irregulars have their own copy."
 
 *I... I don't... Ok. There's a... storm, coming, from the Endless Frontier. It's wrapping this universe in tendrils of indescribable darkness, making it almost impossible to access other dimensions. My last teleport nearly crippled me, I can't access the components that exist in hyperspace, and even my hyperwave link to my three homonculi is starting to pick up static. I can't tell exactly what caused this storm, but I know its something bad. And... I have the horrible feeling... I may be part of the cause...*
 
-"Wha...Dumi, what did you do?"
+"Wha... Dumi, what did you do?"
 
 *I activated my body and started teleporting around. Shuu turned on his Granzon. The Balmarians powered up their Neviim. The Huckebien R exploded. I arrived here. The Shadow Mirrors punched a hole in space, and travelled through it. Then the Irregulars stopped them, turning back time and altering their own reality in the process. Each of these things is like a note in a song, drawing up the snake from the pot, and is weakening the barriers that keep worlds apart. Its a cumulative process, but one that has been building from what we've been doing.*
 

@@ -39,7 +39,7 @@ Beyond even that, the drums of war are beating, as flashes of battle resound acr
 
 "Ah, shur com'on Axel!" comes the irish twang of Russel Bagman, the man who saved you from the EFAI ambush in Germany and brought you this far. "She checks out as good as c'n'be! She passed the ELF checks, and she has Ms. Hamill's personal ok. Fer fecks sake, half o' yer soldier are Ex-SCHOOL, ye can't get uppity about her just because we're in a bit of a rush!"
 
-"A bit of a...BEOWULF IS COMING, You Drunken Leprechaun-Fucker! Barrison Platoon is almost wiped out, 90% of our forces are locked in their transports, and Vindel has taken our trump card into the middle of the rift looking for a compatible universe. The last thing I need is a rogue element to mess things up."
+"A bit of a... BEOWULF IS COMING, You Drunken Leprechaun-Fucker! Barrison Platoon is almost wiped out, 90% of our forces are locked in their transports, and Vindel has taken our trump card into the middle of the rift looking for a compatible universe. The last thing I need is a rogue element to mess things up."
 
 You're about to break into the conversation (and possible Axel's nose) when a third man jumps in.
 
@@ -47,7 +47,7 @@ You're about to break into the conversation (and possible Axel's nose) when a th
 
 Axel turns an eye up at Irm, then glances back at the battle, and then to an Earthgain-type robot kneeling on the tarmacadam. "Fine, you handle every other miniskirt in the Mirrors, what's one more." He breaks off and starts jogging towards his suit. "There's a half-dozen units left over in hanger G. If you're not on the battlefield in 5 minutes, I'll start bombing the place to get you moving."
 
-Irm barely looks at him, he extends a friendly hand out to you. "Irmgard Kazahara, 2nd Lt, Pisces. I'm not usually this formal with a lady, but...would you care to come fly robots with me?"
+Irm barely looks at him, he extends a friendly hand out to you. "Irmgard Kazahara, 2nd Lt, Pisces. I'm not usually this formal with a lady, but... would you care to come fly robots with me?"
 
 "Eh, with us, Irm. I'm here too.", interjects Russel.
 
@@ -87,11 +87,11 @@ You immediately mention this idea to your companions. They share a look before I
 "Ah, ye can't blame the lass fer a bit of imagination."
 "No, but I can blame her if Axel fricassees me."
 
-"Uhh...I can't decide."
+"Uhh... I can't decide."
 
 Irm turns to you as he opens up the cockpit of the Guarlion. "What?"
 
-"I want to take the one with the big knives, but that red Gespy...it's...it's too cute to leave here."
+"I want to take the one with the big knives, but that red Gespy... it's... it's too cute to leave here."
 
 "Ugh, I'm all for having preferences, but I think we have to make some snap decisi-"
 
@@ -186,7 +186,7 @@ The R-Blade may not have a Tesla Drive but it is very nimble, and with some coax
 
 "AHUHUHUH! No! I want to live!!! I have a girl waiting for me at home! I have two!! Plea-hea-hea-hease! Bawhuhuhuhuuu!!"
 
-"S-stupid EFA pilot! It's not like I hate you or anything...I JUST LOVE THE SOUND YOUR FLESH MAKES AS IT'S RENT IN BETWEEN THE SCRAP LEFT IN YOUR UNIT!"
+"S-stupid EFA pilot! It's not like I hate you or anything... I JUST LOVE THE SOUND YOUR FLESH MAKES AS IT'S RENT IN BETWEEN THE SCRAP LEFT IN YOUR UNIT!"
 
 And with that, you empty the clip of your railgun into his cockpit. The thing was busted up in the melee anyways.
 
@@ -318,7 +318,7 @@ Russel fires off his last set of Split Missiles and turns to the mysterious pilo
 
 "We're in a big fight. You were shot and fell down here. I saved you."
 
-"No! You don't get it! That's...that's Sleigh's Gespenst!! I'm sure of it, the red paint, the DC logo, the Scarlet Comet marked on the left shoulder...Where is she??"
+"No! You don't get it! That's... that's Sleigh's Gespenst!! I'm sure of it, the red paint, the DC logo, the Scarlet Comet marked on the left shoulder... Where is she??"
 
 "Missy, I don't-" Russel ducks as the EFA open up again. The two scramble down into a hollow for cover. "I don't know who this Gespenst could belong to. I just picked it up from the hanger not half an hour ago. No-one else claimed it, so I figured it was free for the taking."
 

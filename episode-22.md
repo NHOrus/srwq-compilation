@@ -194,7 +194,7 @@ Shuu blinks. "I'm not sure... I fully follow you."
 
 "Too late, rats! Launch the MAPW!!!"
 
-"Sir! Launching, ten seconds to impact! 8, 7, 6...It's gone sir!!"
+"Sir! Launching, ten seconds to impact! 8, 7, 6... It's gone sir!!"
 
 "What?!!? How did they shoot it down at this range?"
 
@@ -337,7 +337,7 @@ You shrug.
 
 Irm is about to speak up when you jump in front of him and begin your tirade.
 
-"Well, see your new roommate here? We caught her spyin' on us after we flew on down to South America for repairs and supplies from the underground cells. Picked up a couple of the Irregulars along the way, but no worries. They seem pretty cool so far. Anyway, the big news? Turns out she's from that super hot-shit brigade out east, the...S-E-X Force or some shit. Says she's got some kinda super mind-powers, sees the future or somethin', won't shut up about that crap. Anyway, after that we hooked up with that old DC guy and went off to the Earth Cradle to pick up some stuff. Turns out the head lady there was workin' on some new tech that makes robots heal or somethin', like your Soulgain, 'cept it don't eat at ya. It's really cool, we stuck some on Raioh and it fixed itself all nice and pretty-like. But the EFA, see, they want this stuff, so they sent down the Cry Wolves, who’re dead, 'cept they're not and now they're tentacle beasties, and they kicked all our asses. We got saved by this Wodan guy and his super-Grungust, and they all came back with us along with Sophia, the doc lady.”
+"Well, see your new roommate here? We caught her spyin' on us after we flew on down to South America for repairs and supplies from the underground cells. Picked up a couple of the Irregulars along the way, but no worries. They seem pretty cool so far. Anyway, the big news? Turns out she's from that super hot-shit brigade out east, the... S-E-X Force or some shit. Says she's got some kinda super mind-powers, sees the future or somethin', won't shut up about that crap. Anyway, after that we hooked up with that old DC guy and went off to the Earth Cradle to pick up some stuff. Turns out the head lady there was workin' on some new tech that makes robots heal or somethin', like your Soulgain, 'cept it don't eat at ya. It's really cool, we stuck some on Raioh and it fixed itself all nice and pretty-like. But the EFA, see, they want this stuff, so they sent down the Cry Wolves, who’re dead, 'cept they're not and now they're tentacle beasties, and they kicked all our asses. We got saved by this Wodan guy and his super-Grungust, and they all came back with us along with Sophia, the doc lady.”
 “Then we came back, and we forced Kai to tell us why we were fighting zombies in Africa. He says that the EFA is being run by space monsters now, and they're fighting Princess Future-Britches here's group. ‘Cept they’re not good either and we don’t know what they want ‘cause she won’t shut up about how special she is.” *Glare* “Anyway, they sent their big ship with the big gun and more of the same tentacle zombie Gespies after us just now, along with a bunch of weird fancy prototype mechs. We beat them before they blew us all up and captured a couple. You wanna see an alien, Axel?”
 
 "...This is why I let Lemon handle this shit..." 

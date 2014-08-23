@@ -44,7 +44,7 @@ Kai pulls you away from Arado's testicles and looks into the boys face. "What's 
 
 "Know what?"
 
-"Dark Brain wasn't dead. We'd killed the him that could exist in our world, but he still existed in all the others. He was... throwing bits of other dimensions at ours, taking our world apart piece by piece, using a channel that was left in our dimension...by you."
+"Dark Brain wasn't dead. We'd killed the him that could exist in our world, but he still existed in all the others. He was... throwing bits of other dimensions at ours, taking our world apart piece by piece, using a channel that was left in our dimension... by you."
 
 Irm looks shocked at this. "By us?! What the hell did we do to your dimens... Oh, you mean Lygues??"
 
@@ -134,7 +134,7 @@ The port side toilet is gone.
 
 ######Meanwhile...
 
-"You don't need to drag us all this way, Mr Almer. We...we can sort something out."
+"You don't need to drag us all this way, Mr Almer. We... we can sort something out."
 
 "Captain Enfield. For the last time. SHUT. UP."
 
@@ -144,7 +144,7 @@ The Shadow Mirror troopers patrolled the bridge, as Lefina, Sean, and the rest o
 
 "What I do with that doll is my own business! Besides, your little 'Dimensional co-existence wave' seems to have damaged the original W17. We might need yours for spare parts."
 
-Lefina held her breath to keep herself calm. Aliens, rampant computers, interdimensional overlords...She'd forgotten how terrible a simple human being could be.
+Lefina held her breath to keep herself calm. Aliens, rampant computers, interdimensional overlords... She'd forgotten how terrible a simple human being could be.
 
 "You've hurt us, you Irregulars. Hurt us bad, worse than the EFA, even. And I for one intent to make you repay that debt. This ship is just the downpayment, all those fancy mechs of your will be ours. Your fighters will replace the men and women you slaughtered!!! And you'll break the EFA for us. Maybe then, you can go back to your shithole dimension."
 
@@ -156,7 +156,7 @@ Axel turned to the bridge operator Eun. "What the hell is it now?? Are those thr
 
 "SHIT!! On the Screen."
 
-The white lines of the Shirogane Kai, the EFA experimental Carrier, were unmistakable to Axel. "It's Linjun's oversized dildo...the ATX have overtaken us. So much for the finest ship in your world!" Eun shrinks away as Axel backhands her.
+The white lines of the Shirogane Kai, the EFA experimental Carrier, were unmistakable to Axel. "It's Linjun's oversized dildo... the ATX have overtaken us. So much for the finest ship in your world!" Eun shrinks away as Axel backhands her.
 
 "You troops! Watch them like hawks. Don't so much as let them look at their weapon controls, our troops will win this. We'll run this blockade, and finally stomp ATX and Beowulf into the dirt!!"
 
@@ -184,7 +184,7 @@ Tetsuya Onodera adjusts his captains jacket, still ill-fitting even after months
 
 "Ah right."
 
-"Gilliam calculates they all should be somewhere on the planet, but where exactly is hard to narrow down. On top of that, Bullet and Kusuha seem to have been kidnapped by Vindel, and Arado...ran into some familiar faces."
+"Gilliam calculates they all should be somewhere on the planet, but where exactly is hard to narrow down. On top of that, Bullet and Kusuha seem to have been kidnapped by Vindel, and Arado... ran into some familiar faces."
 
 "Well, we were going to have to search the planet anyway, I suppose."
 
@@ -254,7 +254,7 @@ Katina sniffs. "Doesn't sound like me at all."
 
 "You're delusional. You've gotten it into your head that theres another version of everyone on this world, and that we're going to meet them all, one by one, and have silly little adventures where we learned about ourselves and shit. Bunch of comicbook bullshit, that's what it is."
 
-"Can we stop arguing about this and get after them??", pleads Seolla. "I don't want to let that idiot alone with...her, for too long."
+"Can we stop arguing about this and get after them??", pleads Seolla. "I don't want to let that idiot alone with... her, for too long."
 
 Katina whips around and twists her face into a familiar mask of rage. "Are you accusing me of chasing after your bigmouth emptyheaded little shit of a boyfriend??!?! What kind of cradle robber do you take me for?? I'd sooner marry Russel than chase after Arado's bony ass!!"
 

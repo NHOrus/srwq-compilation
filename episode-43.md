@@ -100,7 +100,7 @@ Gilliam raises his visible eyebrow. "Did something just occur to you, Duminass?"
 
 *Yes, it would appear so... because we're seeing the backlash of that salvation right now.*
 
-"I...don't understand."
+"I... don't understand."
 
 The multiverse is an unusual place, and time is malleable here, like play-do. You can certainly change it, but there will still be marks in the material unless you knead it. You cannot simply undo something as great as the destruction of two world, Mr. Yeager. The effects are too great, something has to happen on the same scale, at some point in the fabric of reality. In our case... The Storm.
 
@@ -212,7 +212,7 @@ Jamie simply looks distractingly down the corridor. You get a flash of Kusuha bo
 
 ---
 
-"Ring...How is Jayce?"
+"Ring... How is Jayce?"
 
 "No better really... He's offered to help me patch up the Huckebien, but every time he sees it he thinks back to the battle, and how he di... He's not getting worse, at least."
 
@@ -224,13 +224,13 @@ Jayce simply sits on a nearby stool, swinging his left leg aimlessly. "I wonder.
 
 ---
 
-"I don't want to. Please, our sister...S he has a place for us in Japan. We can go with her, like the Round Table, a band of knights to save the world. Going so far away...What could be for us there?"
+"I don't want to. Please, our sister... She has a place for us in Japan. We can go with her, like the Round Table, a band of knights to save the world. Going so far away... What could be for us there?"
 
 You shake your head. "Seolla, Ouka is never going to accept me. She never did, and after what happened, she never will. And frankly, girl, I think you're better off without her. You haven't been talking of anyone else since you woke up, that ain't healthy."
 
 The girl backs away from you slightly, and turns to Arado. "Arado, please... If you talk with Ouka, she'll... She told me she'd do anything, if you came back to her..."
 
-Arado grimaces, avoiding both your stares. "I dunno... Maybe she could fit in with us somehow, but... I dunno, if we're going, its not worth getting ourselves killed at Izu to find her, but if we're staying, I'd...I 'd like to see if we can make contact with her. Get her onboard, or at least get a straight answer from her on what she thinks of this whole mess."
+Arado grimaces, avoiding both your stares. "I dunno... Maybe she could fit in with us somehow, but... I dunno, if we're going, its not worth getting ourselves killed at Izu to find her, but if we're staying, I'd... I 'd like to see if we can make contact with her. Get her onboard, or at least get a straight answer from her on what she thinks of this whole mess."
 
 You try to figure out what Arado's trying to say with all that, then look over at Latooni. "Subota? Still angry at me for getting you transferred here?"
 

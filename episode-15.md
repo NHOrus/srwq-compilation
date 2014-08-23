@@ -133,7 +133,7 @@ She walks off. You look around at Axel, then at the dress in your hands.
 
 The penny drops.
 
-"Wait a minute...those are Axel's clothes!!"
+"Wait a minute... those are Axel's clothes!!"
 
 But Lamia is gone.
 

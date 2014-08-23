@@ -2,9 +2,9 @@
 
 ##SRWQ Mission 19: This could be the start of a beautiful relationship
 
-The hulking monstrosity rips itself out of the ground even as it transforms, the red under-mech being slowly consumed by the white plaque spreading across it, turning it into something...else.
+The hulking monstrosity rips itself out of the ground even as it transforms, the red under-mech being slowly consumed by the white plaque spreading across it, turning it into something... else.
 
-I AM WODAN! WODAN YMIR!!! ALL WHO TRESPASS ON THE REALM OF MAGUS...SHALL PERISH!!!
+I AM WODAN! WODAN YMIR!!! ALL WHO TRESPASS ON THE REALM OF MAGUS... SHALL PERISH!!!
 
 The WildRaubtier settles on its right shoulder, blazing away at the EFA mech in front. "AND I AM KATINA TARASK, THE THUNDEROUS FURY! TODAY, WE STAND AGAINST THESE ENEMIES AS COMRADES!"
 
@@ -30,11 +30,11 @@ A girls voice, sounds like someone Latoonis age. "Your friend is heading inside 
 
 "Yeah, Wodanamir, he told me that, quite loudly, when he burst out of the ground."
 
-"He's dangerous! He...he..."
+"He's dangerous! He... he..."
 
 "He just saved us from a demon tentacle gespenst and he's awesome and cool! Back off!"
 
-"But... wait... we fought him in our world...he must be like Lamia, the same version, but he never got through the portal. Wodan, what... what are you... going to do?"
+"But... wait... we fought him in our world... he must be like Lamia, the same version, but he never got through the portal. Wodan, what... what are you... going to do?"
 
 "Nggh... I am... Wodan Ymir... Magus, the Machine Cells... they're... I understand..."
 

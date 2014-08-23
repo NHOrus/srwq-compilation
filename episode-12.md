@@ -16,7 +16,7 @@ Irm throttles forward. "Russel, you and me will secure that R-Blade. Dumi, stop 
 
 "Russel, can you see the R-Blade on the Sonar?"
 
-"Yeah, its not down too far. Only a few meters...wait, its still moving!!"
+"Yeah, its not down too far. Only a few meters... wait, its still moving!!"
 
 With a burst of spray, the R-Blade boosts a short distance out of the water, and stabs downward with a blunted Tonfa. The weapon embeds itself in Russel's leg, as the R-Blade drags itself out of the water by the handle.
 
@@ -58,7 +58,7 @@ The Schwartzritter turns to face the Gaurlion. "That voice... Impossible!!!"
 
 "Hah! Don't turn your back on an enemy. RULE ONE BITCH!!!" The Soulgain charges, and rams its fist into the cockpit of the Schwartzritter.
 
-Well, technically. The fist certainly hits the Schwartzritter, but the force involved isn't exactly what you'd associate with 'ramming'. More...'tapping'.
+Well, technically. The fist certainly hits the Schwartzritter, but the force involved isn't exactly what you'd associate with 'ramming'. More... 'tapping'.
 
 "Wait... what... what's going..." Axel head lolls about the Soulgains cockpit, and turns to the head up display thats off to the side of his viewscreen.
 
@@ -72,11 +72,11 @@ This whole scene seems to snap the Black Knight back to her senses, and she enga
 
 "W-wait!!" The Guarlion reaches down and grabs the Soulgain, barely stabilising. If Arado were more technically minded, he might realise this is only possible because the Soulgain is missing so many components, but he's preoccupied right now.
 
-"D...Did you recognise me?"
+"D... Did you recognise me?"
 
 "I don't... how are you talking like a dead man?"
 
-"Oh god, you do. Dang, I know you're not Latooni, that really only leaves Seolla and Ouka...Unless you're that hag Aquila. I really can't tell with that sock in your mouth."
+"Oh god, you do. Dang, I know you're not Latooni, that really only leaves Seolla and Ouka... Unless you're that hag Aquila. I really can't tell with that sock in your mouth."
 
 "It's not... You haven't heard the last of the Black Knight, Pretender!!!"
 
@@ -174,7 +174,7 @@ The Granzon begins to glow green.
 
 ---
 
-u doing...Huh?"
+u doing... Huh?"
 
 Masaki stops, his blade at the Granzon's throat, and looks down at the jungle below him. "Ok, I know I sometimes lose my way, but not like that!"
 

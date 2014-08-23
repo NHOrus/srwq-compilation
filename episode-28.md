@@ -130,7 +130,7 @@ All this feedback is freaky... Damn, Katina's people really did a number on us. 
 
 *Oh I remember now, that half-baked sample that Armana had rescued from the scrap-heap. Far from an ideal tool, but then, I get so little material to work with these days...*
 
-"Ugh...Get out...of my head..."
+"Ugh... Get out... of my head..."
 
 *I'm afraid I can't allow Laodicea to run around on his own anymore, my dear. That noble idiot will run what's left of the Empire into the ground if I leave it up to him. No, I'm afraid I'll have to take over for my little 'brother', and you'll have to help me.*
 

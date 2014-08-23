@@ -131,17 +131,17 @@ Ryuune looks pensive for a second, then goes back to her desk, and begins pressi
 
 "I'd like to meet this prisoner of yours, in our medical center downstairs. We're going to need some specialized equipment, to check whether he's really human or not."
 
-"R-right, but we'll have to check on him as you're doing it, to make sure he's...treated properly."
+"R-right, but we'll have to check on him as you're doing it, to make sure he's... treated properly."
 
 You don't think Ryuune sees Irm facepalming.
 
-"And...he has to be whole afterwards. He's m-... our prisoner."
+"And... he has to be whole afterwards. He's m-... our prisoner."
 
 "Well, as long as he's not an alien, there shouldn't need to be any autopsy..."
 
 The remains of the Wuerger are lifted out of the Trilobite by crane, and brought to a nearby warehouse, while Arado, still bandaged, is taken to the medical centre.
 
-"Please, Ryuune! If you're anything like our Ryuune, you have to...well ok, you're probably not like our Ryuune, since you're not wearing those lovely cutoffs, but still..."
+"Please, Ryuune! If you're anything like our Ryuune, you have to... well ok, you're probably not like our Ryuune, since you're not wearing those lovely cutoffs, but still..."
 
 "I only wear my cutoffs on special occasions. Now, you're from another world, correct?"
 
@@ -173,7 +173,7 @@ Ryuune continues her questions as she and the DC scientists adjust a varied and 
 
 "What kind of weapon is he using?"
 
-"Ah...I don't know! Why are asking these weird questions??"
+"Ah... I don't know! Why are asking these weird questions??"
 
 "Well, part of the reason is the cute faces you keep making..."
 
@@ -223,7 +223,7 @@ Ryuune claps lightly. "Very good, Miss Subota. If I had a ribbon to reward you, 
 
 Latooni turns slightly red at the mention of ribbons.
 
-"Is...Are you done with Arado yet??"
+"Is... Are you done with Arado yet??"
 
 Ryuune smiles. "You know, you're awfully attached to that young boy, given that you met him a few hours ago while he was trying to capture you."
 
@@ -345,7 +345,7 @@ LASER ATTUNED TO WINDOW VIBRATIONS
 
 "It's quite alright. It reminds me of the stable I used to own."
 
-"The DC codes you signalled us with were rather old, but accurate. Given your background, would I be right in suggesting you're affiliated with...a nother DC faction?"
+"The DC codes you signalled us with were rather old, but accurate. Given your background, would I be right in suggesting you're affiliated with... a nother DC faction?"
 
 "Both Sanger and I served directly under the Bian Zoldark of our universe. We fought for his ideals, and when the DC was defeated, we followed his dying wish and brought those ideals to the new champions of Earth, and fought with them against many threats to humanity."
 

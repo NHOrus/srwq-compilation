@@ -10,7 +10,7 @@ Irm grimaces. "So, we just hand in our favor to Van Vat Tran, ask him to falsify
 
 Kai nods. "I know it doesn't sound like a very nice thing to do, but its the only way we're going to fix our world. With most of the Shadow Mirrors gone, the ELF on its last legs and the DC basically being kept alive as an excuse for all the military funding, the EFA has to go, or at least change massively."
 
-"It just doesn't feel...right to be messing with them like this. And theres the danger that they'll figure out what we're doing."
+"It just doesn't feel... right to be messing with them like this. And theres the danger that they'll figure out what we're doing."
 
 You break in through the tension. "Look, why don't we at least see what the alien scanner says first? Thay way, if we can detect Vindel with it, we'll know where he is, and we'll have a few spots to point to that we can say to the Irregulars 'Hey, its over there!' Then we can go on ourselves and find the Colonel while they 'eliminate' the other options."
 
@@ -142,7 +142,7 @@ The air is thick with fire from both sides. The main engagement is directly over
 
 Russel strains as the Command Wolf tries to drive its plasma stakes into his torso, but just about manages to hold the stronger mech off with leverage. Then Arado drives his assault blade into the black mechs face.
 
-"You bastards! We could have settled this peaceful...huh?!??" Arado is taken aback as the gooey contents of the Gespensts head spray onto his mech, including what looks disturbingly like an eyeball.
+"You bastards! We could have settled this peaceful... huh?!??" Arado is taken aback as the gooey contents of the Gespensts head spray onto his mech, including what looks disturbingly like an eyeball.
 
 "No, we really couldn't." The black mech boosts backward and swings Russels Gespenst into the Guarlion, sending both mechs sprawling.
 
@@ -174,7 +174,7 @@ The 2 Gigans turn away from their bombardment targets, and turn on their attacke
 
 Kai's improved output gets him past the pods, and he charges at the Cerberus, as it charges up its main cannon. At the last moment, it boosts away from his Jet Magnum, throwing the shot off, and it passes well over the Angelgs head.
 
-"Ma...jor..."
+"Ma... jor..."
 
 "Oh god, I don't need this..."
 
@@ -374,7 +374,7 @@ Jayce swings around, trying to find a fight he can actually help to win, and spo
 
 ---
 
-"Barrel warp within limits...lets try her again!!" Ring reattaches the Black Hole Cannon, and once again, the air around her turns purple as reality prepares to vomit itself inside out.
+"Barrel warp within limits... lets try her again!!" Ring reattaches the Black Hole Cannon, and once again, the air around her turns purple as reality prepares to vomit itself inside out.
 
 "Admiral, its preparing to attack again!!!"
 
@@ -394,7 +394,7 @@ Beams, bullets and missiles fly at the red mech, and Ring throws it into full bo
 
 Brooklyn pulls out of his dive and land on the tarmac, next to the fresh furrow thats been dug through the base. He turns to face the advancing Garmraid, as it picks up speed again.
 
-"Well, I've broken my lance on the main prize...lets see what the other contestants are like!"
+"Well, I've broken my lance on the main prize... lets see what the other contestants are like!"
 
 The Vaisaga leaps forward, cutting into the Garmraids flank, and drawing something like blood. But then Brooklyn dances backward to avoid a massive fist, and raises his blade to deflect a forehead beam. "It seems theres still fight in you! Excellent!! It's a duel!!" 
 

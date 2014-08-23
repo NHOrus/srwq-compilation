@@ -10,7 +10,7 @@
 
 "Oh right... And why are you fiddling with the string of my dress?"
 
-"Er...welll..."
+"Er... welll..."
 
 "That string is just decorative. THIS one opens my bodice."
 
@@ -258,7 +258,7 @@ You nod. "Dumi had been trying to get me there for ages, friendly as anything, b
 
 "This crazy old man, working for Lily Junkers to make her space army. He'd made something out of Dumis body, the ODE system, to connect peoples brain together, and get them all to think as one person... Now he was wierd. He was trying to convince me that if everyone was connected, there'd be no war, no suffering, none of it. The wierdest bullshit I'd ever heard..."
 
-"He wouldn't be wrong, per se... If there was only one real person in the world, that person would never get heartbroken, or angry at another, or try to kill people...But I doubt he'd ever fall in love, or get told jokes, or anything good in life either."
+"He wouldn't be wrong, per se... If there was only one real person in the world, that person would never get heartbroken, or angry at another, or try to kill people... But I doubt he'd ever fall in love, or get told jokes, or anything good in life either."
 
 "Yeah, Juergens must have been fucked in the head. But when we shut him down, he said he'd seen Dumi's mind... said it... was too human, that Dumi was making himself retarded or something."
 

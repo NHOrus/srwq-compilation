@@ -77,7 +77,7 @@ Both guns empty, you dive between the mechs legs and come up with your blade ton
 
 Inside, the Tausendfuessler is warming up its engines, and you see Latooni running up the rear ramp into its cargo bay. At the far end of the hangar, there is a massive explosion as the half-wrecked Randgrith self-destructs, blowing out the far wall and revealing an escape route.
 
-"You...you're not getting away! We need you to stop!" The Koryuoh charges at the transport, a spear appearing in its hands in a flash of flame.
+"You... you're not getting away! We need you to stop!" The Koryuoh charges at the transport, a spear appearing in its hands in a flash of flame.
 
 "Suck my fumes!!"
 
@@ -127,7 +127,7 @@ Beowulf lands, and turns to his enemies both new and old. Already, its component
 
 "No!" Gilliams voice breaks in over the comm. "They're not important, just some Shadow Mirror troopers. Concentrate on the Zweizergain!! If we don't secure the System XN, this will be for nothing!!"
 
-"Urgh...Right!"
+"Urgh... Right!"
 
 Koryuoh turns and charges into the melee, as Sanger, Ratsel, and Gulliam head to support the SRX team and a full squad of Huckebiens.
 
@@ -187,7 +187,7 @@ You head up to the cockpit. There you find Irm manning the sensors and comms, an
 
 "You're asking me? I was just unpacking the Assault Lander from deep storage when Dad called me to say the portal had been compromised. What happened out there?"
 
-"There were...lots of them. And I couldn't even recognize them!! That's not possible! I was trained!!"
+"There were... lots of them. And I couldn't even recognize them!! That's not possible! I was trained!!"
 
 "Not very well."
 
@@ -207,7 +207,7 @@ With a THWAP!!, Latooni's glasses go flying as you roundhouse her in the face.
 
 "What is it?"
 
-"I'm picking up friendly signals...to the north, where we're headed. They're about a hundred klicks north of the base, and they just appeared out of nowhere! They couldn't have sneaked up there, there was no time..."
+"I'm picking up friendly signals... to the north, where we're headed. They're about a hundred klicks north of the base, and they just appeared out of nowhere! They couldn't have sneaked up there, there was no time..."
 
 Latooni has recovered her glasses, and has gone back to her maps, although she is rubbing her future black eye.
 
@@ -227,7 +227,7 @@ Theres a burst of static. "ZHZHZHHZHhe hell?"
 
 "...what."
 
-"You know, I was actually sorta looking forward to meeting a new Beowulf. I'd get to fall in hate all over again, have some fights, maybe even put the dog down this time and spare our new world his stinking presence. But him coming here...that's going to take some getting used to."
+"You know, I was actually sorta looking forward to meeting a new Beowulf. I'd get to fall in hate all over again, have some fights, maybe even put the dog down this time and spare our new world his stinking presence. But him coming here... that's going to take some getting used to."
 
 Irm grabs the mike back off you. "Are you seriously saying that the world we were going to head to is attacking us first? How the hell does that even work? How would they know we're coming?"
 
@@ -274,7 +274,7 @@ Wierd Thingy
 ```
 ---
 
-"Actually, now that it's important...what is that thing??"
+"Actually, now that it's important... what is that thing??"
 
 Irm follows your gaze. "That? It's a spinoff from the Grungust line, the Assault Lander. It's based on the Type 1's Gust Lander form, to serve as an artillery platform and fortress assault unit, but then Dr. Albark joined TLI, and before you know it we were focusing all our attention on the Earthgain line."
 
@@ -282,7 +282,7 @@ Ibis perks up at the talk of heavy weapons platforms.
 
 Ibis looks crestfallen as Irm climbs into the Assault Lander, but perks up when Russel offers her the Red Gespenst. You head over to the Randgrith, where Latooni is offloading the extra missiles and ammo for safe keeping.
 
-"I...er...I'm sorry I broke your face earlier."
+"I... er... I'm sorry I broke your face earlier."
 "I'm a full graduate of the School. A black eye isn't going to impair me in any noticeable way."
 "Still, it was cruel of me to do it. You were only right, I wasn't trained as well as you. You have so many assets that I don't have..."
 
@@ -332,7 +332,7 @@ That voice...
 
 You come to a screeching stop, and jump back as the vice-like thing on its right arm almost take your head off.
 
-"You...you're dead."
+"You... you're dead."
 
 "Huh?"
 

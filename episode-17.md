@@ -117,7 +117,7 @@ You find Latooni on the top of Trilobite 1, looking out over the DC base with a 
 
 You ignore the blatant insult for now, and put a glum expression on your face. Not that Latooni is looking at you.
 
-"Um, Subota...do you ever get... lashbacks, of what happened at the School?"
+"Um, Subota... do you ever get... lashbacks, of what happened at the School?"
 
 "It would be quite odd for a person to never remember what happened during the formative years of their lives."
 

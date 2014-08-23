@@ -312,7 +312,7 @@ Behind, the sea churns into a waterspout as the Vysagas blade releases the power
 
 The Killer Whale starts to submerge again.
 
-"Heh...what a time to feel nostalgic."
+"Heh... what a time to feel nostalgic."
 
 "Sir?"
 
@@ -326,7 +326,7 @@ Then the Soulgain burst out of the other hangar door, and boost-jumps back towar
 
 "Ok, who's next?"
 
-"Major! I'm picking up more signals!! Something is coming up behind the other Trilobite...no, two blips! Their ETA is 6 minutes!!"
+"Major! I'm picking up more signals!! Something is coming up behind the other Trilobite... no, two blips! Their ETA is 6 minutes!!"
 
 "We worry about things closer to hand first. The Tausendfeussler, has it deployed PTs??"
 

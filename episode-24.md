@@ -56,7 +56,7 @@ You kick through the pylon of a second turret, grab it with the Plasma Leaders a
 
 Even the Star Team are having issues, barely getting into range to fire heavy missiles before the flak sends them away again.
 
-"Ok, not going so good...OK, switch around!! Star Team take the turrets, I'll handle the armor!"
+"Ok, not going so good... OK, switch around!! Star Team take the turrets, I'll handle the armor!"
 
 "Roger!" The two AMs burst off in opposite directions, laying fire into the missile swarms. A network of orange bubbles follows you as you fly around the satellite and ram your fists into the ragged section of armor."
 
@@ -112,7 +112,7 @@ As you roll into the cockpit, a comm window pops up, showing a young blue-haired
 
 "Captain Despinis. But Marion will do for now. I suggest avoiding the crew, they're still in the dark as to the nature of all this. The Comms officer is getting worried that I'm having him ignore the satellites distress calls."
 
-"Ugh...huh."
+"Ugh... huh."
 
 "I'll arrange private quarters. Stay out of sight." The comm window clicks off.
 
@@ -180,7 +180,7 @@ Shuu Shirakawa smirks. It's enough to make Ring shiver.
 
 The crew of the Eurydice gawk as you stride through the mess hall like you own the place. Some of them begin to whisper. You start snatching up food from the canteen trays, its reconstituted factory stuff but its better than space rations.
 
-"So...whadda you guys do for fun around here?"
+"So... whadda you guys do for fun around here?"
 
 The crewman nearest stares at you as you attack your plate. "Er, miss... Who exactly are you?"
 

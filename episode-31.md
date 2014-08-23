@@ -20,7 +20,7 @@ Yuuki sniffs his rose, throws it away and picks up another. This one is pinker.
 
 "Kobayashi... Why would you of all people ask that?"
 
-Kobayashi-2 strokes her clean scalp. "I...d on't know. I just think you do such a g-good job..."
+Kobayashi-2 strokes her clean scalp. "I... d on't know. I just think you do such a g-good job..."
 
 "So exactly how hard does Carla have you whipped, sir?"
 

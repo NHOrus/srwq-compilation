@@ -130,7 +130,7 @@ Arado pipes up. "Wait, so you give Ibis the option to come, but not us underage 
 
 *Miss Tarask, I don't think you're going to get what you want this time.*
 
-"Wuh...Dumi, what do you mean?"
+"Wuh... Dumi, what do you mean?"
 
 *I've been listening in on the conversation, from the vibrations in the walls. They're in a much more serious mood than you, I'm afraid. Irm is confused and rather out of his depth, truth be told. Kai is continuing to manuver himself into a full authority position over the group, with Echidna continually reminding him that he's not a true Shadow Mirror. They're caught in a deadlock between wanting to send a small group to Africa, or simply remaining here until Axel recovers to reclaim command. Should you abruptly enter the room demanding they all go the carnival, I don't think it would greatly improve their opinion of you.*
 

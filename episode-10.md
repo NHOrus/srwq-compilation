@@ -323,7 +323,7 @@ The Nacht and the Weiss impact on the Rockies at close to Mach 0.7. Fleshy cushi
 
 "Shut... up..." Excellen points her beam cannons at the misshapen head, but from somewhere, tentacles grab the Wiess's arm, and both legs.
 
-"So pitiful, trying to live in their world when you're so much more. You...I can barely stand to touch you."
+"So pitiful, trying to live in their world when you're so much more. You... I can barely stand to touch you."
 
 "Coulda fooled me..." The tentacles start to squeeze, and Wiess's buckled armor starts to crack.
 

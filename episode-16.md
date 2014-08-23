@@ -56,7 +56,7 @@ Dressed in her silver jacket, undershirt threatening to pull out of her pants wi
 
 "Ahoy, Miss Loveless! How go things!" Brooklyn shouts up to her.
 
-She turns and climbs down to the small group. "Mr Luckfi...no, Brooklyn. I'm feeling fine, thank you very much. And... I haven't been introduced to you two yet."
+She turns and climbs down to the small group. "Mr Luckfi... no, Brooklyn. I'm feeling fine, thank you very much. And... I haven't been introduced to you two yet."
 
 "I'm Ibis, and this is Latooni. We're glad to meet y-"
 
@@ -100,7 +100,7 @@ Lamia manages a weak smile. "Thank you. I wasn't sure how I'd be treated if ever
 
 "Well, don't worry about it. It won't come up, at least not compared to Katinas antics."
 
-Brooklyn looks at Lamia thoughtfully. "Ms Loveless, if I may be so bold...Why are you wearing Major Almer's uniform?"
+Brooklyn looks at Lamia thoughtfully. "Ms Loveless, if I may be so bold... Why are you wearing Major Almer's uniform?"
 
 Lamia visibly blushes. "Er... well... when I came too, after the fight... I just didn't want to put on that terrible green dress anymore. It just looked so... artificial... Like something a doll would wear. I wanted to wear something... a real person would wear."
 
@@ -114,7 +114,7 @@ Ibis had expected a smile, or a friendly nod. She hadn't expected Lamia to glomp
 
 "Oh... thank you, Ibis. I..*sniff*... You don't know how much this means to me.."
 
-Ibis says nothing, because any attempt to speak would result in a mouthful of boob. Oh god...they're massive! How does she stand up straight with these things? Is her spine artificial too?
+Ibis says nothing, because any attempt to speak would result in a mouthful of boob. Oh god... they're massive! How does she stand up straight with these things? Is her spine artificial too?
 
 The tender moment is rudely cut short by the combat alert going off.
 
@@ -198,7 +198,7 @@ Then it dawns on you that you're sort of stuck. On a sinking battleship. That, w
 
 You set the remaining plasma leader to repel, and push outwards to tear yourself free. A large of the Kestrel's halfmelted bow spludges off, and you start to extract yourself from the mess that was a battleship.
 
-"Come on...Come on!!!"
+"Come on... Come on!!!"
 
 *Allow me.*
 
@@ -304,7 +304,7 @@ The Neo DC base in the middle of Ivory Coast is quite impressive, for something 
 
 Ryuunes face falls at this. "I... Not this time. This is too important."
 
-Vat Tran meets your group and directs you into the main building. "So...The Shadow Mirrors are in a bad way, then?"
+Vat Tran meets your group and directs you into the main building. "So... The Shadow Mirrors are in a bad way, then?"
 
 "Unfortunately, yes. The Irregulars have thrown things into chaos, and the only way to solve things is to send them on their way."
 

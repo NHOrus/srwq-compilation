@@ -268,7 +268,7 @@ You lead the charge through the winding corridors, following Dumis instructions 
 
 You emerge with a kick onto the surface of the Neviim, near to a Peregrine battleship still sporting long-defunct UCC markings. The Eurydice is full, Katina, you'll have to hitch a ride with Juergens.
 
-"Dammit...ok, everyone get in!"
+"Dammit... ok, everyone get in!"
 
 You fly into the docking bay of the Peregrine, a snug fit as there are several black Bartoll-esque mecha also sharing the space. You hear the Peregrines guns going off, then a rough jerk as it accelerates into space. 
 
