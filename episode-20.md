@@ -142,7 +142,6 @@ She turns to you, looking up at you with a like-thats-gonna-work look, her mouth
 
 "The Machine Cells are a Big Deal. I need to be close to them because what happens to them could determine the fate of the whole Earth Sphere. Its as simple as that."
 
-
 You beckon Latooni over to Dr. Nate, who appears to be working on the Metal Rose. "So, Doc...  have you figured out what's going to happen with the Machine Cells yet?"
 
 "...I've been out of the Earth Cradle for just over an hour. That's hardly enough to comprehend the implications of whats happened to me."
@@ -217,29 +216,18 @@ Kai nearly jumps out of his seat. "A... a man? Gruff voice, late 30s, can't do t
 
 "...Wait, BEOWULF???"
 
-"It was the Moon Cradle drop. The main fleet took on the DC's fleet, while three teams dropped in to secure the base. The Beowulves were to assault their main lines, The boys from the SRX project would penetrate the base and take out the aliens. And we Cry Wolves would secure the fancy tech, the Huckebien Seal and the other goodies they keep on the rim of the base."
-
-"All went to plan. Beowulf kicked ass, then the super-secret SRX boys went into the base, didn't even get to see their units. We found the Huckebien and captured some alien units mostly intact. Then, as the fleet was winning, the surviving enemy forces tried to counterattack the base. Beowulf's unit got hit, and hit hard."
-
-"It was Hugo who went first, and of course Aqua went right behind him. I made the call and the whole team moved out to support our 'allies'. Command was screaming in our ears, stay where we were, do our jobs, but I guess we were all too wrapped up in glory and honour or some shit. Big mistake."
-
-"We'd actually sorta wondered, why did the Beowulves stick to normal Gespensts, when the Gespenst Customs were so much better and not that expensive to make? Well, we got our answer fairly quickly. The Beowulves weren't using Gespensts at all. Inside the old-fashioned blue armor, was the EFAs big secret."
-
-"They were monsters, no other word for it. Unkillable monsters. Tentacles everywhere, organic parts all over the place. Endurance and weapon power like I hadn't seen on a PT since the S prototype. And they were taking on numbers that would have wiped out a battalion, and winning easily."
-
-"Then, when the aliens deactivated, I heard Beowulf ask command for permission to silence us. Command gave it in a heartbeat."
-
-"The team lasted maybe 5 minutes. And frankly, I give them kudos for that much. The monsters all but ate their units. Albero took a cockpit hit from Big Blue himself, can't have been much left but hamburger. Hugo and Aqua's suits were half-melted-down. Folgia, poor kid, I saw one of them pull him out of his cockpit and pop his head off like a pez dispenser."
-
-"I was on the ropes myself, but I took a gamble, that since they were killing us for having seen their secret, they couldn't let another faction see them. So I crashed what was left of my Gespenst right into the Moon Cradle's main building, where the SRX team was supposed to be. Blacked out from the crash. Woke up on the Kurogane, on the flight home, missing an eye."
-
-"I was a guest at Izu base for a while, a rare enough thing these days. I didn't learn much about SRX itself, but they managed to let slip a few details to me, as they tried to recruit me into the fold."
-
-"The way their boss put it, there's two main factions in the EFA right now: The Council of the First and Only, the ones with the organic tech, they control Geneva. Project SRX, on the other hand, has the best Earth tech, and all the DC scientists that were captured during the war. The military is split between them, kept in the dark over the two sides, taking the two sets of objectives as best they can."
-
-"SRX claimed the First and Only are aliens, trying to take over Earth from the inside, and that it was their job to stop them. They wanted me in on it, but I wasn't a fan of SRX or the School that spawned them, and what I saw in Izu base didn't convince me any better. I just couldn't see them having good intentions for earth if they won."
-
-"So I figured, I need to get these two sides fighting each other properly. End the cold, secret war, and start a proper, hot war. Get both sides to put their cards on the table, and see what they're really packing. I couldn't do that inside the EFA, not with the First out for my blood and SRX watching over my shoulder. So, I figured, if I want to start a war, why not join the experts?"
+"It was the Moon Cradle drop. The main fleet took on the DC's fleet, while three teams dropped in to secure the base. The Beowulves were to assault their main lines, The boys from the SRX project would penetrate the base and take out the aliens. And we Cry Wolves would secure the fancy tech, the Huckebien Seal and the other goodies they keep on the rim of the base.
+All went to plan. Beowulf kicked ass, then the super-secret SRX boys went into the base, didn't even get to see their units. We found the Huckebien and captured some alien units mostly intact. Then, as the fleet was winning, the surviving enemy forces tried to counterattack the base. Beowulf's unit got hit, and hit hard.
+It was Hugo who went first, and of course Aqua went right behind him. I made the call and the whole team moved out to support our 'allies'. Command was screaming in our ears, stay where we were, do our jobs, but I guess we were all too wrapped up in glory and honour or some shit. Big mistake.
+We'd actually sorta wondered, why did the Beowulves stick to normal Gespensts, when the Gespenst Customs were so much better and not that expensive to make? Well, we got our answer fairly quickly. The Beowulves weren't using Gespensts at all. Inside the old-fashioned blue armor, was the EFAs big secret.
+They were monsters, no other word for it. Unkillable monsters. Tentacles everywhere, organic parts all over the place. Endurance and weapon power like I hadn't seen on a PT since the S prototype. And they were taking on numbers that would have wiped out a battalion, and winning easily.
+Then, when the aliens deactivated, I heard Beowulf ask command for permission to silence us. Command gave it in a heartbeat.
+The team lasted maybe 5 minutes. And frankly, I give them kudos for that much. The monsters all but ate their units. Albero took a cockpit hit from Big Blue himself, can't have been much left but hamburger. Hugo and Aqua's suits were half-melted-down. Folgia, poor kid, I saw one of them pull him out of his cockpit and pop his head off like a pez dispenser.
+I was on the ropes myself, but I took a gamble, that since they were killing us for having seen their secret, they couldn't let another faction see them. So I crashed what was left of my Gespenst right into the Moon Cradle's main building, where the SRX team was supposed to be. Blacked out from the crash. Woke up on the Kurogane, on the flight home, missing an eye.
+I was a guest at Izu base for a while, a rare enough thing these days. I didn't learn much about SRX itself, but they managed to let slip a few details to me, as they tried to recruit me into the fold.
+The way their boss put it, there's two main factions in the EFA right now: The Council of the First and Only, the ones with the organic tech, they control Geneva. Project SRX, on the other hand, has the best Earth tech, and all the DC scientists that were captured during the war. The military is split between them, kept in the dark over the two sides, taking the two sets of objectives as best they can.
+SRX claimed the First and Only are aliens, trying to take over Earth from the inside, and that it was their job to stop them. They wanted me in on it, but I wasn't a fan of SRX or the School that spawned them, and what I saw in Izu base didn't convince me any better. I just couldn't see them having good intentions for earth if they won.
+So I figured, I need to get these two sides fighting each other properly. End the cold, secret war, and start a proper, hot war. Get both sides to put their cards on the table, and see what they're really packing. I couldn't do that inside the EFA, not with the First out for my blood and SRX watching over my shoulder. So, I figured, if I want to start a war, why not join the experts?"
 
 "And now, the Cry Wolves are back, and they're monsters as well."
 

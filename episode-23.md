@@ -4,7 +4,7 @@
 
 In our last episode, the team had managed to fight the Cry Wolves and the Hagane to a standstill, though their DC allies had paid a high price. Abandoning Van Vat Trans northern base, they head south to a hidden jungle base, with several prisoners liberated from the Council's organic control devices. However, as Axel Almer finally recovers from his coma, he raises the issue that the EFA are likely tracking them, and could attack them at any point. Dumi suggests that they distract the EFA, by sending a smell team to low orbit to attack one of the EFAs satellites. A small team that includes our 'heroine', Katina Tarask.
 
-    WILL KATINA GO ALONG WITH THIS MISSION IDEA?
+####WILL KATINA GO ALONG WITH THIS MISSION IDEA?
 
 ---
 
@@ -50,7 +50,7 @@ Anyway, our 'heroine' Katina Tarask has just blasted off into the sky, with her 
 
 ---
 
-Elsewhere...
+###Elsewhere...
 
 "Director, the target group has launched 2 Super Robots and 2 AMs, on a course for a low earth orbit."
 

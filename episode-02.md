@@ -10,6 +10,8 @@ Unfortunately, today is opposite day, and instead of you invading that world, yo
 
 You now have a slight problem. 
 
+---
+
 ####Your current forces:
 
 You are in the R-Blade, a prototype stolen by the Shadow Mirrors so they can design the R-Eins. Its doing quite well so far but you've been quite rough on it, it could do with a repair. You've picked up a Mega Beam Rifle and a Lion Railgun to give yourself some more firepower, but you're not sure you have that much ammo left.
@@ -85,7 +87,7 @@ You and Rusself dive into the Tausendfeussler as the engines burst into full pow
 
 ---
 
-######ELSEWHERE
+###ELSEWHERE
 
 "Whatever your little toy there is, Axel, getting reinforcements out of thin air isn't going to be enough."
 
@@ -121,7 +123,7 @@ Beowulf lands, and turns to his enemies both new and old. Already, its component
 
 ---
 
-######ANOTHER ELSEWHERE.
+###ANOTHER ELSEWHERE.
 
 "Dammit!! shouts Bullet. "Kusuha, switch us to Ryukooh, we're going after them!"
 
@@ -165,7 +167,7 @@ The Zweizergain, Ashsaber, and Koryuoh are gone.
 
 ---
 
-######NOW BACK TO OUR ACTUAL PROTAGONISTS
+###NOW BACK TO OUR ACTUAL PROTAGONISTS
 
 You stow the R-Blade in a crash rig and exit the cockpit. From the outside, its quite obvious you've been incredibly harsh on the unit, the armor is buckled all over the arms and torso and most of the identifying marking have been sandblasted off by the force of all the near-miss explosion.
 
@@ -178,8 +180,6 @@ Your long-lost pal Irm's voice calls over the tannoy. "Welcome to Kazahara Airli
 "Er, what about me?" queries Russel.
 
 "Sorry, there's no Guinness and no Lighter Fluid, so I guess you'll have to go thirsty."
-
->WHAT DO YOU DO? DO YOU HAVE A PLAN?
 
 You head up to the cockpit. There you find Irm manning the sensors and comms, an older man who looks a lot like Irm piloting, and Latooni in a corner seat, pouring over some maps and an iTablet.
 

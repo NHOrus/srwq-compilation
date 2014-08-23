@@ -10,6 +10,8 @@ Then the ghost of your best friend Arado, who you strangled with a power lead in
 
 Or at least that's how you see it.
 
+---
+
 ####Your allies:
 
 + Irmgard Kazahara: Womaning super robot pilot and son of one of Shadow Mirrors main scientists. Hasn't realized he's not in charge, you are. Piloting a modified Gust Lander.
@@ -174,7 +176,7 @@ Pic related strides out of the Trilobite, and joins you.
 
 ---
 
-#####INTERLUDE: ELSEWHERE
+###INTERLUDE: ELSEWHERE
 
 Axel approaches the northern camp, and finds a few scattered Gespensts hiding behind a ridge.
 
@@ -188,6 +190,4 @@ Axel leaps up to the top of the ridge, and has a good look at the scene.
 
 "Well now... that is complicated, now that you mention it."
 
----
-#####THREAD OVER
 [DGG-XAM4]: images/7pCTY2R.png "DGG-XAM4 Dumi"

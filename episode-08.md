@@ -196,7 +196,7 @@ Kai turns to you. "Well Katina, you're our random outburst generator. Where do y
 
 ---
 
-####MEANWHILE
+###MEANWHILE
 
 Ratsel takes his hand of Arado's mouth as the boy finally calms down. "Oh thank god you're here, Mr. Finesmacker. I thought I was going to die in here, or have horrible things done to me, or get my mind broken, or-"
 

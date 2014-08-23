@@ -2,13 +2,14 @@
 
 ## SHADOW MIRROR QUEST (AKA SRW Q)
 
-####Back of Box Blurb:
+###Back of Box Blurb:
 
 Spurred on by their victories against the DC and the Inspectors, the EFA military have taken more and more control of the Earth Sphere, crushing all dissent beneath their heels. Only the Earth's Liberation Front stood in their way, but even these brave soldiers could not stop the juggernaut. Now, the only remaining source of dissent are the ELFs financial backers, the Shadow Mirrors. And even now, the EFA Marshall their forces to stamp them out.
 The Shadow Mirrors no longer have a place in this world. It is time to *find a new one.*
 
-    MAIN CHARACTER SELECTED
-
+```
+MAIN CHARACTER SELECTED
+```
 ---
 
 ###From the Desk of Adler Koch, director of SCHOOL.
@@ -19,9 +20,9 @@ The Shadow Mirrors no longer have a place in this world. It is time to *find a n
 
 >Gab-12's indoctrination has been a partial success at best, and there is no such thing as partial success in the modern SCHOOL. Her student status is revoked with immediate effect. She is to receive a level 2 mind-wipe and be released ASAP.
 
->-Dr. Adler Koch.
+>**Dr. Adler Koch.**
 
->P.S. I no longer wish to receive General Laker's constant memos about rejected students joining dissident groups. It is EFA Intelligence's job to track potential terrorists, our is to create Students. I will not entertain the man's ranting any longer.
+>*P.S.* I no longer wish to receive General Laker's constant memos about rejected students joining dissident groups. It is EFA Intelligence's job to track potential terrorists, our is to create Students. I will not entertain the man's ranting any longer.
 
 ---
 
@@ -331,7 +332,7 @@ Russel fires off his last set of Split Missiles and turns to the mysterious pilo
 "Er, fine, whatever."
 
 ---
-####ROUTE RECOMBINATION
+###ROUTE RECOMBINATION
 
 You cut your way through the Gespensts to where Axel is, as his oversized super robot crushes a Gespenst between its thighs, while its flying fists take out two more. The Soulgain looks none the worse for wear after all the fighting, where even a Super Earthgain unit would at least have taken a few bumps. It's quite the piece of technology.
 
@@ -417,7 +418,7 @@ Vindel drags the broken Zweizergain into a sitting position, and spits out a sin
 
 Then, the mechs begin to pour through.
 
-END MISSION 1
+####END MISSION 1
 
 ---
 

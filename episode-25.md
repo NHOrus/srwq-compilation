@@ -10,7 +10,7 @@ When you arrived, you found a series of mysterious drone mecha guarding the entr
 
 "Snap out of it you moron!!" you yell as you leap off the bucking motorad at the oncoming mechs. Plasma leaders snake out and grab the two drones, and they're slammed together, crunching into a single pile of scrap. Boosting towards the entrance, you see another half a dozen on the way.
 
-"LIGHTNING FALL!!!"
+**"LIGHTNING FALL!!!"**
 
 The landing bay and the emerging mechs all liquefy as you rush inside, covered in a sheath of plasma. You ram through several walls and find yourself in some kind of loading bay. Sensors show a large open space beyond the next wall.
 
@@ -56,7 +56,7 @@ Unfortunately, a squad of Bartols is flying up from the surface, between you and
 
 "Full Boost! We'll break through this!" You snake out the Plasma Leaders again, into the middle of their formation, and the Bartols scatter. You snare one and draw him in to be dashed against Dumi's forcefield, which is now under heavy fire from its friends.
 
-*This level of attack would be murder against PTs or AMs, but I can handle it. *
+*This level of attack would be murder against PTs or AMs, but I can handle it.*
 
 You sweep down to the surface of the sphere, trying hard to ignore the readings of more enemies on your tail. You find the crack Dumi mentioned and zoom inside.
 

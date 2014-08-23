@@ -29,7 +29,7 @@ You go to sleep, and dream dreams of the main cast naked while you shoot down pl
 
 ---
 
-####ELSEWHERE AND TOTALLY NOT IN A PSYCHIC DREAM
+###ELSEWHERE AND TOTALLY NOT IN A PSYCHIC DREAM
 
 Yukiko Date rests her hands on her chin, here eyes hidden by the shine of her glasses. "Your report is noted, Major Shine. I commend you on its speed and accuracy."
 
@@ -59,7 +59,7 @@ The mood in the bridge is sombre. Kai nods as you come in. "Now that we're all h
 
 ---
 
-####ELSEWHERE AGAIN
+###ELSEWHERE AGAIN
 
 Kirk Hamill frowns at the report. "This is impossible on all accounts. A Huckebien-type, a high-end Lion variant, and an R-Gun Powered piloted by one of our old pilots? This can't be right..."
 

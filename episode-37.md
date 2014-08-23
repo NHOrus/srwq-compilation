@@ -221,7 +221,7 @@ You start walking back towards the Trilobite.
 
 ---
 
-SLIGHTLY ELSEWHERE
+###SLIGHTLY ELSEWHERE
 
 "Latooni... Did you tell Katina to torture Seolla."
 
@@ -331,7 +331,7 @@ You grin. "It looks... rapey."
 
 ---
 
-ELSEWHERE
+###ELSEWHERE
 
 The thing stand on the Neviims hangar deck, towering over the Zachariahs and Ezekiels around it. It vaguely resembles their aesthetic, except for the horns, and claws, and the fanged mouth with occasionally snarls, revealing the whole thing to be empty...
 
@@ -351,7 +351,7 @@ Laodicea grins. "Then, First Emotion, it seems we may have the beginnings of a d
 
 ---
 
-ELSEWHERE, BUT NOT AS ELSEWHERE AS YOU THINK
+###ELSEWHERE, BUT NOT AS ELSEWHERE AS YOU THINK
 
 "Well done, Skywalker!" Ryoma clips Amuro's ear. "Almost flew us straight into Pluto. Remind me why I let you pilot this thing again?"
 

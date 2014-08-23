@@ -259,7 +259,7 @@ Team Thinks You're Batshit +1
 ```
 ---
 
-####Meanwhile:
+###Meanwhile:
 
 Ryuune takes the more sensible members of the team into her office again. "If we assume the Newcomers will break out of the EFA cordon, then you and any place you stay is potentially at risk. Ultimately, you have to 'clear' yourselves with these people, or forever remain targets. That means you have to meet them."
 
@@ -335,11 +335,11 @@ Russel's irish brogue is quite comforting to hear. "Well as can be expected, I s
 
 ---
 
-####Meanwhile:
+###Meanwhile:
 
-SURVIELLANCE MODE ACTIVE
+**SURVIELLANCE MODE ACTIVE**
 
-LASER ATTUNED TO WINDOW VIBRATIONS
+**LASER ATTUNED TO WINDOW VIBRATIONS**
 
 "-lcome to the Neo DC California base, Mr Fienschmecker. Please excuse the decor, the furniture is taken from an old farm down the road."
 
@@ -369,7 +369,7 @@ Ibis jumps in her seat at this. "Wh-what?? Really? You think we can do that, at 
 
 ---
 
-####SURVEILLANCE CONTINUES
+###SURVEILLANCE CONTINUES
 
 "So you need to find these two pieces of Shadow Mirror technology, and that's that?"
 

@@ -132,7 +132,7 @@ Sophia frowns at you. "Leave Wodan? I... I can't do that! The man needs me, Kati
 *Katina, I really think you need to prioritise a little here. I can understand the desire for firepower, as much for ourselves as to deny it to Vindel. But we need this to go smoothly as possible for the initial period, at least. If you really must have certain mechs, we still need to choose a reasonable loadout at first, so that we can get all the wounded away from the Shadow Mirrors first and foremost. Then, perhaps we can join up with the Balmarians, and go back for the rest. But right now, to make this work, you need to pick an initial list.*
 
 ---
-
+```
 HERES HOW IT IS.
 
 You have 10 points to spend (Would be 12, but non-negotiable Bergelmir). Different units cost different amounts.
@@ -152,6 +152,7 @@ Gespenst SALIENT: 3
 Mironga: 2
 Assault Lander: 3
 Hyperlion: 4, 2 for each of the two pieces.
+```
 
 >How does Dumi feel about leaving Raioh?
 
@@ -308,7 +309,7 @@ The Rapiecage jinks back as Baran swings his hammer at its maximum length. It cl
 
 "I'm getting mighty sick of your grandstanding, fatso!" Kai jumps out of the rolling dive, boosts upward, and flips.
 
-"ULTIMATE GESPENST KICK!!"
+**"ULTIMATE GESPENST KICK!!"**
 
 The foot lands squarely in the Bemidobans chest, and sends it flying back. It takes all of Barans experience flying it to keep it on its feet. Then the shells start raining down.
 

@@ -146,7 +146,9 @@ Vindel nods. "No. It seems Helios and his friends may hold the key to the myster
 
 "Hmmm..."
 
-SRWQ SPECIAL MISSION: YUUKIQUEST
+---
+
+###SRWQ SPECIAL MISSION: YUUKIQUEST
 
 You are Yuuki Jegnan, combat commander of Team SRX and pilot of the R-1. You've been given by your commander, Director Yukiko Date, to gain maximum combat data on the Irregular and Shadow Mirror forces holed up in the DC's secret jungle base. Capturing units and pilots is a secondary objective. In addition, you are to send in a special forces team to retrieve agent Shine Hausen, with secondary objectives of sabotage, data and technology retrieval. Confirmation of the nature of the Irregulars and their technology is considered a high priority.
 

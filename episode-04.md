@@ -32,9 +32,9 @@ Things are becoming less and less canon and the plot is thickening faster than /
 
 + Seolla Schweitzer in a sniper PT: You recognise her voice as the mousy girl from the School who spent most of her time doing crochet. This one seems louder though. Her mech has been badly damaged, but it still has an arm and a very large gun, pointed at Russel.
 
-####WHAT WILL YOUR NEW ASS-KICKING RAIOH DO FIRST?
-
 ---
+
+###WHAT WILL YOUR NEW ASS-KICKING RAIOH DO FIRST?
 
 "I... I..."
 
@@ -64,7 +64,7 @@ Twin blades emerge from Dumi's forearms and cut the Oxtongue rifle into three pi
 
 "YAAA!!!"
 
-*Don't worry, I don't intend to kill you. Dumi points up. I'll leave that decision up to her.*
+*Don't worry, I don't intend to kill you.* - Dumi points up. *I'll leave that decision up to her.*
 
 ---
 
@@ -184,7 +184,7 @@ You turn back towards Kai, but now that you're alone with the living legend, you
 
 "Something?"
 
-"I... (sweatdrop) I'm not very good at catching details in the middle of a battle."
+"I... *sweatdrop* I'm not very good at catching details in the middle of a battle."
 
 Kai rubs his jaw competitively. "Well, the two of us aren't going to work this out alone. Let's have a chat with the other ship, see were we stand."
 
@@ -296,7 +296,7 @@ Wildwuerger: The bottom half of the torso is almost completely gone: Theres no w
 
 ---
 
-The others:
+####The others:
 
 Johnathan: "We can't do anything like this. Either we head to California, or we turn around and surrender ourselves to the newcomers."
 
@@ -321,7 +321,7 @@ Ryoto: "...Who let all these crazy people into the Shadow Mirror?"
 Arado: "Please! Lets just go back to my friends! They'll explain everything!!"
 
 ---
-```
+
 The ELF is the Earth Liberation Front, an anti-EFA resistance group, one of the largest of the many such groups due to being funded by both the Shadow Mirror and other sources. It was essentially the Shadow Mirrors military wing until the EFA broke them in an major campaign 3 months ago. After this, Shadow Mirror was forced to disband its other puppet groups in order to form its own military forces, and begin its escape plan.
 
 Katina was in the ELF before she transferred out to TLI. There is still a lot of local support in parts of Europe for the ELF, but the vast majority of their forces are either dead or were part of the SM forces that just got decimated.
@@ -329,7 +329,7 @@ Katina was in the ELF before she transferred out to TLI. There is still a lot of
 You have no idea if anyone made it. About 90% of SM forces made it into the portal before it turned red. Then about a third of them were vomited back out, mostly in pieces. You're not even slightly qualified to guess what could have happened to the other 60%, and neither is anyone else here. [^2]
 
 Japan is practically a fortress for the EFA, its the base of Project SRX, and the security over that is obscene: It's better protected than the EFA government.
-```
+
 ---
 
 Kai twitches his mustache. "I was sort of being completest there, I don't actually know of any groups in the are-"
@@ -411,8 +411,6 @@ Irm winces as you attempt to turn Arado's testicles to mash potato with your Kne
 "AAAARGH!! STOP, PLEASE!!! I'm from the other universe, the other one. Irm! Kai! Save me from her! AHHHH!!!"
 
 Kai still just watches. Irm, however, looks like he's about to say or do something.
-
----
 
 [^1]: I'm going to skip over the tearful consolation segment, because I have a penis and thus don't understand such things very well.
 

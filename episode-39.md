@@ -2,7 +2,7 @@
 
 ##SRWQ Mission 39: Sex fixes everything. Sex, and nanomachines
 
-    Continuing from last episode...
+####Continuing from last episode...
 
 "Wait, Arado... What were you doing in my closet?"
 
@@ -126,7 +126,7 @@ Vindel cocks an eyebrow, then continues. "Ms Zoldark, my group will be participa
 
 ---
 
-####Two hours later:
+###Two hours later:
 
 "Wow, thats a racy getup... I like it."
 

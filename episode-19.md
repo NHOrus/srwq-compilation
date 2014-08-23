@@ -4,7 +4,7 @@
 
 The hulking monstrosity rips itself out of the ground even as it transforms, the red under-mech being slowly consumed by the white plaque spreading across it, turning it into something... else.
 
-I AM WODAN! WODAN YMIR!!! ALL WHO TRESPASS ON THE REALM OF MAGUS... SHALL PERISH!!!
+I AM WODAN! WODAN YMIR!!! ALL WHO TRESPASS ON THE REALM OF MAGUS... **SHALL PERISH!!!**
 
 The WildRaubtier settles on its right shoulder, blazing away at the EFA mech in front. "AND I AM KATINA TARASK, THE THUNDEROUS FURY! TODAY, WE STAND AGAINST THESE ENEMIES AS COMRADES!"
 

@@ -17,8 +17,6 @@ After a short break to cover the misadventures around TLI, we return to the Shad
 - Echidna Iasakki: A cold woman in charge of the W-series, a set of weird pods that apparently hold reconstructed pilots loyal to Shadow Mirror. Pilots a Rathgrith.
 - ????: The group is still a pilot short for the WildRaubtier they captured from the EFA. Echidna says she can sort this out, given time.
 
-####ACTUAL CONTENT TO FOLLOW
-
 ---
 
 "Wait, so the chainsaws are mounted on the back of the Boost Knuckles?"
@@ -268,7 +266,7 @@ The only response is Ring Mao's sigh. "It's too late, he's already gone. Once he
 
 ---
 
-####ELSEWHERE
+###ELSEWHERE
 
 ####AXELQUEST MISSION 2 START
 

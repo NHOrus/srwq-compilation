@@ -69,7 +69,7 @@ Echidna walks back towards the medbay, her face expressionless as ever.
 
 ---
 
-####ELSEWHERE
+###ELSEWHERE
 
 "Excellent work, Major Hausen. This report fulfills your mission objectives nicely, and without major loss of equipment this time."
 
@@ -161,7 +161,7 @@ The alarm sounds across the hangar, as the voice of the operations officer cuts 
 
 ---
 
-####MOMENTS EARLIER
+###MOMENTS EARLIER
 
 Shine climbed out of the R-Blades cockpit, checking her gun as she went. Fully loaded. She looked down at where she knew her prisoner had gone. Bound hand and foot, Mickey had managed to crawl a short distance from the bloodstained grass where she'd interrogated him, over to the R-Blades torso. He lay panting next to the humming Stealth Shade, drops of blood and sweat travelling down his skin.
 
@@ -509,7 +509,7 @@ Inside you find Ring, playing around on some datapads. "Feeling ok this morning,
 
 ---
 
-####ELSEWHERE
+###ELSEWHERE
 
 "So, everyone made it out ok?" Tetsuya looks tired on the comm screen, as does Lefina.
 

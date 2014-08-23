@@ -378,4 +378,4 @@ The handle of the R-Gun floats into the SRXs hand. "We've never fired the HTB Ca
 
 The giant mechs points the Metal Genocider down, towards the DC base. It pulls the trigger.
 
-Everything goes white.
+Everything goes *white.*

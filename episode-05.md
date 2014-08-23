@@ -8,6 +8,8 @@ The Shadow Mirrors have all but been destroyed by unknown but very familiar inva
 
 Having brutalized Arado's testicles to get him ready for interrogation, you back off and let Irm and Kai, the two people who think they're in charge, have their say.
 
+---
+
 "Oh god... oh god, just keep her away from me."
 
 "I'll try my best." reassures Irm shakily. "Now, explain why you attacked us."
@@ -124,15 +126,15 @@ There is a horrendous screeching sound, and Ibis dives out of the way as metal f
 
 The port side toilet is gone.
 
-####MISSION OVER
+###MISSION OVER
 
-####FUCKED UP MASTERY EARNED.
+###FUCKED UP MASTERY EARNED.
 
 ---
 
-####SPECIAL INTERMISSION.
+###SPECIAL INTERMISSION.
 
-######Meanwhile...
+####Meanwhile...
 
 "You don't need to drag us all this way, Mr Almer. We... we can sort something out."
 
@@ -162,7 +164,7 @@ The white lines of the Shirogane Kai, the EFA experimental Carrier, were unmista
 
 ---
 
-######Another Elsewhere:
+###Another Elsewhere:
 
 "And theeeeere we go."
 
@@ -202,7 +204,7 @@ Tetsuya Onodera adjusts his captains jacket, still ill-fitting even after months
 
 ---
 
-The Same Elsewhere, but a few hundred meters away:
+###The Same Elsewhere, but a few hundred meters away:
 
 "Nothing."
 
@@ -242,7 +244,7 @@ But my point is, Gilliam HAS tried everyone he knows. Either they're out of cont
 ```
 ---
 
-Man, this Elsewhere's getting pretty boring:
+###Man, this Elsewhere's getting pretty boring:
 
 "I don't believe a word of it!"
 

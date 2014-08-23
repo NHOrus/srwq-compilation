@@ -122,7 +122,7 @@ The tender moment is rudely cut short by the combat alert going off.
 
 ---
 
-####BACK TO KATINA
+###BACK TO KATINA
 
 *Katina, I'll pull alongside the Tausendfuessler and let you transfer to the Raioh, alright?*
 

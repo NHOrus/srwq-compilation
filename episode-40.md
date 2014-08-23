@@ -149,7 +149,7 @@ Beside Laodicea, Baran Doban steps forward. "Commander, I'm ready to go! With th
 
 ---
 
-MEANWHILE, WHILE THAT WAS GOING ON:
+###MEANWHILE, WHILE THAT WAS GOING ON:
 
 *Leaving the alien woman to her own devices, you finally find the two you're looking for: Axel and Lamia.*
 
@@ -183,7 +183,7 @@ Lamia sags as Axel turns back to you. "So, where would we be going again?"
 
 ---
 
-####ELSEWHERE
+###ELSEWHERE
 
 The guard doesn't even look up as Arado swipes the keycard and enters Seolla cell. The boy finds her sitting on the stool she had been tied to, crocheting. He notices she's managed to repair her clothes with the results, which seems rather impressive.
 
