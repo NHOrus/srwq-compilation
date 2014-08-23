@@ -235,7 +235,9 @@ The next few hours are spent under lamplight, as the sun goes down and you work 
 The Trilobite is stripped down and restocked, the hangar cleared of large amounts of padding, scaffolding, and unneeded equipment that had been thrown in with the DGGs. The mechs are packed back in a better configuration, the Raioh sitting atop the transformed DGG-04 to better conserve space.
 
 ---
-    THE DGGS NOW ONLY TAKE UP 2 SLOTS IN HANGAR. WITH THE A-LANDER AND 2 GESPENSTS, THAT LEAVES 3 SLOTS FREE.
+```
+THE DGGS NOW ONLY TAKE UP 2 SLOTS IN HANGAR. WITH THE A-LANDER AND 2 GESPENSTS, THAT LEAVES 3 SLOTS FREE.
+ ```
 ---
 
 Just before midnight, you have everything finished and are ready to leave, when Ryuune comes up to the group, with an unrestrained Arado in tow.
