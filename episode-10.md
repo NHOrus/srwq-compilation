@@ -110,7 +110,7 @@ The enemy is a Kestrel, a late-model Peregrine battleship modified to work in at
 ```
 ---
 
-"Ensign, break off and get out of here! We'll hold them...no, we'll break them!!!"
+"Ensign, break off and get out of here! We'll hold them... no, we'll break them!!!"
 
 The hull plating nearly buckles as Axel kicks off the Trilobite and into the cloud of enemies, as an arrow of light takes the arm and leg off a Gespenst about to fire. The enemy scatter as the Soulgain approaches, but the blue mech twists, lands on a rock face and kicks off again, flying past another Gespenst which neatly comes apart into two pieces.
 

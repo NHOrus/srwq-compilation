@@ -299,7 +299,7 @@ Junkers turns from the screen and sees an orderly come up to her. "Ma'am, the pe
 
 "A location in China, ma'am. Some kind of Archeological dig, apparently."
 
-"Hrm...maybe we're not the only ones finding buried treasure..." 
+"Hrm... maybe we're not the only ones finding buried treasure..." 
 
 ---
 

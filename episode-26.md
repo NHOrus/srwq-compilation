@@ -240,7 +240,7 @@ You have a sudden flashback of Kai holding you back from Arado as you rant about
 
 "...Errr..."
 
-"Only a few ships made it away, only about 20,000 people altogether. The only place to store them was here, on the storage deck. We put them in stasis pods and tried to plan a way to resettle them somewhere safe. The other ships went out, trying to find a safe place, but none of them came back. Laocidea said the only option was to negotiate with Earth, so we flew in...a nd then, there was a battle... People said it was another entity like the one from Balmar... We were on full battle alert, they said it was breaching the core. I was about to head out when... something happened... I remember being frozen... Then the new battle started..."
+"Only a few ships made it away, only about 20,000 people altogether. The only place to store them was here, on the storage deck. We put them in stasis pods and tried to plan a way to resettle them somewhere safe. The other ships went out, trying to find a safe place, but none of them came back. Laocidea said the only option was to negotiate with Earth, so we flew in... a nd then, there was a battle... People said it was another entity like the one from Balmar... We were on full battle alert, they said it was breaching the core. I was about to head out when... something happened... I remember being frozen... Then the new battle started..."
 
 You set your face glumly. "Ok, ok, maybe we got off on the wrong foot here. We'll go to see the alien boss, and try to talk this out. We might be able to get this figured out without killing everything."
 

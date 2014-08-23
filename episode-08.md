@@ -237,14 +237,14 @@ The Trilobite is stripped down and restocked, the hangar cleared of large amount
 ---
 ```
 THE DGGS NOW ONLY TAKE UP 2 SLOTS IN HANGAR. WITH THE A-LANDER AND 2 GESPENSTS, THAT LEAVES 3 SLOTS FREE.
- ```
+```
 ---
 
 Just before midnight, you have everything finished and are ready to leave, when Ryuune comes up to the group, with an unrestrained Arado in tow.
 
 "Good news! I've found another pilot for you! Arado wants to help find the missing MacGuffins so bad, he's willing to turn himself over to your command again, Irm."
 
-"That's not...I'm perfectly willing to wait here, do some chores, clean the toilets for you..."
+"That's not... I'm perfectly willing to wait here, do some chores, clean the toilets for you..."
 
 "Ah, but you said you were burning with hotblooded desire to find what you needed and return home victorious. Why would I waste your talents in a lazy place like this?"
 
