@@ -305,7 +305,7 @@ The Shards come on all at once. One grazes the Illusion of Serenity, and it diss
 
 *...Find me, Katina. I'll be waiting for you...*
 
-And then... You're Somewhere.
+And then... You're _**Somewhere.**_
 
 ###SUPER ROBOT WARS QUEST: GAME 1 COMPLETE
 
