@@ -47,3 +47,4 @@ disc-1/episode-42.md
 disc-1/episode-43.md
 disc-1/episode-44.md
 disc-1/episode-45.md
+disc-2/episode-01.md
