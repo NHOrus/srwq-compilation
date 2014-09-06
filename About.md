@@ -13,3 +13,6 @@ And was [archived here](http://teamphantomtiger.blogspot.ru/2010/02/srw-quest-sc
 
 #### Somewhen in the relative future
 I got insane and decided to press SRWQ into something resembling a novel instead of a bunch of disjoined posts.
+
+And so, I am glad to introduce you to life and times of our heroine, one Shadow Mirror Katina Tarask:
+![alt text](images/heroine.png  "Yes, she is really that crazy")
