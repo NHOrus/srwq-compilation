@@ -34,45 +34,12 @@ You turn to the man who's talking to you. He looks like a waiter of some sort, d
 
 "Hey, don't gargle in my face when I've just gotten up."
 
-"Oh, a Caladosian. Gomei, but Madam has been sleeping in that seat for...etto...a while, I guess, and hasn't ordered anything. Will madam be making a purchase at all?"
+"Oh, a Caladosian. Gomei, but Madam has been sleeping in that seat for... etto... a while, I guess, and hasn't ordered anything. Will madam be making a purchase at all?"
 
 "...I could murder three coffees right now, but I don't have any moon dollars." You hop off the seat and look out onto the street.
 
 The city is rather old-timey, like a gangster movie set in china-town. Asian people walk the streets in 1920s clothes, old-style cars drive by, some spewing steam, others petrol fumes. Nearby, a man in a labcoat looks into an odd telescope, while up the road, a pointy-eared man and some kind of man-shaped crocodile are having an argument.
 
-WHAT WILL OUR HEROINE DO??
-Gilliam Yaeger !q0uEtog.ao Mon 22 Mar 2010 16:08:46 No.4737108 Report
->>4737096
-So, where the hell are we? Perhaps we should search out a source of information to get our bearings?
-
-Perhaps ask the waiter where we are, very discreetly. As if the name of the town has slipped our mind for a second...
-
-Most of all, act like nothing is out of the ordinary. We have seen wierder things, after all.
-Stealthyboy !fchRKomfls Mon 22 Mar 2010 16:11:46 No.4737120 Report
-Quoted By: >>4737137
->>4737096
->man-shaped crocodile
-
-Ok, don't panic, it's only a- HOLY FUCK IT'S A MAN SHAPED CROCODILE
-Goddamn Sandwitches Mon 22 Mar 2010 16:16:46 No.4737133 Report
-Quoted By: >>4737137
->>4737096
-Wait, so the R-Blade just... Vanished? Hmm... Ah well.
-
-Freak out at the sight of the Alligator man.
-Anonymous Mon 22 Mar 2010 16:18:46 No.4737137 Report
-Quoted By: >>4737154
->>4737120
->>4737133
-Don't freak out.
-
-Go HOLY SHIT THATS SO AWESOME!
-Lord Guilford !UuMJgvNa0Y Mon 22 Mar 2010 16:24:46 No.4737152 Report
-FUCK YEAH GATOR MAN
-Goddamn Sandwitches Mon 22 Mar 2010 16:25:46 No.4737154 Report
->>4737137
-That actually makes more sense for Katina doesn't it. Alright then still go Holy Shit, just have it be a FUCK YEAH kind of holy shit rather than a "What the hell is that".
-Sciencegar Sciencebolt Mon 22 Mar 2010 16:55:46 No.4737224 Report
 You jog over to the small corwd which is forming about the two. You can't really tell what the crowd is muttering, sounds like Japanese, but the general mood seems to be curiousity and distrust.
 
 Ears is dressed in one of those velvety floral-pattern costumes that girls wear in kung fu movies, but is definitely male. You can't really determine whether he's asian or caucasian, the odd shape of his face, the ears, and the catlike eyes are too distracting. Croc isn't quite as monstrous as he looked from a distance. He's dressed in what you would consider casual clothes, a shirt and loose pants, and sandals over clawed feet. If it weren't for the elongated snout and the green scales, you'd think he was your average blue-collar dude on a break.
@@ -81,61 +48,6 @@ The two are hissing and growling away in what sounds like a language that SUVs w
 
 The Lizardman doesn't seem to notice your stare, as most of the crowd are doing much the same. Frankly, you probably don't stand out that much: Your dress isn't that wierd next to the women, and he probably can't tell that your complexion is that much different.
 
-WHAT WILL KATINA DO?
-Gilliam Yaeger !q0uEtog.ao Mon 22 Mar 2010 16:56:46 No.4737226 Report
-Quoted By: >>4737235
-THIS BUMP OF MINE GLOWS WITH AN AWESOME POWER
-
-ITS BURNING GRIP TELLS ME TO PUNT YOU TO THE TOP OF PAGE 0
-Gilliam Yaeger !q0uEtog.ao Mon 22 Mar 2010 16:58:46 No.4737235 Report
-Quoted By: >>4737236
->>4737226
-FFFFFFFFFFFFFFFFFFFFFFFFF-
-
-WHY DOES THIS KEEP HAPPENING
-
-Anyway
-
-Bored now, find something more interesting...Or maybe ask someone in the croud about this? And hope they speak english?
-Stealthyboy !fchRKomfls Mon 22 Mar 2010 17:00:46 No.4737236 Report
-Quoted By: >>4737244
->>4737235
-Seconding this. Find someone cute who understands you and harass them until they explain what's going on.
-Goddamn Sandwitches Mon 22 Mar 2010 17:03:46 No.4737244 Report
-Quoted By: >>4737271
->>4737236
-Thirded, lets go see if we can find someone who looks like they can tell us what the hell is going on.
-Anonymous Mon 22 Mar 2010 17:14:46 No.4737271 Report
->>4737244
-Fourthed. Can't argue with this plan
-Sciencegar Sciencebolt Mon 22 Mar 2010 17:35:46 No.4737314 Report
-Quoted By: >>4737317
-Hold on, technical issues...
-View SameGoogleiqdbSauceNAO technical_difficulties.jpg, 17KiB, 440x318
-Gilliam Yaeger !q0uEtog.ao Mon 22 Mar 2010 17:37:46 No.4737317 Report
->>4737314
-Sciencegar Sciencebolt Mon 22 Mar 2010 17:38:46 No.4737319 Report
-Quoted By: >>4737321 >>4737326 >>4737338
->Part of your comment isn't allowed to be posted :(
-
-WHICH PART YOU STUPID SHIT?
-
-Goddamn spamfilters. Curse you Kimmo!!!
-Gilliam Yaeger !q0uEtog.ao Mon 22 Mar 2010 17:39:46 No.4737321 Report
->>4737319
-Post it piece by piece. Slowly work out which is the bad segment.
-Goddamn Sandwitches Mon 22 Mar 2010 17:40:46 No.4737326 Report
->>4737319
-...
-
-Wait... WHAT? The Spam Filter is not letting you post?
-
-ONORE KIMMO!
-View SameGoogleiqdbSauceNAO 1267950536086.png, 564KiB, 720x480
-Stealthyboy !fchRKomfls Mon 22 Mar 2010 17:42:46 No.4737338 Report
->>4737319
->Part of your comment isn't allowed to be posted :(
-Sciencegar Sciencebolt Mon 22 Mar 2010 17:44:46 No.4737342 Report
 "Excuse me, you in the Mob Moll uniform! What's going on?"
 
 "Moonmoon moonmon nom moon?"
