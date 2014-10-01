@@ -1,31 +1,23 @@
+# Episode 01
 
-SRWQ2 Mission 1: All by myse-ee-eeelff
-Sciencegar Sciencebolt Mon 22 Mar 2010 15:18:46 No.4736969 ViewReplyOriginalReport
-Previous Threads:
-http://teamphantomtiger.blogspot.com/2010/02/srw-quest-sciencegar-sciencebolt-joint.html
-http://teamphantomtiger.blogspot.com/2010/02/srw-quest-thread-archive-mark-ii.html
-http://teamphantomtiger.blogspot.com/2010/03/srw-quest-disc-2-thread-archive.html
+##SRWQ2 Mission 1: All by myse-ee-eeelff
 
-(Yes, the original Godhand edit is woefully out of date, but I don't have the time to make a new one myself)
-
-A quick recap for the uninitiated:
+###A quick recap for the uninitiated:
 
 This is a Quest Thread, a choose-your-own-adventure type dealie where I provide a setting and plot, and you the audience determine the major actions of the protagonist. Said protagonist in this case is the Katina Tarask of the Shadow Mirror universe, here reinterpreted as a dress-wearing psychopath, her mind damaged by the attempts of the School to control her limitless rage and high combat skill.
 
 Upon her release from the School, our adventure showed her joining the Shadow Mirrors, just before they were scheduled to jump to the OG universe. However, this jump was curtailed when the OG Numbers jumped to their world instead. They claimed they had to change the SMverses timeline to prevent the Zweizergain leading Dark Brain, the interdimensional tyrant, to their world and destroying it.
 
 A mad race began across the SM Earth, in order to find the Zweizergain and regain enough battle strength to rebuild the Shadow Mirror. Along the way, Katina befriended a helpful AI called Dumi, who supported her and helped her overcome some of her issues. Eventually Dumi revealed he was Duminass 7, a servant of Dark Brain, and that he wanted freedom from his dark master in order to live a proper life with Katina and his Homonculus children. Together with the OGverse Irregulars, Katina and Dumi came up with a bold plan.
-Sciencegar Sciencebolt Mon 22 Mar 2010 15:22:46 No.4736977 Report
-Quoted By: >>4740685
+
 The team would gather the fragments of worlds Dark Brain had destroyed, and use the power of the Zweizergain, XN Giest and the Compatible Kaiser to unite them into a new world. This would achieve several things. Because Dark Brain could not enter a world he'd already destroyed, it would mean Dumi and the Kaiser would be free from his wrath. It would also be a fresh start for Katina and her friends, allowing them to gain breathing space from the clusterfuck on SM Earth and build themselves into a new force that could solve the problems on both worlds, both alien and human.
 
 The plan went almost perfectly. Unfortunately, the team got a little seperated on arrival...
 
 Can our heroine find her friends and put the Plan back on track? Will she survive in a world that was never meant to be? And will we finally get our long-awaited harem? Let's find out as we begin Super Robot Wars Quest, Disc 2!!!
-Anonymous Mon 22 Mar 2010 15:43:46 No.4737041 Report
-allright let's do this
-Sciencegar Sciencebolt Mon 22 Mar 2010 16:04:38 No.4737096 Report
-Quoted By: >>4737108 >>4737120 >>4737133
+
+---
+
 The splash of waves.
 
 The hum of cars.
