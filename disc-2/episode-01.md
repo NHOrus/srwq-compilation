@@ -82,41 +82,7 @@ The elf closes his eyes in annoyance, hisses something at the lizardwoman, and t
 
 "Madam, are you a newcomer to these lands? Are you from the new continents?"
 
-"Eh...."
-
-RESPONSE?
-Anonymous Mon 22 Mar 2010 19:06:46 No.4737665 Report
-Quoted By: >>4737669 >>4737670 >>4737691 >>4737711
->>4737652
-"Not... exactly, but that's a good enough explanation for now."
-Anonymous Mon 22 Mar 2010 19:07:46 No.4737669 Report
->>4737665
-Yeah that sounds about right.
-Goddamn Sandwitches Mon 22 Mar 2010 19:07:46 No.4737670 Report
->>4737665
-Seconded.
-Stealthyboy !fchRKomfls Mon 22 Mar 2010 19:10:46 No.4737691 Report
->>4737665
-Sounds good, lets go with that.
-Anonymous Mon 22 Mar 2010 19:10:46 No.4737692 Report
-Quoted By: >>4737724
->>4737652
-
-"I'M FROM OUTER SPESSSSSSSSSSSSSSS"
-
-Then stare at his face with a weird expression while tilting your head 90 degrees just to see his respond.
-Gilliam Yaeger !q0uEtog.ao Mon 22 Mar 2010 19:13:46 No.4737711 Report
->>4737665
-Good enough for now.
-Stealthyboy !fchRKomfls Mon 22 Mar 2010 19:15:46 No.4737724 Report
->>4737692
-Oh gods, doing this would be hilarious if not particularly wise.
-Lord Guilford !UuMJgvNa0Y Mon 22 Mar 2010 19:16:46 No.4737731 Report
->>4737652
-"AHAHAHA something like that."
-Sciencegar Sciencebolt Mon 22 Mar 2010 19:26:46 No.4737775 Report
-Quoted By: >>4737781 >>4737788 >>4737790 >>4737814 >>4737851
-"Eh...It's kinda like that, yeah..."
+"Eh... It's kinda like that, yeah..."
 
 "Well then, I'm really not qualified to deal with you. You need to talk to one of the Intellects of the island, they call them 'Chisei' here."
 
@@ -126,152 +92,27 @@ Quoted By: >>4737781 >>4737788 >>4737790 >>4737814 >>4737851
 
 The elf grunts at the lizardwoman again, and they start walking up the street. You look back down at the man, still messing with his telescope, practically in the middle of the sidewalk.
 
-ANY OBJECTIONS TO TALKING TO THIS MAN?
-Goddamn Sandwitches Mon 22 Mar 2010 19:27:46 No.4737781 Report
->>4737775
-Might as well.
-Gilliam Yaeger !q0uEtog.ao Mon 22 Mar 2010 19:28:46 No.4737788 Report
->>4737775
-Sure Why Not.
-Anonymous Mon 22 Mar 2010 19:29:46 No.4737790 Report
->>4737775
-Go ahead, no point in wasting time...
-Stealthyboy !fchRKomfls Mon 22 Mar 2010 19:34:46 No.4737814 Report
->>4737775
-Yeah, let's talk to this chisel guy.
-Lord Guilford !UuMJgvNa0Y Mon 22 Mar 2010 19:42:46 No.4737851 Report
->>4737775
-"Hey, are you one of those intelligible guys?"
-Goddamn Sandwitches Mon 22 Mar 2010 19:47:46 No.4737878 Report
-Quoted By: >>4737895
-I know it's not him, but every time I read "Guy in a Lab Coat" in this thread, I think Emmet Brown. I know it is not him, but I just just cannot help but think it.
-Gilliam Yaeger !q0uEtog.ao Mon 22 Mar 2010 19:48:46 No.4737884 Report
-Quoted By: >>4737895 >>4737913
-I am suddenly hoping its Doc from Back to the Future...
-View SameGoogleiqdbSauceNAO DocEmmettBrown_1985.jpg, 14KiB, 356x309
-Anonymous Mon 22 Mar 2010 19:51:46 No.4737895 Report
-Quoted By: >>4737898
->>4737878
->>4737884
-Dr Brown Mind
-Gilliam Yaeger !q0uEtog.ao Mon 22 Mar 2010 19:53:46 No.4737898 Report
-Quoted By: >>4737913
->>4737895
-Not quite...I forgot to quote.
-Goddamn Sandwitches Mon 22 Mar 2010 19:57:46 No.4737913 Report
-Quoted By: >>4737915
->>4737884
->>4737898
-Oh Dear god...
+---
 
-Imagine what would happen if you put the Doc and Coop in the same room and tell them to build a mech...
-Gilliam Yaeger !q0uEtog.ao Mon 22 Mar 2010 19:58:46 No.4737915 Report
-Quoted By: >>4737942
->>4737913
-Do we still have Jonathan?
-
-If we do, put him in there too.
-
-ULTRANEO GRUNGUST
-Sciencegar Sciencebolt Mon 22 Mar 2010 20:04:46 No.4737933 Report
-Quoted By: >>4737951 >>4737952 >>4737973 >>4737976
 "Yo, science dude, watcha doin'?"
 
 The young man leaps away from you as if you'd just set him on fire. He spends several seconds flapping his arms to regain his balance, then composes himself.
 
-"H-h-h-hai! Ehhh...Hello, ca-can I help y-you?"
+"H-h-h-hai! Ehhh... Hello, ca-can I help y-you?"
 
 "Yeah, I've been told to talk to an Intelligibleect, and your fancy labcoat makes you a prime suspect."
 
 "M-me!! I-I-I'm only an apprentice! I mean, I have papers and the like, but I'm not fully qualified yet. Wh-wh-what did you need me for? I'm q-quite busy, gravitational phenomon are my Speciality and there have been a lot since the S-severing."
 
 Most people who meet you have a tendency to stare at your eyes. This poor guy is more distracted by the bodice of your dress, which even you have to admit is relatively modest.
-WHAT WILL KATINA SAY TO THE MAN?
-Sciencegar Sciencebolt Mon 22 Mar 2010 20:06:46 No.4737942 Report
->>4737915
 
-Johnathan and Irm stayed behind, but Johnathan did give you a datapad with his latest schematics for the Neo Grungust. You still have in it a side pocket.
-Zeta Zaku Mon 22 Mar 2010 20:08:46 No.4737951 Report
-Quoted By: >>4737971
->>4737933
-Activate Chummy Mode.
-
-Try and get a brief history of the world, particularly this "Severing" thing.
-Gilliam Yaeger !q0uEtog.ao Mon 22 Mar 2010 20:08:46 No.4737952 Report
-Quoted By: >>4737971 >>4737975
->>4737933
-Should we ask him to take us to his leader?
-Goddamn Sandwitches Mon 22 Mar 2010 20:12:46 No.4737971 Report
->>4737951
->>4737952
-These two together if possible.
-Stealthyboy !fchRKomfls Mon 22 Mar 2010 20:14:46 No.4737973 Report
->>4737933
->Young flustered guy
-
-Hehehehe...
-
-Activate flirt mode.
-Lord Guilford !UuMJgvNa0Y Mon 22 Mar 2010 20:14:46 No.4737975 Report
->>4737952
-"TAKE ME TO YOUR LEADER EARTHLING."
-Anonymous Mon 22 Mar 2010 20:15:46 No.4737976 Report
-Quoted By: >>4737977 >>4737980
->>4737933
-Stick our chest ever so slightly out to fluster him some more then find out what the hell's going on.
-Gilliam Yaeger !q0uEtog.ao Mon 22 Mar 2010 20:16:46 No.4737977 Report
-Quoted By: >>4737983 >>4737997
->>4737976
-Even better:
-
-Cross our arms beneath our breasts.
-Anonymous Mon 22 Mar 2010 20:16:46 No.4737980 Report
->>4737976
-Seconded.
-Anonymous Mon 22 Mar 2010 20:16:46 No.4737983 Report
->>4737977
-I can get behind this.
-Anonymous Mon 22 Mar 2010 20:22:46 No.4737997 Report
-Quoted By: >>4738001
->>4737977
-Oh god we've become a Wheel of TIme female!
-Gilliam Yaeger !q0uEtog.ao Mon 22 Mar 2010 20:23:46 No.4738001 Report
-Quoted By: >>4738051
->>4737997
-No, we're dicreetly pushing up our boobs.
-Sciencegar Sciencebolt Mon 22 Mar 2010 20:32:46 No.4738051 Report
-Quoted By: >>4738063
->>4738001
-> Implying the WoT women aren't doing that deliberately as well.
-View SameGoogleiqdbSauceNAO one.png, 158KiB, 704x396
-Gilliam Yaeger !q0uEtog.ao Mon 22 Mar 2010 20:34:46 No.4738063 Report
-Quoted By: >>4738070
->>4738051
-Yes, but we...
-View SameGoogleiqdbSauceNAO two.png, 170KiB, 704x396
-Gilliam Yaeger !q0uEtog.ao Mon 22 Mar 2010 20:35:46 No.4738070 Report
->>4738063
-...make it look good.
-Anonymous Mon 22 Mar 2010 20:47:46 No.4738127 Report
-Quoted By: >>4738134 >>4738136
->Said protagonist in this case is the Katina Tarask of the Shadow Mirror universe, here reinterpreted as a dress-wearing psychopath, her mind damaged by the attempts of the School to control her limitless rage and high combat skill.
-
-WARNING: MARY SUE EXCEEDING RING CAPACITY
-Gilliam Yaeger !q0uEtog.ao Mon 22 Mar 2010 20:48:46 No.4738134 Report
->>4738127
-Oh here we go again...
-Anonymous Mon 22 Mar 2010 20:48:46 No.4738136 Report
->>4738127
-LETHAL FORCE HAS BEEN ENABLED.
-Sciencegar Sciencebolt Mon 22 Mar 2010 20:50:46 No.4738149 Report
-Quoted By: >>4738158 >>4738261
 You fold your arms up into 'puppy-push' position, and try to put on your moeface. It's pointless really because he ain't looking at your face.
 
 "Now now, Mr Internalect, I'm just looking for a smart guy like you to tell me a few things. I'm sure you'll be able to meet my needs quite well..."
 
-"...Huh? What? When? Eh, erm...what was the question?"
+"...Huh? What? When? Eh, erm... what was the question?"
 
-"I just wanted to know whats been going on, you know, with this Severing, and the wierd cloud, and the way I woke up in a cafe down the road without know how I got there."
+"I just wanted to know whats been going on, you know, with this Severing, and the weird cloud, and the way I woke up in a cafe down the road without know how I got there."
 
 "....Oh, er, right. Well, there are a lot of chichiImeantheories going about as to what exactly happened, many by intellects far more senior that me-"
 
@@ -281,7 +122,7 @@ You fold your arms up into 'puppy-push' position, and try to put on your moeface
 
 "I get it. Go on."
 
-"...Oh...Well, It seems the R asteroid, although we destroyed it physically with our superweapons, had an interdimensional component which cracked spacetime, and lifted the Crescent Isles out of our reality and into a sort of zero-dimensional void. I written an excellent paper on such voids, in my opinions, it's the Journal o-"
+"...Oh... Well, It seems the R asteroid, although we destroyed it physically with our superweapons, had an interdimensional component which cracked spacetime, and lifted the Crescent Isles out of our reality and into a sort of zero-dimensional void. I written an excellent paper on such voids, in my opinions, it's the Journal o-"
 
 "Yes yes yes, your world got buttfucked and a piece of it got torn away. But what happened AFTER that?"
 
