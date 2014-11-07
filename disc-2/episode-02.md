@@ -96,13 +96,13 @@ The unshaven man shakes his head, and holds up a notepad and pencil while saying
 
 You look at the notes on the table. It's pretty much all in Japanese or Mathematics symbols, so you turn back to Kaijo.
 
-"Ok, so...What do we got?"
+"Ok, so... What do we got?"
 
 "In what way, exactly?"
 
 "In firepower, of course!! You can't expect to take on monsters with cute uniforms and a loose recruitment policy. How many PTs you got, air support, carriers, moon rockets. Whatever we got, I want to know."
 
-"Alright...G-Force isn't very long established, only a few months, and its still working out the logistics issues."
+"Alright... G-Force isn't very long established, only a few months, and its still working out the logistics issues."
 
 Chouko points a finger. "Like the proper base shaped like G?"
 
@@ -115,56 +115,7 @@ You grimaced. "Shit. I guess thats the problem with government funding..."
 "...That's it? Where are your mechs?"
 
 "Mechs aren't that easy to come by, Ms Tarask. Each one is a unique creation of an Intellect of great skill. Mr Mireniamu has been trying to get some to ally with us, but again, the TDF contracts are more appealing to most people."
-Goddamn Sandwitches Wed 24 Mar 2010 05:10:58 No.4746175 Report
->>4746160
-I am really worried about him and Seolla to be honest... I'm not sure either of them are going to be able to function very well if they are stranded somewhere alone... Seolla more so than Lenonjayce since he had the chat with Arado, but still...
-Goddamn Sandwitches Wed 24 Mar 2010 05:11:58 No.4746179 Report
->>4746172
->Battra
 
-FUCK YES
-Stealthyboy !fchRKomfls Wed 24 Mar 2010 05:11:58 No.4746180 Report
-Quoted By: >>4746186
->>4746172
-So basically, they've got shit all.
-Just as we thought...
-Goddamn Sandwitches Wed 24 Mar 2010 05:13:58 No.4746186 Report
-Quoted By: >>4746215
->>4746180
-Dude, they have FUCKING BATTRA.
-
-Mothra's badass cousin. That gives us one hell of a dance partner in Kaiju Combat.
-Anonymous Wed 24 Mar 2010 05:13:58 No.4746187 Report
-Quoted By: >>4746188 >>4746194 >>4746207
->>4746172
-We must teach these people the glory of the mass produced grunt mech.
-Nameless Grunt Wed 24 Mar 2010 05:14:58 No.4746188 Report
->>4746187
-I second this motion.
-Goddamn Sandwitches Wed 24 Mar 2010 05:15:58 No.4746194 Report
-Quoted By: >>4746216
->>4746187
-While I don't think we are at a choice point yet, I third this.
-Stealthyboy !fchRKomfls Wed 24 Mar 2010 05:16:58 No.4746207 Report
->>4746187
->mass produced grunt mech.
-
-I like where this plan is going...
-Thousand Frills Wed 24 Mar 2010 05:18:58 No.4746215 Report
-Quoted By: >>4746226
->>4746186
-But can it be trained to airdrop us so that we may land like an angry fist of god upon the head of whatever Kaiju we're inevitably going to have to kill? THAT is the question.
-
-Well, shortly after "What the hell is a Battra?" since Katina isn't exactly a Kaiju expert here.
-Anonymous Wed 24 Mar 2010 05:18:58 No.4746216 Report
->>4746194
-While production is definitely out of the question, we can at least inform them of practical experience. See Grungurst Type 2 VS Huckbien MK II.
-Goddamn Sandwitches Wed 24 Mar 2010 05:21:58 No.4746226 Report
-Quoted By: >>4746273
->>4746215
-I'm pretty sure Battra is sentient, but even if it isn't, we don't need it do air drop us. Someone else earlier in the thread brought up that our present R-Gun has a Tesla Drive and thus can fly.
-Sciencegar Sciencebolt Wed 24 Mar 2010 05:22:58 No.4746235 Report
-Quoted By: >>4746251 >>4746254
 "So how the fuck have you been fighting monsters all this time? You'd think that would require some, y'know, weapons!"
 
 Kaijo shrugs. "Would you beleive we've been getting by with our wits and charm?"
@@ -177,11 +128,11 @@ You look back over the rest of the table, then back at him.
 
 "...As in completely different. We're called Team 2 for a reason. Team 1 is currently MIA, we're their replacements."
 
-"Oh...What did they have that you didn't?"
+"Oh... What did they have that you didn't?"
 
 "Intellects for one. The infamous Atlantean Renegade Dr. Meiun, and our homegrown hero Akio Nakamura. It was Akio and Zondark that came up with the Black Hole Cannon that stopped Gojira. Afterwards, they said they didn't want to develop the technology. Something about 'a 10-20 percent chance of destroying the planet each time it fired'."
 
-"If Ring were here, she could give them some tips...When you say MIA, where exactly did they go missing?"
+"If Ring were here, she could give them some tips... When you say MIA, where exactly did they go missing?"
 
 "Long story short? Into the Crack."
 
