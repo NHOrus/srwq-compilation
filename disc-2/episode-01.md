@@ -160,15 +160,15 @@ You're getting nothing but static. You try pressing a few of the tiny buttons, a
 
 "BHBHSHSHZZHZHRealspace signal #3829 confirmed."
 
-BZHZatinaBZH
+_BZHZatinaBZH_
 
 "Elevated dimensional significance, adding to priority list."
 
-BZZHHNexBZHHevelBZZ
+_BZZHHNexBZHHevelBZZ_
 
 "Triangulating intercept within 4300 megacycles."
 
-BZZHPhotonicBZZatter
+_BZZHPhotonicBZZatter_
 
 "Prepare to be computedBZZZZHHH"
 
@@ -178,46 +178,10 @@ You snap out of the reverie. "Zoldark?"
 
 "Zondark. I can understand the confusion though. And you?"
 
-"Er...I'm Katina, Katina Tarask."
+"Er... I'm Katina, Katina Tarask."
 
 "Well, nice to properly meet you, Katina. We'll just pulling up to the HQ now."
-Anonymous Tue 23 Mar 2010 03:30:46 No.4739987 Report
-Quoted By: >>4739990
->PhotonicBZZatter
->Photonic Matter
 
-Japanium is the best fuel for the neo grungust
-Anonymous Tue 23 Mar 2010 03:32:46 No.4739990 Report
-Quoted By: >>4740005
->>4739987
-It's probably Photonic Chatter, not matter.
-Stealthyboy !fchRKomfls Tue 23 Mar 2010 03:32:46 No.4739993 Report
->>4739967
->Prepare to be computed
-
-What the heck could this mean?
-Anonymous Tue 23 Mar 2010 03:34:46 No.4740005 Report
-Quoted By: >>4740014
->>4739990
-
-Let me hope damn it!
-Goddamn Sandwitches Tue 23 Mar 2010 03:35:46 No.4740011 Report
->>4739967
-Interesting...
-Anonymous Tue 23 Mar 2010 03:36:46 No.4740014 Report
-Quoted By: >>4740020 >>4740024
->>4740005
-No. You don't get to have hope. Hope is copyrighted by Obama
-Anonymous Tue 23 Mar 2010 03:37:46 No.4740020 Report
-Quoted By: >>4740024
->>4740014
-No, LIES ABOUT HOPE ARE COPYRIGHTED BY OBAMA
-Haken Browning !zHe7DH816A Tue 23 Mar 2010 03:38:46 No.4740024 Report
->>4740014
->>4740020
-I'm as butthurt about WelCare as the rest of you, but let's not /stormfront/ this shit.
-Sciencegar Sciencebolt Tue 23 Mar 2010 03:38:46 No.4740025 Report
-Quoted By: >>4740050 >>4740057 >>4740069
 The G-Force building is large for a single three-storey building, but the overall complex is fairly tightly contained, barely enough room for the HQ, the similarly sized hangar, and the Decorative Fountain which looks brand new.
 
 "Cosy, isn't it?"
@@ -236,9 +200,9 @@ Three old men in labcoats look around from where they're standing on the R-Blade
 
 "Calm down, madam, everything is perfectly under control. We were just investigating our find. Rest assured, we won't damage it."
 
-The man in the...no, the SEX GOD in the white tuxedo shines a mile-wide smile at you. You feel your knees go weak unconsciously.
+The man in the... no, the SEX GOD in the white tuxedo shines a mile-wide smile at you. You feel your knees go weak unconsciously.
 
-"Er, um, I...Its just that its all I've got right now..."
+"Er, um, I... It's just that it's all I've got right now..."
 
 "Don't worry madam, we'll keep you Arblade in tip-top shape. G-Forces' Science Corps contains some of the best scientists on Edo, they'll keep it together, and fix up the damage it recieved."
 
@@ -246,104 +210,7 @@ The older man in the crisp, non-brilliant-white suit is now chatting with Zondar
 
 The three scientists hop down off the mech. They have very appreciative looks on their faces.
 
-WHAT WILL KATINA DO NOW?
-Anonymous Tue 23 Mar 2010 03:42:46 No.4740050 Report
-Quoted By: >>4740058
->>4740025
-PUNCH THE SEX GOD IN THE FACE TO ASSERT YOUR ROLE AS THE DOMINANT FIGURE
-YOU MUST DO SOMETHING QUICKLY BEFORE YOUR BRAIN SETS YOU AS BENEATH HIM
-Anonymous Tue 23 Mar 2010 03:43:46 No.4740057 Report
-Quoted By: >>4740061
->>4740025
-
-1. Introductions
-2. Swoon
-3. Ask about G-Force
-3. Swoon some more
-4. Inapropriatly touch Tuxedo man.
-Haken Browning !zHe7DH816A Tue 23 Mar 2010 03:43:46 No.4740058 Report
-Quoted By: >>4740106
->>4740050
-WHAT, NO
-
-CLEARLY WE MUST GET HIS AUTOGRAPH
-Stealthyboy !fchRKomfls Tue 23 Mar 2010 03:44:46 No.4740061 Report
-Quoted By: >>4740092
->>4740057
->4. Inapropriatly touch self in front of Tuxedo man.
-
-Fixed.
-Anonymous Tue 23 Mar 2010 03:45:46 No.4740069 Report
-Quoted By: >>4740078 >>4740106
->>4740025
-Volunteer our help in fixing it. The School must have trained us in basic field repair.
-Anonymous Tue 23 Mar 2010 03:47:46 No.4740078 Report
->>4740069
-Assumedly yes. Besides, it's probably just shorted out from being UNDERWATER.
-Haken Browning !zHe7DH816A Tue 23 Mar 2010 03:49:46 No.4740092 Report
->>4740061
-No, it's HIM that needs to be touched. Less likely to stain his suit that way.
-Goddamn Sandwitches Tue 23 Mar 2010 03:51:46 No.4740106 Report
->>4740058
->>4740069
-These plus introductions sound like a good plan.
-
-
-In other news, this means that it was not very far form us which goes and satisfies a worry of mine. To a point. Said worry being that if we were seperated from our mech, people in the rest of the ship were probably split form each other... And if Seolla ended up somewhere alone, you KNOW it would just lead to drama.
-Anonymous Tue 23 Mar 2010 03:51:46 No.4740107 Report
-Quoted By: >>4740116
-Investigate who this well armed hobo is. It could be Armageddon Ryoma.
-Goddamn Sandwitches Tue 23 Mar 2010 03:53:46 No.4740116 Report
-Quoted By: >>4740123 >>4740467
->>4740107
-Considering the fact we have met a Ryoma, I think Kat would have recognized a alternate version of him... Then again she does seem to have a problem with faces.
-Anonymous Tue 23 Mar 2010 03:55:46 No.4740123 Report
-Quoted By: >>4740193
->>4740116
-That, and Armageddon Ryoma looks different from non-armageddon Ryoma.
-Goddamn Sandwitches Tue 23 Mar 2010 04:06:46 No.4740193 Report
-Quoted By: >>4740198 >>4740200 >>4740202 >>4740270
->>4740123
-Actually I'm starting to think the "Battle Ready Hobo" might have something to do with another storyline that we know for a fact is show to show up...
-Anonymous Tue 23 Mar 2010 04:06:46 No.4740198 Report
-Quoted By: >>4740200 >>4740270
->>4740193
-Hint, please?
-Haken Browning !zHe7DH816A Tue 23 Mar 2010 04:07:46 No.4740200 Report
-Quoted By: >>4740270
->>4740193
->>4740198
-[FUND IT] in TV-Nihon subs.
-Anonymous Tue 23 Mar 2010 04:07:46 No.4740202 Report
-Quoted By: >>4740245 >>4740270
->>4740193
-Taki Kazuya?
-Goddamn Sandwitches Tue 23 Mar 2010 04:16:46 No.4740245 Report
->>4740202
-...
-
-DAMN you're good.
-Anonymous Tue 23 Mar 2010 04:20:46 No.4740270 Report
-Quoted By: >>4740292
->>4740198
->>4740193
->>4740200
->>4740202
-I think it might be Van.
-GUNDAMU !0smG1gQz9c Tue 23 Mar 2010 04:20:46 No.4740273 Report
-Ten bucks the well-armed hobo is actually Wodan without his mask on, surrounded by swords.
-Goddamn Sandwitches Tue 23 Mar 2010 04:24:46 No.4740292 Report
-Quoted By: >>4740347
->>4740270
-That would also be a good one, and make much more sense than Taki truthfully...
-
-And it would probably have us catapulting into the War...
-Anonymous Tue 23 Mar 2010 04:34:46 No.4740347 Report
->>4740292
-Either way, we should investigate. He's suspicious, whoever he is.
-Sciencegar Sciencebolt Tue 23 Mar 2010 04:44:46 No.4740401 Report
-Quoted By: >>4740416 >>4740418 >>4740421 >>4740432 >>4740495 >>4740509 >>4740514
-"Uh, y-yeah...You can fix it up, on a couple of conditions."
+"Uh, y-yeah... You can fix it up, on a couple of conditions."
 
 The man in the white tux continues grinning, like its how the face naturally goes. "By all means!"
 
@@ -357,110 +224,19 @@ The grin droops a little, but he takes your proffered notebook, still virtually 
 
 You manage to suppress the urge to squee.
 
-"Th-thanks, I'm Katina Tarask. Pleased to make your acquaintance...And the rest of you are?"
+"Th-thanks, I'm Katina Tarask. Pleased to make your acquaintance... And the rest of you are?"
 
-The man in the Crisp Suit comes forward. "I'm Diego Mireniamu, I'm the director of G-Force. The gentleman behind me-" He indicates the barefoot man idly playing with a massive black magnum. "-Is Yume, no known last name. Professors Kabuto, Morimori and Saotome are our scientific corps. You've met Maki, the other members of Team 2 are...about somewhere. Or at the least, close enough that we'll be able to track them from the fires. And you, Miss Tarask...You're from another world, or so mr Zondark says."
+The man in the Crisp Suit comes forward. "I'm Diego Mireniamu, I'm the director of G-Force. The gentleman behind me-" He indicates the barefoot man idly playing with a massive black magnum. "-Is Yume, no known last name. Professors Kabuto, Morimori and Saotome are our scientific corps. You've met Maki, the other members of Team 2 are... about somewhere. Or at the least, close enough that we'll be able to track them from the fires. And you, Miss Tarask... You're from another world, or so Mr. Zondark says."
 
 He says this in a rather matter-of-fact way, as if the concept doesn't bother him as much as it should. He seems poised over his notepad, ready to scribble as soon as you talk.
 
-WHAT WILL KATINA DO OR SAY?
-Anonymous Tue 23 Mar 2010 04:47:46 No.4740416 Report
->>4740401
-Well I'm lost.
-Anonymous Tue 23 Mar 2010 04:47:46 No.4740418 Report
->>4740401
-Well yes...
-But if I am really from another world, can you cite some examples of possible other worlds I MIGHT be from.
-I'm suffering a bit of...AMNESIA...concerning where I exactly come from and a refresher might be good.
-Goddamn Sandwitches Tue 23 Mar 2010 04:48:46 No.4740421 Report
->>4740401
->Professors Kabuto, Morimori and Saotome
-Goddamn Sandwitches Tue 23 Mar 2010 04:51:46 No.4740432 Report
-Quoted By: >>4740455 >>4740469
->>4740401
-As for what to say...
-
-Tell them you were on a friends ship, in the R-Blade and then you woke up in the Cafe. that is probably all we want to say for now.
-
-We want to stay away form telling them we made this world, but we should hint that our arrival here was different form that of most other people.
-Anonymous Tue 23 Mar 2010 04:58:46 No.4740455 Report
-Quoted By: >>4740468
->>4740432
-Right. This seems wise. Also, no point faking amnesia, really...
-Sciencegar Sciencebolt Tue 23 Mar 2010 05:01:46 No.4740467 Report
-Quoted By: >>4740488
->>4740116
-
-The Treasure Sniper Ryoma was most like the New Getter version, including the cutoff denim shirt. This guy isn't anything like that, he's skinny, real skinny, and wearing glasses.
-Goddamn Sandwitches Tue 23 Mar 2010 05:01:46 No.4740468 Report
->>4740455
-Agreed, do NOT fake amnesia, last thing we need to do is piss off the people who have our mech at the moment.
-Anonymous Tue 23 Mar 2010 05:01:46 No.4740469 Report
->>4740432
-Thirding this.
-Goddamn Sandwitches Tue 23 Mar 2010 05:05:46 No.4740488 Report
->>4740467
-Are the glasses normal glasses or sunglasses? what color is his hair?
-Thousand Frills Tue 23 Mar 2010 05:07:46 No.4740495 Report
->>4740401
-Yeah, well, so are you. Got your dimension shredded like cheap paper, ended up here, blah blah blah blah blah. Now tell me you have some bigger guns for my ride.
-GUNDAMU !0smG1gQz9c Tue 23 Mar 2010 05:10:46 No.4740509 Report
-Quoted By: >>4740522
->>4740401
->Professors Kabuto, Morimori and Saotome
-
-Oh god, I was only joking about Shin Getterkaiser last thread! Please Sciencegar, don't do it! Think of all the dimensions you'll destroy if you do!
-Stealthyboy !fchRKomfls Tue 23 Mar 2010 05:12:46 No.4740514 Report
->>4740401
-That's one way of putting it, yes...
-Sciencegar Sciencebolt Tue 23 Mar 2010 05:15:46 No.4740522 Report
-Quoted By: >>4740564
->>4740509
-
-Don't worry, these are the Toholon versions, not the versions from the Getter and Mazinger universes.
-Anonymous Tue 23 Mar 2010 05:19:46 No.4740545 Report
-Quoted By: >>4740655
-Speaking of Toholon, I just found this:
-
-http://www.skynet.ie/~ulgsoc/wiki/index.php/Toholon
-
-Surprised to find this by merely googling Diego Mireniamu
-
-This version of Toholon, though, will it have Japanese fantasy races as well as Western ones?
-GUNDAMU !0smG1gQz9c Tue 23 Mar 2010 05:22:46 No.4740564 Report
-Quoted By: >>4740586 >>4740587
->>4740522
-Is that supposed to make me feel any better about it? Getter has like fifteen different universes so far, and in every single one of them SHIT GOES DOWN when you screw with Getter Rays.
-
-Did they put a Photonic Getter Reactor in the R Blade? Oh god, I shudder to think what would happen if we took the Raioh and it's machine cells with us and they got crossed with Photon Power and Getter Rays. At least we avoided that catastrophe, though I wonder what the False Cells will have caused what with all the war and negative emotions in Shadow Mirror land.
-Anonymous Tue 23 Mar 2010 05:27:46 No.4740586 Report
->>4740564
-The Raioh will have become a sentient abomination looking for his lost mother figure.
-Zeta Zaku Tue 23 Mar 2010 05:28:46 No.4740587 Report
-Quoted By: >>4740596 >>4740608
->>4740564
-I seriously doubt these guys earned their Super-Science doctorates by putting Getter Energy reactors in real robots. The R-Blade is probably safe for the moment.
-Gilliam Yaeger !q0uEtog.ao Tue 23 Mar 2010 05:30:46 No.4740596 Report
->>4740587
->Implying these people can do Super Science any other way
-Anonymous Tue 23 Mar 2010 05:34:46 No.4740608 Report
-Quoted By: >>4740617
->>4740587
->Implying they know the difference between real and super robots.
-Thousand Frills Tue 23 Mar 2010 05:35:46 No.4740614 Report
-SCIENCE! means never having to say you're sorry for fucking humanity up real good.
-Stealthyboy !fchRKomfls Tue 23 Mar 2010 05:36:46 No.4740617 Report
->>4740608
->implying there is a difference between real and super robots.
-Sciencegar Sciencebolt Tue 23 Mar 2010 05:37:46 No.4740627 Report
-Quoted By: >>4740628 >>4740637 >>4740644
 "I guess, yeah, I'm from another world. I was just on a friends ship, watching a pretty lightshow, when whumpf, I'm in a cafe down in the harbour district."
 
-*Scribble scribble* "Yes...Could you be a bit more specific on the 'ship'? Do you mean sea ship, land ship, airship, Underground drillship, I suppose given modern technology some kind of star-ship is possible...And what there any unusual technology around at the time? Could one of your intellects have been experimenting on you without your knowledge?"
+*Scribble scribble* "Yes... Could you be a bit more specific on the 'ship'? Do you mean sea ship, land ship, airship, Underground drillship, I suppose given modern technology some kind of star-ship is possible... And what there any unusual technology around at the time? Could one of your intellects have been experimenting on you without your knowledge?"
 
-"I...Uh, I plead the fifth..."
+"I... Uh, I plead the fifth..."
 
-"...I'll assume thats a reference to something or other. Very well, we have our manners here in Edo, we won't pry, but...If we're going to undo whatever this Severing was, we're likely going to have to pool our resources. Luckily, we have Zondark here, a top specialist in stellar and extra-stellar phenomena, and Professor Saotome is studying extradimensional energy-"
+"...I'll assume thats a reference to something or other. Very well, we have our manners here in Edo, we won't pry, but... If we're going to undo whatever this Severing was, we're likely going to have to pool our resources. Luckily, we have Zondark here, a top specialist in stellar and extra-stellar phenomena, and Professor Saotome is studying extradimensional energy-"
 
 "I haven't confirmed that yet! All I know is that the metals I've designed react intelligently to Particle G-Eta, I still haven't confirmed where the particles are coming from. The very fact that out world has moved yet the particles can still be generated implies they're not from an outside source, at least, not a specific one..."
 
