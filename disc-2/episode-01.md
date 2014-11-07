@@ -52,159 +52,28 @@ The Lizardman doesn't seem to notice your stare, as most of the crowd are doing 
 
 "Moonmoon moonmon nom moon?"
 
-"Er...someone who speaks English? Anyone? Shit, you'd think with so much dealing with Izu the School would have done a better job teaching me Japanese"
+"Er... someone who speaks English? Anyone? Shit, you'd think with so much dealing with Izu the School would have done a better job teaching me Japanese"
 
 A good chunk of the street have turned from staring at the lizardman to staring at you. So is Mr Ears, who then speaks.
 
 "Can I help you, Miss?"
 
-"Uh, yeah...What's up with you and Mr. Scales over there?" The Lizardman grits its teeth as you point at it.
-Sciencegar Sciencebolt Mon 22 Mar 2010 17:54:46 No.4737389 Report
-Quoted By: >>4737391 >>4737392 >>4737395 >>4737398 >>4737407
+"Uh, yeah... What's up with you and Mr. Scales over there?" The Lizardman grits its teeth as you point at it.
+
 "We were discussing some business arrangements, nothing more. Mrs Rathonir is rather eager to leave the city, but, of course, with the ocean so greatly changed, my ship cannot go very far. I am a merchant, not an explorer."
 
-"Oh, right...That's a chick?"
+"Oh, right... That's a chick?"
 
 "And what of yourself, madam? You must be quite bewildered by the Severing, and the news of the missing continents. I take you as a Caladosian, you must be concerned about your absent homeland."
 
-ANY REPONSE TO THAT?
-NuBlackAnon !!z6ldXGL61Wm Mon 22 Mar 2010 17:56:46 No.4737391 Report
->>4737389
-"Uh, my memory got lost when a rock hit me in the head, remind me of what happened.."
-
-Well it isn't a lie, but the truth is ... well if someone said I MADE THIS UNIVERSE WITH A GENESIS DEVICE AND LOST MY BROS WHO HELPED ME would you believe it?
-Anonymous Mon 22 Mar 2010 17:56:46 No.4737392 Report
->>4737389
-
-"By the name of Caladosian Stronghold, i am THE NOBLE PHANTASM!!!"
-Gilliam Yaeger !q0uEtog.ao Mon 22 Mar 2010 17:57:46 No.4737395 Report
->>4737389
-"Actually, I'm more bewildered by the fact that I just woke up at a restaurant table in a wierd town when I'm quite sure I was on my ship before."
-Goddamn Sandwitches Mon 22 Mar 2010 17:58:46 No.4737398 Report
->>4737389
-Since no one else seems to know what we are saying I say we just flat out tell ears that we just woke up in the cafe seperated from the people we were with, and have no idea where the hell where are.
-Stealthyboy !fchRKomfls Mon 22 Mar 2010 17:59:46 No.4737407 Report
->>4737389
-"Err, yeeees. I'm bewildered by the disappearence of the Calamari... I don't suppose anyone's seen a Personal Trooper around here? About yea big... has cutty tonfas..."
-Anonymous Mon 22 Mar 2010 18:12:46 No.4737451 Report
-Quoted By: >>4737455 >>4737459 >>4737460
-FFFFFFFFF-- The arrival post has disappeared.
-Gilliam Yaeger !q0uEtog.ao Mon 22 Mar 2010 18:13:46 No.4737455 Report
-Quoted By: >>4737467
->>4737451
-FUCK
-
-It should still be on the Easymodo archive though...I hope.
-Stealthyboy !fchRKomfls Mon 22 Mar 2010 18:13:46 No.4737459 Report
->>4737451
-Holy crap. You know why, Sciencegar?
-Sciencegar Sciencebolt Mon 22 Mar 2010 18:14:46 No.4737460 Report
->>4737451
-....Huh. Hold on...
-Gilliam Yaeger !q0uEtog.ao Mon 22 Mar 2010 18:17:46 No.4737467 Report
-Quoted By: >>4737480
->>4737455
-Yup, its there.
-
-http://archive.easymodo.net/cgi-board.pl/m/thread/4736969#p4737096
-Anonymous Mon 22 Mar 2010 18:17:46 No.4737468 Report
-It`s a magic of Skeletor!!!
-Sciencegar Sciencebolt Mon 22 Mar 2010 18:19:46 No.4737472 Report
-Quoted By: >>4737480 >>4737483
-Ok, judging from http://archive.easymodo.net/cgi-board.pl/m/thread/4736969 , it looks like some posts responding to 'not /m/' bullshit from two threads ago snuck into the thread without us even noticing. I guess the mods got overzealous or something. Wierd, but understandable I guess.
-
-I'll do a summary repost of the thing.
-Gilliam Yaeger !q0uEtog.ao Mon 22 Mar 2010 18:20:46 No.4737480 Report
->>4737472
-What the fuck.
-
-Anyway, I've got it linked in >>4737467, so don't sweat it.
-Sciencegar Sciencebolt Mon 22 Mar 2010 18:20:38 No.4737482 Report
->You open your eyes and see you're sitting in some sort of seaside cafe, overlooking a wide bay. The shoreline is covered in boats of all shapes and sizes, and theres an odd funnel-shaped cloud in the middle of the water.
-
->The last thing you remember was sitting in your R-Blade, looking out of the Eurydices hangar as Dumi completed the fusion of the Shards into the New World.
-
->You turn to the man who's talking to you in japanese. He looks like a waiter of some sort, definitely asian.
-
->"Hey, don't gargle in my face when I've just gotten up."
-
->"Oh, a Caladosian. Gomei, but Madam has been sleeping in that seat for...etto...a while, I guess, and hasn't ordered anything. Will madam be making a purchase at all?"
-
->"...I could murder three coffees right now, but I don't have any moon dollars." You hop off the seat and look out onto the street.
-
->The city is rather old-timey, like a gangster movie set in china-town. Asian people walk the streets in 1920s clothes, old-style cars drive by, some spewing steam, others petrol fumes. Nearby, a man in a labcoat looks into an odd telescope, while up the road, a pointy-eared man and some kind of man-shaped crocodile are having an argument.
-Stealthyboy !fchRKomfls Mon 22 Mar 2010 18:21:46 No.4737483 Report
-Quoted By: >>4737489 >>4737494
->>4737472
-Those posts come from the thread the mod was in...
-Sounds like there was some bug.
-Sciencegar Sciencebolt Mon 22 Mar 2010 18:22:46 No.4737489 Report
->>4737483
-
-Its either this or spambots, I'll take the 4chan mods any day.
-Stealthyboy !fchRKomfls Mon 22 Mar 2010 18:22:46 No.4737494 Report
->>4737483
-From this thread:
->>4734806
-Anonymous Mon 22 Mar 2010 18:22:46 No.4737495 Report
-Quoted By: >>4737503 >>4737523
-good freakin lord, where are we?
-Goddamn Sandwitches Mon 22 Mar 2010 18:25:46 No.4737503 Report
->>4737495
-I believe we are in the Toholon setting... Other than that, I got nothing.
-Stealthyboy !fchRKomfls Mon 22 Mar 2010 18:28:46 No.4737523 Report
-Quoted By: >>4737533
->>4737495
-No freaking clue.
-Although for some reason I've been getting Final Fantasy Tactics Advance vibes ever since encountering the Gator woman.
-I am AMAZON !1!1 Mon 22 Mar 2010 18:29:46 No.4737525 Report
-Quoted By: >>4737533
-For a second, I thought we would end up with the Sakura Taisen gang fighting off Godzilla.
-Sciencegar Sciencebolt Mon 22 Mar 2010 18:30:46 No.4737527 Report
-Quoted By: >>4737534 >>4737538 >>4737550
-"Ugh, yeah...I'm a little more concerned about the fact I just woke up in that cafe down the road, and I'm not sure how."
+"Ugh, yeah... I'm a little more concerned about the fact I just woke up in that cafe down the road, and I'm not sure how."
 
 "Really?" the pointy-eared man pauses to grunt at the lizardwoman some more. She seems agitated that the conversation has turned from her.
 
-"Yeah, I was just...on my friends ship, with my R-Blade, when I sorta...blacked out. Then I just came too there."
+"Yeah, I was just... on my friends ship, with my R-Blade, when I sorta... blacked out. Then I just came too there."
 
-"Interesting...Madam, perhaps you should see a doctor, I'm currently quite busy, as you can see..."
+"Interesting... Madam, perhaps you should see a doctor, I'm currently quite busy, as you can see..."
 
-RESPONSE TO THAT?
-Sciencegar Sciencebolt Mon 22 Mar 2010 18:32:46 No.4737533 Report
->>4737523
-
-I didn't quite get to the level of putting in Bangaa. These lizardmen are most like the Iskar from Everquest, at least physically.
-
->>4737525
-
-Don't put it past me, they are a perfect fit to the setting.
-I am AMAZON !1!1 Mon 22 Mar 2010 18:32:46 No.4737534 Report
->>4737527
-"Come with m Godzilla, Im sure I could find you a nice island.."
-Goddamn Sandwitches Mon 22 Mar 2010 18:33:46 No.4737538 Report
-Quoted By: >>4737543
->>4737527
-
-Look to the Gator-Girl and see if she is willing to work with us to find a way out of here... She does not seem to want to be here any more than we do.
-Stealthyboy !fchRKomfls Mon 22 Mar 2010 18:34:46 No.4737543 Report
-Quoted By: >>4737554
->>4737538
-I don't think she speaks English...
-Gilliam Yaeger !q0uEtog.ao Mon 22 Mar 2010 18:36:46 No.4737550 Report
-Quoted By: >>4737562
->>4737527
-Ask him where the hell we are.
-Goddamn Sandwitches Mon 22 Mar 2010 18:38:46 No.4737554 Report
->>4737543
-It doesn't matter, it's worth a try. If it doesn't work, then it's time for us to head out on our own.
-GUNDAMU !0smG1gQz9c Mon 22 Mar 2010 18:40:46 No.4737562 Report
->>4737550
-Seconding.
-
-If he's too busy too explain, then ask him where we could find somebody who can.
-Sciencegar Sciencebolt Mon 22 Mar 2010 19:04:46 No.4737652 Report
-Quoted By: >>4737665 >>4737692 >>4737731
 "Hey! I'm talking to you! Tell me where I am!"
 
 The elf closes his eyes in annoyance, hisses something at the lizardwoman, and turns back to you. "You're in the harbour district of Edo, capital of Tokugawa Island, in the Crescent Isles, in whats left of the Great Ocean."
