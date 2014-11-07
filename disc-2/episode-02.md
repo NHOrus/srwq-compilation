@@ -1,21 +1,18 @@
+# Episode 02
 
-SRWQ2 Mission 2: Old-Fashioned Super-Science
-Sciencegar Sciencebolt Tue 23 Mar 2010 18:32:58 No.4742932 ViewReplyOriginalReport
-Previous Threads:
-http://teamphantomtiger.blogspot.com/2010/02/srw-quest-sciencegar-sciencebolt-joint.html
-http://teamphantomtiger.blogspot.com/2010/02/srw-quest-thread-archive-mark-ii.html
-http://teamphantomtiger.blogspot.com/2010/03/srw-quest-disc-2-thread-archive.html
+##SRWQ2 Mission 2: Old-Fashioned Super-Science
 
 In our last thread, our Heroine, Katina Tarask, woke up in the city of Edo, capital of one of the lost fragments of the worlds used in Dumi's experiment. She managed to stumble through the city with their wierd mix of japanese and 1920s Chicago culture, and found herself allied with a group known as G-Force. They promised to help her find her lost friends and figure what is going on in this new patchwork world, but in return, she would have to help them keep Edo safe from the giant monsters which threatened them periodically...
-Sciencegar Sciencebolt Tue 23 Mar 2010 18:33:58 No.4742936 Report
+
 And no, you don't get a pokekaiju. Yet, anyway.
-Sciencegar Sciencebolt Tue 23 Mar 2010 18:47:58 No.4743003 Report
-Quoted By: >>4743022 >>4743087
+
+---
+
 You clean the last of the seafloor gunk out of the R-Blades left elbow servo and start rotating it to test. "So it was just lying in the bay?"
 
 Professor Kabuto nods from the head, where he's inspecting the vulcans. His eyepatch is definitely not as sexy as Kais. "Yes, the waves from the Severing unmoored several boats from the harbour, including a monster cocoon we had been preparing to return to its home island. Its barge sank close to the Crack, and the Aderu had to fish it out before it was sucked in. They found your Jinga at the same time, it had apparently just emerged from the Crack."
 
-"The Crack...you mean that wierd glowy cloud thing?"
+"The Crack... you mean that wierd glowy cloud thing?"
 
 "Yes, that phenomenon. Some kind of dimensional thing left over from one of the early missions. Broke right open again when the R Asteroid hit, and its been alternately sucking things up and spitting slightly different things out since."
 
@@ -29,90 +26,8 @@ You look incredulously at the old man as he expertly tunes a weapon that shouldn
 
 The R-Blade is looking almost ship-shape again, although the G-railgun is missing and the G-Revolvers mag-rails have been messed up by the seawater.
 
-TALK TO ZONDARK SPECIFICALLY, OR MEET THE G-FORCE TEAM IN GENERAL?
-Goddamn Sandwitches Tue 23 Mar 2010 18:51:58 No.4743022 Report
-Quoted By: >>4743054
->>4743003
-Meet the G-Force Team. We can learn the other stuff form Zondark later, meeting the people who we are going to be working with takes priority for now.
-Anonymous Tue 23 Mar 2010 19:00:58 No.4743054 Report
->>4743022
-Yes. We want to know our coworkers.
-Anonymous Tue 23 Mar 2010 19:01:58 No.4743062 Report
-Quoted By: >>4743083
-the katina head is going to enter sweet bro and hella jef mode soon from all that pasting and repasting
-Sciencegar Sciencebolt Tue 23 Mar 2010 19:06:58 No.4743083 Report
->>4743062
+---
 
-Well, I don't have any shooping skills of my own, so I have to work with what I've got.
-Goddamn Sandwitches Tue 23 Mar 2010 19:07:58 No.4743087 Report
-Quoted By: >>4743104
->>4743003
-Furthermore Sciencegar, have we given G-Force descriptions of all of our missing companions and their ships/mecha?
-
-Other than Dumi of course because we don't even know Dumi's gender in this world yet.
-BSRaven !!pZhu/eJf6iW Tue 23 Mar 2010 19:12:58 No.4743104 Report
-Quoted By: >>4743121
->>4743087
-My call that Dumi is R63SM!Katina still stands.
-Anonymous Tue 23 Mar 2010 19:16:58 No.4743121 Report
->>4743104
-OR DOES IT?
-Anonymous Tue 23 Mar 2010 19:20:58 No.4743136 Report
-Loan some Maser cannons from G-force (if any).
-
-Start playing Monster Hunter: Mecha Edition.
-Anonymous Tue 23 Mar 2010 19:28:58 No.4743156 Report
-Quoted By: >>4743204 >>4744147
-Something I've been thinking about since yesterday...
-
-If you apply Machine Cells to Kiryu do you get SuperKiryu, or SuperGodzilla?
-Sciencegar Sciencebolt Tue 23 Mar 2010 19:42:58 No.4743204 Report
-Quoted By: >>4743210 >>4743216 >>4743220 >>4743221 >>4743222
->>4743156
-
-Kiryu gets tougher. I'm not fucking around with fugly Showa Mechagodzilla, or the chubby Heisei version. Kiryu 4 life word yo, or somesuch.
-Anonymous Tue 23 Mar 2010 19:43:58 No.4743210 Report
->>4743204
-Damn straight, bro
-Shuwatch !jNse020LaA Tue 23 Mar 2010 19:44:58 No.4743216 Report
-Quoted By: >>4743234
->>4743204
->fugly Showa Mechagodzilla
-
-Showa Mechagodzilla's gonna break your jaw for saying that you know.
-Anonymous Tue 23 Mar 2010 19:45:58 No.4743220 Report
->>4743204
-Alright. I was simply thinking that the Machine Cells might make it into a full blown Cyborg Godzilla or something like that due to the fact that Kiryu's construction actually uses the originals Godzilla's bones and such.
-
-Just a random series of thoughts.
-Anonymous Tue 23 Mar 2010 19:45:58 No.4743221 Report
->>4743204
->implying that MechaGodzilla has not gotten lamer with every incarnation
-Anonymous Tue 23 Mar 2010 19:46:40 No.4743222 Report
-Quoted By: >>4743234
->>4743204
-
->fugly Showa Mechagodzilla
->chubby Heisei version
-
-You made them sad. You monster.
-Anonymous Tue 23 Mar 2010 19:48:58 No.4743234 Report
-Quoted By: >>4743292
->>4743222
->>4743216
-Brothers!
-Anonymous Tue 23 Mar 2010 20:02:58 No.4743292 Report
->>4743234
-LIQUID!
-Anonymous Tue 23 Mar 2010 20:13:58 No.4743340 Report
-Quoted By: >>4743355
-Okay, enough idiocy! We must continue!
-Sciencegar Sciencebolt Tue 23 Mar 2010 20:18:58 No.4743355 Report
->>4743340
-
-Working on next post, hold on.
-Sciencegar Sciencebolt Tue 23 Mar 2010 20:46:58 No.4743449 Report
-Quoted By: >>4743475
 You put on your best moeface as you run in G-Forces resident dreamy hearthrob. "Hello, Kaijo-san! And how are you?"
 
 Kaijo grins his usual calming grin. "I'm quite well, Ms. Tarask. Mr. Mireniamu was wondering if you could give him the details on those friends of yours you wanted to find."
