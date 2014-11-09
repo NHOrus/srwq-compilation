@@ -2,7 +2,7 @@
 
 ##SRWQ2 Mission 2: Old-Fashioned Super-Science
 
-In our last thread, our Heroine, Katina Tarask, woke up in the city of Edo, capital of one of the lost fragments of the worlds used in Dumi's experiment. She managed to stumble through the city with their wierd mix of japanese and 1920s Chicago culture, and found herself allied with a group known as G-Force. They promised to help her find her lost friends and figure what is going on in this new patchwork world, but in return, she would have to help them keep Edo safe from the giant monsters which threatened them periodically...
+In our last episode, our Heroine, Katina Tarask, woke up in the city of Edo, capital of one of the lost fragments of the worlds used in Dumi's experiment. She managed to stumble through the city with their wierd mix of japanese and 1920s Chicago culture, and found herself allied with a group known as G-Force. They promised to help her find her lost friends and figure what is going on in this new patchwork world, but in return, she would have to help them keep Edo safe from the giant monsters which threatened them periodically...
 
 And no, you don't get a pokekaiju. Yet, anyway.
 

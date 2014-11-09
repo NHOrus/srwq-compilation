@@ -4,7 +4,7 @@
 
 ###A quick recap for the uninitiated:
 
-This is a Quest Thread, a choose-your-own-adventure type dealie where I provide a setting and plot, and you the audience determine the major actions of the protagonist. Said protagonist in this case is the Katina Tarask of the Shadow Mirror universe, here reinterpreted as a dress-wearing psychopath, her mind damaged by the attempts of the School to control her limitless rage and high combat skill.
+This is a compilation of a Quest Thread, a choose-your-own-adventure type dealie where I provide a setting and plot, and you the audience determine the major actions of the protagonist. Said protagonist in this case is the Katina Tarask of the Shadow Mirror universe, here reinterpreted as a dress-wearing psychopath, her mind damaged by the attempts of the School to control her limitless rage and high combat skill.
 
 Upon her release from the School, our adventure showed her joining the Shadow Mirrors, just before they were scheduled to jump to the OG universe. However, this jump was curtailed when the OG Numbers jumped to their world instead. They claimed they had to change the SMverses timeline to prevent the Zweizergain leading Dark Brain, the interdimensional tyrant, to their world and destroying it.
 

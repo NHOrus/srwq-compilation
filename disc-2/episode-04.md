@@ -1,15 +1,10 @@
+# Episode 04
 
-SRWQ2 Mission 4: 300 posts is no longer enough, it seems.
-Sciencegar Sciencebolt Thu 25 Mar 2010 06:34:55 No.4752740 ViewReplyOriginalReport
-Quoted By: >>4752758 >>4757244
-Previous Threads:
-http://teamphantomtiger.blogspot.com/2010/02/srw-quest-sciencegar-sciencebolt-joint.html
-http://teamphantomtiger.blogspot.com/2010/02/srw-quest-thread-archive-mark-ii.html
-http://teamphantomtiger.blogspot.com/2010/03/srw-quest-disc-2-thread-archive.html
+##SRWQ2 Mission 4: 300 posts is no longer enough, it seems.
 
-Last thread, our heroine Katina Tarask attempted to get her R-Blade upgraded with Toholon superscience. More would have happened, but the thread hit autosage AGAIN, due to more Exalted discussion (Not helping the case that the thread doesn't belong on /tg/, guys), some talk of Nasuverse physics, and talk of whether including a fanfic version of Shinji would be wise.
+Last episode, our heroine Katina Tarask attempted to get her R-Blade upgraded with Toholon superscience. More would have happened, but the source thread hit autosage AGAIN, due to more Exalted discussion, some talk of Nasuverse physics, and talk of whether including a fanfic version of Shinji would be wise.
 
-I've said it before, I'll say it again...I've unleashed a monster.
+I've said it before, I'll say it again... I've unleashed a monster.
 Gilliam Yaeger !q0uEtog.ao Thu 25 Mar 2010 06:35:55 No.4752749 Report
 >I've unleashed a monster.
 ITS ALIIIIIIIIVE!

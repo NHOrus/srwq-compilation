@@ -2,7 +2,7 @@
 
 ##SRWQ2 Mission 3: If you'd included Fifth Element this would be so much simpler...
 
-In our last thread, our heroine Katina Tarask got to know her new allies in anti-kaiju team G-Force, fixed up her wet R-Blade, and not much else because the thread got filled up with discussion of dangerous guns and Exalted characters.
+In our last episode, our heroine Katina Tarask got to know her new allies in anti-kaiju team G-Force, fixed up her wet R-Blade, and not much else because the thread got filled up with discussion of dangerous guns and Exalted characters.
 
 ---
 
