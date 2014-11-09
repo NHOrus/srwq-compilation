@@ -128,115 +128,30 @@ He flips a switch. Your heart leaps as a familiar voice cuts through the quiet o
 
 *Katina, destroy the earpiece. They'll use it to track you. You can't find me with it, you'll need a multidimensional computer, than can upload or download between the realms. There should be several, they adjusted the Shards to make sure they had a way. Use that against them, use it to find me, before they figure out what they are.*
 
-"....GOD. FUCKING. DAMMIT!!! DUMI, YOU OBTUSE SHITHEAD!!!!"
-Anonymous Thu 25 Mar 2010 22:40:55 No.4755858 Report
-EPIC KATINA RAGE
-Fatman !!IqQAJt5OEQw Thu 25 Mar 2010 22:41:55 No.4755864 Report
-Quoted By: >>4755870 >>4755872
->>4755854
+"...GOD. FUCKING. DAMMIT!!! DUMI, YOU OBTUSE SHITHEAD!!!!"
 
-...oh god damnit, Dumi.
-
-Just who the hell is after him NOW? First Dark Brain wants him to follow his duties, now this.
-
-Voting Katina get drunk.
-Anonymous Thu 25 Mar 2010 22:43:55 No.4755870 Report
->>4755864
-Nah, let's take this slowly. First, we destroy the transmitter. Then we come up with a plan. AND THEN we get drunk.
-Gilliam Yaeger !q0uEtog.ao Thu 25 Mar 2010 22:43:55 No.4755872 Report
-Quoted By: >>4755888
->>4755864
-After we destroy the earpiece.
-
-Evidently something has gone horribly wrong. There's something nasty in here with us...And I don't want it to find us until we're good and ready.
-
-We need to find the others ASAP.
-
-On an oddly appropriate note, I just started up Strange Journey...The soundtrack is the most EPIC I have ever heard
-Goddamn Sandwitches Thu 25 Mar 2010 22:45:55 No.4755879 Report
-Quoted By: >>4755882
->>4755831
-Agreed, oh so agreed.
-
->>4755854
-FUCK.
-
-The Database maybe? I don't know shit about W.
-Gilliam Yaeger !q0uEtog.ao Thu 25 Mar 2010 22:46:55 No.4755882 Report
->>4755879
->The Database maybe? I don't know shit about W.
-Doubtful, the Valstork team seem to have formed Valzacard.
-
-I think it might be leftover remnants of Dark Brain, or something altogether more...Lovecraftian.
-Sciencegar Sciencebolt Thu 25 Mar 2010 22:46:55 No.4755884 Report
-Quoted By: >>4755891 >>4755893 >>4755895 >>4755906
-Zondarks hands are still shaking. "Y-y-you know that thing?? H-how? It's....Beyond!!"
+Zondarks hands are still shaking. "Y-y-you know that thing?? H-how? It's... Beyond!!"
 
 "Will you pull yourself together, you dipshit!! Or do you want me to break your nose properly this time?"
 
-"O-ok...But I traced the s-source of that transmission...It's not on this dimensional plane. It's in counterphase to this whole mess that makes up this world?"
+"O-ok... But I traced the s-source of that transmission... It's not on this dimensional plane. It's in counterphase to this whole mess that makes up this world?"
 
-"What? But Dumi said....How could he be in another dimension when he came the same way as the rest of us?"
+"What? But Dumi said... How could he be in another dimension when he came the same way as the rest of us?"
 
-"I-I couldn't tell you that...But its not really another dimension, I think...It'd be more, the underpinnings of this one. It's the plane underneath with one, from an N-dimensional point of view anyway."
+"I-I couldn't tell you that... But its not really another dimension, I think... It'd be more, the underpinnings of this one. It's the plane underneath with one, from an N-dimensional point of view anyway."
 
-"What? Like...Heaven, or Hell or something?"
+"What? Like... Heaven, or Hell or something?"
 
-"I...don't know those terms."
+"I... don't know those terms."
 
-"Never mind.....How would we even get there?"
+"Never mind... How would we even get there?"
 
-"Er, well your friend said something about a computator that worked on dimensional principles...Which is a concept I wouldn't even be close to imagining, let alone creating."
+"Er, well your friend said something about a computator that worked on dimensional principles... Which is a concept I wouldn't even be close to imagining, let alone creating."
 
 Akane puts a hand on your shoulder. "Maybe we should rest on this, and think about it in the morning. Alright?"
 
-WILL KATINA SLEEP, OR DOES SHE HAVE MORE TO DO TONIGHT? Its going on 10pm at this point.
-Anonymous Thu 25 Mar 2010 22:48:55 No.4755888 Report
->>4755872
-indeed it is.
+---
 
-I'm so glad that they included a soundtrack.
-Gilliam Yaeger !q0uEtog.ao Thu 25 Mar 2010 22:48:55 No.4755891 Report
->>4755884
-First, utterly destroy the earpiece if we haven't already.
-
-Then go get drunk with Akane. I've got the feeling we might be needing the Valzacard's dimensional hax to find Dumi...
-Anonymous Thu 25 Mar 2010 22:49:55 No.4755893 Report
->>4755884
-Get some rest. And then we explore.
-Zeta Zaku Thu 25 Mar 2010 22:49:55 No.4755895 Report
-Quoted By: >>4755901
->>4755884
-Well, we got most of the scientists working on the bladescarf, and we finally have a lead on Dumi and a new party member. Sounds like a full day's work to me.
-Goddamn Sandwitches Thu 25 Mar 2010 22:50:55 No.4755900 Report
-Destroy the earpiece, get drunk, then cry self to sleep.
-Anonymous Thu 25 Mar 2010 22:51:55 No.4755901 Report
->>4755895
-Yep. Besides, something may happen on the new day.
-Goddamn Sandwitches Thu 25 Mar 2010 22:53:55 No.4755905 Report
-Quoted By: >>4755907
-You know what? Now we have a reason to get involved with the freaking grail war.
-Fatman !!IqQAJt5OEQw Thu 25 Mar 2010 22:53:55 No.4755906 Report
->>4755884
-
-Destroy the earpiece and then sleep. Let's trust Dumi on this one, no matter how much trouble he's in.
-Gilliam Yaeger !q0uEtog.ao Thu 25 Mar 2010 22:54:55 No.4755907 Report
-Quoted By: >>4755914
->>4755905
-Yeah...Now we have a definite purpose.
-
-We always do our best work with something to move towards.
-
-But yeah, maybe we should explain a little more of our situation to Akane.
-Goddamn Sandwitches Thu 25 Mar 2010 22:56:55 No.4755914 Report
-Quoted By: >>4755935
->>4755907
-Agreed, we need to explain things to her in private... At least to a point.
-Anonymous Thu 25 Mar 2010 23:03:55 No.4755935 Report
->>4755914
-Yes. We'd better.
-Sciencegar Sciencebolt Thu 25 Mar 2010 23:21:55 No.4756006 Report
-Quoted By: >>4756015 >>4756020 >>4756021
 The hammer falls again and again, each blow accentuated with a tear. Soon theres nothing left of the earpiece but a fine film, but the tears don't. You point at Professor Kabuto, then at the smudge. "Destroy that. Melt it with your photonic thingy. I need alcohol."
 
 "Diiiid someone say alcohol?" The elf Nozumi appears as if from nowhere.
