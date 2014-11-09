@@ -48,23 +48,7 @@ You frown at this. "Hey! I'm as native to this world as you, buster!"
 
 Kaijo steps between the two of you. "Don't get flustered people. G-Force is offering to handle more of the people from the new lands, since we've got one already. To take them off your departments hands, Jin, so you can concentrate on the bigger picture. Please, Jin, it'll benefit both of our groups."
 
-"After the mess you made of the Varan incident, I'm not going to hand everything over to you second-tier layabouts. But our resources are stretched...you get one. You can either take the woman from the space capsule, or the colored male who washed up in the mechanical giant. Or one of their machines. We keep the rest."
-
-WILL KATINA TAKE ANY OF THESE OPTIONS, OR WILL SHE ASK SOMETHING ELSE?
-Gilliam Yaeger !q0uEtog.ao Thu 25 Mar 2010 19:46:55 No.4755050 Report
-Quoted By: >>4755065
->>4755043
-Ask to meet them.
-Goddamn Sandwitches Thu 25 Mar 2010 19:49:55 No.4755057 Report
->>4755043
-Hmm...
-
-We are probably going to want descriptions of woman, the man, and the machine before we make any choices...
-
-I doubt the woman in the pod could be anyone we know, but you never know...
-Sciencegar Sciencebolt Thu 25 Mar 2010 19:52:55 No.4755065 Report
-Quoted By: >>4755070 >>4755076 >>4755083
->>4755050
+"After the mess you made of the Varan incident, I'm not going to hand everything over to you second-tier layabouts. But our resources are stretched... you get one. You can either take the woman from the space capsule, or the colored male who washed up in the mechanical giant. Or one of their machines. We keep the rest."
 
 "You can't expect me to make a choice like that blindly! Let me see them first."
 
@@ -73,53 +57,6 @@ Quoted By: >>4755070 >>4755076 >>4755083
 "That's bullshit!"
 
 "That's the rules. Deal with it."
-Ratsel Feinschmecker !VFYL66iWMA Thu 25 Mar 2010 19:53:55 No.4755070 Report
->>4755065
-
-....... well fuck, that sucks.
-Gilliam Yaeger !q0uEtog.ao Thu 25 Mar 2010 19:54:55 No.4755076 Report
-Quoted By: >>4755081
->>4755065
-Descriptions, then?
-Gilliam Yaeger !q0uEtog.ao Thu 25 Mar 2010 19:55:55 No.4755081 Report
->>4755076
-Or better yet, photographs?
-
-Drawings at the least...
-Goddamn Sandwitches Thu 25 Mar 2010 19:56:55 No.4755083 Report
-Quoted By: >>4755109 >>4755122 >>4755142
->>4755065
-"Fine then, if we can't see them, Can you at least give us a better description of the two and what they came in? The last thing I want to happen is end up pulling someone else out while one of my friends rots in there waiting for us."
-Goddamn Sandwitches Thu 25 Mar 2010 20:04:15 No.4755109 Report
->>4755083
-Hmm... If it wasn't for the fact that he washed up in a mech, I would say it is possible the colored man is Arado. After all he is purple, isn't he? Still the washing up in a mech kinda counters that.
-Goddamn Sandwitches Thu 25 Mar 2010 20:07:55 No.4755122 Report
-Quoted By: >>4755128 >>4755131
->>4755083
-Hmm... If it wasn't for the fact that he washed up in a mech, I would say it is possible the colored man is Arado. After all he is purple, isn't he? Still the washing up in a mech kinda counters that.
-
-... OH SHIT, I think I know who the chick in the capsule could be.
-Gilliam Yaeger !q0uEtog.ao Thu 25 Mar 2010 20:08:55 No.4755128 Report
-Quoted By: >>4755137
->>4755122
-Who?
-Anonymous Thu 25 Mar 2010 20:09:55 No.4755131 Report
->>4755122
-Wha?
-Goddamn Sandwitches Thu 25 Mar 2010 20:11:55 No.4755137 Report
-Quoted By: >>4755139 >>4755147
->>4755128
-I'd rather not ginx it, but looking at the series list there are not many people it could be.
-
-He mentioned that the woman showed up in a space capsule, and that there was more than one mech between the pair.
-
-Now who do we know WILL be present in the game that has a mech and could have a reason to be in a space capsule?
-Goddamn Sandwitches Thu 25 Mar 2010 20:12:55 No.4755139 Report
->>4755137
-Though on further reflection, by machines he could have meant the capsule itself rather than another mech...
-Sciencegar Sciencebolt Thu 25 Mar 2010 20:12:55 No.4755142 Report
-Quoted By: >>4755149 >>4755157
->>4755083
 
 "Woman, early twenties. Speaks Crescentian and Caladosian, calls them "japanese" and "english". Landed off the northern coast in a space capsule much like the ones the SDC used to have. Claims to have been living in some kind of space-ship. The others a colored guy about the same age, speaks Caladosian with an atrocious accent. Claims to work for some kind of company, was scouting our island when his mechanical giant was attacked by bugs."
 
@@ -134,204 +71,8 @@ Kaijo smirks. "Jin, you know better than anyone that half the biologists on the 
 You cut in again. "Any more details?"
 
 "No."
-Anonymous Thu 25 Mar 2010 20:14:55 No.4755147 Report
-Quoted By: >>4755157
->>4755137
-Ahhhh.
 
-Okay, I think I can guess.
-
-Is the letter M involved?
-
-Does the series name start with G?
-Anonymous Thu 25 Mar 2010 20:15:55 No.4755149 Report
-Quoted By: >>4755175
->>4755142
-Fuck, I should be recognizing these. My brain isn't working at ALL ;_;
-Goddamn Sandwitches Thu 25 Mar 2010 20:17:55 No.4755157 Report
-Quoted By: >>4755162
->>4755142
-Yes, but it appears I was wrong anyway.
-
->>4755147
-Out of those two, I would say we will probably have better luck with the Woman. I doubt she is anyone we know, but since she was on a ship, she COULD be someone. And I would rather not leave her there to get poked and prodded when we could get her out of there.
-Gilliam Yaeger !q0uEtog.ao Thu 25 Mar 2010 20:18:55 No.4755162 Report
-Quoted By: >>4755164
->>4755157
-Yeah, lets get the chick.
-
-We can bust the guy out when we return with the Algol and/or a Servant and we don't give a shit about anything here anymore. Or maybe prove ourselves to these new guys...
-Gilliam Yaeger !q0uEtog.ao Thu 25 Mar 2010 20:20:55 No.4755164 Report
-Quoted By: >>4755171 >>4755172 >>4755182
->>4755162
-If we're lucky it might be Sophia...Or Latooni... :3
-Anonymous Thu 25 Mar 2010 20:22:55 No.4755171 Report
-Quoted By: >>4755178
->>4755164
-Early twenties shoots down both of those ideas, I'm afraid.
-View SameGoogleiqdbSauceNAO sanger10.jpg, 57KiB, 493x278
-Ratsel Feinschmecker !VFYL66iWMA Thu 25 Mar 2010 20:22:55 No.4755172 Report
->>4755164
-
-Sophia?
-Thousand Frills Thu 25 Mar 2010 20:22:55 No.4755174 Report
-Quoted By: >>4755193
-His calling it a 'mechanical giant' seems to imply he's not too up on the whole mecha thing.
-
-The more i listen to these people the more I wonder if taking over the world is going to be the best course of action in the end.
-Sciencegar Sciencebolt Thu 25 Mar 2010 20:22:55 No.4755175 Report
-Quoted By: >>4755183 >>4755195 >>4755198 >>4755215
->>4755149
-
-
-You would be unlikely to recognise them from a description that I could give. They're surprises, not mainliners.
-
-One is a cameo people have been bugging me for a while. The other is an unfamiliar familiar face.
-Gilliam Yaeger !q0uEtog.ao Thu 25 Mar 2010 20:22:55 No.4755178 Report
-Quoted By: >>4755188 >>4755190 >>4755195
->>4755171
-Shit.
-
-...Dumi...?
-Goddamn Sandwitches Thu 25 Mar 2010 20:23:55 No.4755182 Report
-Quoted By: >>4755190
->>4755164
-There are quite a few people it could be from our ship, most of our group on the main ship were female.
-
-It cannot be Tis, Lat or Seolla though do to the mid-twenties part... Ring maybe?
-Anonymous Thu 25 Mar 2010 20:23:55 No.4755183 Report
->>4755175
-Hmmm.
-
-Awww crap, we can't have both?
-Thousand Frills Thu 25 Mar 2010 20:24:55 No.4755188 Report
-Quoted By: >>4755200
->>4755178
-woman... twenties... spaceship...
-We didn't accidentally pull along our OG double did we? 'cuz that would be weird.
-Anonymous Thu 25 Mar 2010 20:24:55 No.4755190 Report
->>4755182
->>4755178
-
-Look at Sciencegar's spoilers, guys...
-Anonymous Thu 25 Mar 2010 20:25:55 No.4755192 Report
-Quoted By: >>4755203 >>4755239
-Oh gods, I think I know who the black guy might be.
-
-It may involve axes and /tg/
-Sciencegar Sciencebolt Thu 25 Mar 2010 20:25:55 No.4755193 Report
->>4755174
-
-This is not Getter Pilot Hayato, this is I know more than you go fuck yourself Hayato.
-
-Edo Island is a very small portion of the New World. It's a single Japanese island essentially. Theres a lot more to see, but you decided to get upgrades before you started exploring.
-Goddamn Sandwitches Thu 25 Mar 2010 20:25:55 No.4755195 Report
->>4755175
->>4755178
-
-Oh god if one is Dumi... Crap...
-
-
-Still, I say the girl, higher chance of it being someone we know.
-Gilliam Yaeger !q0uEtog.ao Thu 25 Mar 2010 20:26:55 No.4755198 Report
->>4755175
-........I got nothing.
-
-Quick! Somebody dig through the archives!
-
-Could it be Calvina?
-Goddamn Sandwitches Thu 25 Mar 2010 20:26:55 No.4755200 Report
->>4755188
-Oh dear god that would be funny as hell.
-Sciencegar Sciencebolt Thu 25 Mar 2010 20:27:55 No.4755203 Report
-Quoted By: >>4755206 >>4755212
->>4755192
-
-We nixed that idea in the Planning thread, Apologised just never got back to my second request.
-
-Also, do you really think Zolomon would have let himself get taken in by these guys?
-Gilliam Yaeger !q0uEtog.ao Thu 25 Mar 2010 20:28:55 No.4755206 Report
->>4755203
-Yeah, and he'd never fall to mere bugs.
-Anonymous Thu 25 Mar 2010 20:30:55 No.4755212 Report
-Quoted By: >>4755216
->>4755203
-Sorry, I'm trying to remember who we've requested to have cameo.
-Gilliam Yaeger !q0uEtog.ao Thu 25 Mar 2010 20:31:55 No.4755215 Report
->>4755175
-Could you at least tell us where this pestering started? Disc 1a, 1b or 2?
-Thousand Frills Thu 25 Mar 2010 20:31:55 No.4755216 Report
->>4755212
-Start with 'everyone' and narrow it down a bit.
-Stealthyboy !fchRKomfls Thu 25 Mar 2010 20:32:55 No.4755220 Report
-Quoted By: >>4755224
-The chick's probably a girl from the Valhawk or whatever the ship's called.
-
-I have no clue on the guy, though...
-Gilliam Yaeger !q0uEtog.ao Thu 25 Mar 2010 20:33:55 No.4755224 Report
-Quoted By: >>4755226 >>4755231
->>4755220
-.................
-
-WE GET THE GIRL
-
-ITS PROBABLY ARIA OR THE LITTLE SISTER
-
-THIS IS OUR TICKET TO VALGUARD!
-Gilliam Yaeger !q0uEtog.ao Thu 25 Mar 2010 20:34:55 No.4755226 Report
->>4755224
-No wait...Early twenties. Fuck.
-
-Maybe the older sister?
-Anonymous Thu 25 Mar 2010 20:35:55 No.4755231 Report
-Quoted By: >>4755235
->>4755224
-The girl sounds nice, but the guy DOES have a mech, which is kinda valuab- Oh what the hell, the girl. The freaking girl.
-Goddamn Sandwitches Thu 25 Mar 2010 20:36:55 No.4755232 Report
-Quoted By: >>4755244
-Just checking, so who agrees we should get the woman.
-Gilliam Yaeger !q0uEtog.ao Thu 25 Mar 2010 20:36:55 No.4755235 Report
-Quoted By: >>4755240
->>4755231
-Well we can only get one of the three (including the mech) so...
-Zeta Zaku Thu 25 Mar 2010 20:36:55 No.4755239 Report
-Quoted By: >>4755242
->>4755192
-Oh lord, if it is him, then go for the guy. Him and Katina would be BFFs forever.
-Stealthyboy !fchRKomfls Thu 25 Mar 2010 20:37:55 No.4755240 Report
->>4755235
-I don't think we could ever get the mech anyway...
-Gilliam Yaeger !q0uEtog.ao Thu 25 Mar 2010 20:37:55 No.4755242 Report
-Quoted By: >>4755249
->>4755239
-It can't be - He wouldn't go down like a bitch like this guy did.
-Anonymous Thu 25 Mar 2010 20:38:55 No.4755244 Report
->>4755232
-Agreed.
-Zeta Zaku Thu 25 Mar 2010 20:39:55 No.4755249 Report
-Quoted By: >>4755251
->>4755242
-Well, he usually has the rest of his team backing him up. Not to mention, for all his amazingness, he is a bit of a one-trick pony.
-Anonymous Thu 25 Mar 2010 20:39:55 No.4755251 Report
-Quoted By: >>4755258
->>4755249
-Sciencegar confirmed it isn't him. Pity.
-Zeta Zaku Thu 25 Mar 2010 20:42:55 No.4755258 Report
-Quoted By: >>4755328
->>4755251
-Ah shit. Oh well. At least we have some ideas about the girl still.
-Anonymous Thu 25 Mar 2010 21:03:55 No.4755328 Report
->>4755258
-I think we've all voted for the girl. Waiting on you, Sciencegar!
-Anonymous Thu 25 Mar 2010 21:46:55 No.4755568 Report
-Bamp
-Gilliam Yaeger !q0uEtog.ao Thu 25 Mar 2010 22:08:55 No.4755695 Report
-Quoted By: >>4755708
-Goddamnit Sciencegar. At least update before you vanish!
-View SameGoogleiqdbSauceNAO AkaneArdygun.jpg, 12KiB, 175x400
-Sciencegar Sciencebolt Thu 25 Mar 2010 22:09:55 No.4755704 Report
-Quoted By: >>4755712 >>4755715 >>4755716 >>4755717 >>4755794
-(/m/, voting for the boobs. I'm shocked.)
+---
 
 It's late in the evening when the white Limo Raider returns, and Jin emerges with a young woman. He removes her handcuffs and turns to Mr. Mireniamu, who signs off on a series of forms.
 
@@ -339,67 +80,23 @@ It's late in the evening when the white Limo Raider returns, and Jin emerges wit
 
 "Sorry, trust is at a premium in my line of work. Just make sure you get something useful from all this 'cooperation', then we'll see if G-Force really is worth the scraps the High Intellect throws at it."
 
-You run past and look the new arrival up and down. "Dammit, I don't recognise you at all...Tell me you're from a sane world, with proper giant robots and food made out of pork scratchings and pig dung extract."
+You run past and look the new arrival up and down. "Dammit, I don't recognise you at all... Tell me you're from a sane world, with proper giant robots and food made out of pork scratchings and pig dung extract."
 
-The woman looks behind her as the Limo Raider drives away. "I'm sorry, but I'm still trying to take all of this in...I'm Akane Ardygun, I'm a Trailer...You know what a Trailer is, right?"
+The woman looks behind her as the Limo Raider drives away. "I'm sorry, but I'm still trying to take all of this in... I'm Akane Ardygun, I'm a Trailer... You know what a Trailer is, right?"
 
-"Ugh....Something rednecks live in?"
+"Ugh... Something rednecks live in?"
 
 The young woman sighs.
 
 "It's the same all over, Akane. Chill out, we're at least 50% less likely to molest you than those other guys. Thats a start, right?"
-BSRaven !!pZhu/eJf6iW Thu 25 Mar 2010 22:10:55 No.4755708 Report
->>4755695
-Science is Irish isn't he?
 
-...He might still be SCIENCE!ing y'know. It's 7:10pm here in UKland.
-Gilliam Yaeger !q0uEtog.ao Thu 25 Mar 2010 22:11:55 No.4755712 Report
->>4755704
-We made the right choice.
-BSRaven !!pZhu/eJf6iW Thu 25 Mar 2010 22:12:55 No.4755715 Report
->>4755704
->50% less likely
+---
 
-Well that's one hell of a lie. We're more likely to lesrape because Katina.
-Anonymous Thu 25 Mar 2010 22:12:55 No.4755716 Report
->>4755704
-Yay! Akane Ardygun!
-
-Our luck hasn't failed us yet!
-Goddamn Sandwitches Thu 25 Mar 2010 22:12:55 No.4755717 Report
->>4755704
->Akane Ardygun
-
-NICE.
-Anonymous Thu 25 Mar 2010 22:13:55 No.4755728 Report
-Quoted By: >>4755732 >>4755733
-What's she from?
-Anonymous Thu 25 Mar 2010 22:14:55 No.4755732 Report
->>4755728
-SRW W. One of the originals.
-Goddamn Sandwitches Thu 25 Mar 2010 22:14:55 No.4755733 Report
->>4755728
-SRW W.
-Anonymous Thu 25 Mar 2010 22:23:55 No.4755782 Report
-Quoted By: >>4755795
-So... we've picked up one of the Ardyguns... Hmmm. How did she get down here?
-Zeta Zaku Thu 25 Mar 2010 22:25:55 No.4755794 Report
->>4755704
-AKANE. YES. Now to commence with boob jokes around her.
-
-Though we're kind of lacking in stuff she can do, since we don't have any warships yet.
-Gilliam Yaeger !q0uEtog.ao Thu 25 Mar 2010 22:25:55 No.4755795 Report
->>4755782
-Escape pod.
-
-Although now I wonder who the other guy was...Ah well, can't be anyone important.
-Sciencegar Sciencebolt Thu 25 Mar 2010 22:27:55 No.4755814 Report
-Quoted By: >>4755831
-"Warter, Warter...Nope, doesn't ring a bell."
+"Warter, Warter... Nope, doesn't ring a bell."
 
 "The Gutsy Geoid Guard? The Space Knights? Mithril?"
 
-"....Do you know the Divine Crusaders? The Inspectors? The Shadow Mirrors?"
+"...Do you know the Divine Crusaders? The Inspectors? The Shadow Mirrors?"
 
 Akane grunts in annoyance. "We must be from completely different worlds..."
 
@@ -409,35 +106,27 @@ Akane grunts in annoyance. "We must be from completely different worlds..."
 
 "Counterparts? Like alternate versions of people in different worlds?"
 
-"Yes! You understand! I tried explaining to that Hayato Jin I knew another version of him, but he didn't get it...But I suppose it'd be too much to start listing off people."
+"Yes! You understand! I tried explaining to that Hayato Jin I knew another version of him, but he didn't get it... But I suppose it'd be too much to start listing off people."
 
 "Don't worry, if any of your friends made the jump with you, we'll find them just like mine."
 
-Akane's face wrinkles up with concern. "But...Our ship was caught in the centre of the Dark Exa Nova...We all had to eject while the dimensional distortion was happening. They could be scattered over half the galaxy..."
+Akane's face wrinkles up with concern. "But... Our ship was caught in the centre of the Dark Exa Nova... We all had to eject while the dimensional distortion was happening. They could be scattered over half the galaxy..."
 
-"Don't you worry, Big Sis Katina will sort it all out! I know people, they should be able to help you out...Speaking of which, what did that Zondark dude find out?"
-Gilliam Yaeger !q0uEtog.ao Thu 25 Mar 2010 22:31:55 No.4755831 Report
-Quoted By: >>4755833 >>4755879
->>4755814
-Oh boy!
+"Don't you worry, Big Sis Katina will sort it all out! I know people, they should be able to help you out... Speaking of which, what did that Zondark dude find out?"
 
-I cannot wait until we meet the Genesic GGG team...and to see Akane's reaction when they don't know her...
-Anonymous Thu 25 Mar 2010 22:32:55 No.4755833 Report
->>4755831
-That's horrib- Oh wait, this is 4chan, we're all terrible people.
-Sciencegar Sciencebolt Thu 25 Mar 2010 22:38:55 No.4755854 Report
-Quoted By: >>4755864 >>4755879
+---
+
 Zondark stares blankly at the wall, then slowly turns his neck towards you. His expression is that same dread panic that forced you to punch him, but frozen in place.
 
-"W-w-w-well....It's not every d-day...you get a message from beyond..."
+"W-w-w-well... It's not every d-day... you get a message from beyond..."
 
 "You got a message? SWEET!! What is it, tell me tell me!!!"
 
-Zondark, hands shaking, turns to a gramaphone-like thing connected by glass tubes and lenses to one of his telescopes, which is peering into the gubbins of your earpiece. "Words...from the planes beyond...And the worst thing is...they're legible..."
+Zondark, hands shaking, turns to a gramaphone-like thing connected by glass tubes and lenses to one of his telescopes, which is peering into the gubbins of your earpiece. "Words... from the planes beyond... And the worst thing is... they're legible..."
 
 He flips a switch. Your heart leaps as a familiar voice cuts through the quiet of the lab.
 
-Katina, destroy the earpiece. They'll use it to track you. You can't find me with it, you'll need a multidimensional computer, than can upload or download between the realms. There should be several, they adjusted the Shards to make sure they had a way. Use that against them, use it to find me, before they figure out what they are.
+*Katina, destroy the earpiece. They'll use it to track you. You can't find me with it, you'll need a multidimensional computer, than can upload or download between the realms. There should be several, they adjusted the Shards to make sure they had a way. Use that against them, use it to find me, before they figure out what they are.*
 
 "....GOD. FUCKING. DAMMIT!!! DUMI, YOU OBTUSE SHITHEAD!!!!"
 Anonymous Thu 25 Mar 2010 22:40:55 No.4755858 Report
