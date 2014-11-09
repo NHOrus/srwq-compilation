@@ -1,61 +1,11 @@
+# Episode 03
 
-SRWQ2 Mission 3: If you'd included Fifth Element this would be so much simpler...
-Sciencegar Sciencebolt Wed 24 Mar 2010 20:21:15 No.4749552 ViewReplyOriginalReport
-Quoted By: >>4749622 >>4750488
-Previous Threads:
-http://teamphantomtiger.blogspot.com/2010/02/srw-quest-sciencegar-sciencebolt-joint.html
-http://teamphantomtiger.blogspot.com/2010/02/srw-quest-thread-archive-mark-ii.html
-http://teamphantomtiger.blogspot.com/2010/03/srw-quest-disc-2-thread-archive.html
+##SRWQ2 Mission 3: If you'd included Fifth Element this would be so much simpler...
 
 In our last thread, our heroine Katina Tarask got to know her new allies in anti-kaiju team G-Force, fixed up her wet R-Blade, and not much else because the thread got filled up with discussion of dangerous guns and Exalted characters.
 
-So, moving on.
+---
 
-(And no, the terrible MSpaint cut-and-paste art will never stop).
-View SameGoogleiqdbSauceNAO he-man_awesome.gif, 489KiB, 400x300
-Anonymous Wed 24 Mar 2010 20:22:15 No.4749557 Report
-Quoted By: >>4749650
-Is He-Man in yet?
-Fatman !!IqQAJt5OEQw Wed 24 Mar 2010 20:25:15 No.4749569 Report
-Quoted By: >>4749650
-The fact that Katina has Ebony and Ivory AND Raising Heart makes me filled with a dread and panic that rivals the ultimate despair the Antispirals would churn up.
-
-Ah well.
-Anonymous Wed 24 Mar 2010 20:28:15 No.4749581 Report
-Quoted By: >>4749584 >>4749593
-She also has Saber's Avalon, Cardcaptor Sakura's wand, Fate's Zanber... oh god...
-
-Brace for rape.
-Anonymous Wed 24 Mar 2010 20:29:15 No.4749584 Report
->>4749581
-You weren't already expecting rape?
-the13thArcana !9wooYx1Two Wed 24 Mar 2010 20:30:15 No.4749588 Report
-Ok... minor interferance
-
-Sauce on the pic?
-View SameGoogleiqdbSauceNAO More dakka.jpg, 87KiB, 750x600
-Stealthyboy !fchRKomfls Wed 24 Mar 2010 20:32:15 No.4749593 Report
->>4749581
-Still not enuff dakka.
-View SameGoogleiqdbSauceNAO 1156814354553bf2.jpg, 93KiB, 600x800
-Anonymous Wed 24 Mar 2010 20:34:15 No.4749599 Report
-Quoted By: >>4749614 >>4749622 >>4750011 >>4750488
-Incase some of you want them identified.
-Anonymous Wed 24 Mar 2010 20:40:15 No.4749614 Report
-Quoted By: >>4749620 >>4749628
->>4749599
->Clown cards
-Haken Browning !zHe7DH816A Wed 24 Mar 2010 20:41:15 No.4749620 Report
-Quoted By: >>4749637
->>4749614
-If it makes you feel any better, Billy vs SNAKEMAN calls them Claw Cards.
-Goddamn Sandwitches Wed 24 Mar 2010 20:41:15 No.4749622 Report
-Quoted By: >>4750259
->>4749552
->>4749599
-I love how there is a perfectly normal chainsaw just sitting there amongst all those powerful artifacts...
-Sciencegar Sciencebolt Wed 24 Mar 2010 20:41:15 No.4749625 Report
-Quoted By: >>4749638 >>4749679
 "Right, our first course of action is to get more firepower for the team. And by 'the team', I mostly mean my R-Blade."
 
 The rest of the G-Force team can't disagree with this sentiment. Kaijo, however, shakes his head. "Just asking for it from our suppliers hasn't gotten us anywhere quickly. We need to start appropriating things directly, going through normal channels won't cut it."
