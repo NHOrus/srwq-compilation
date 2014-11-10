@@ -254,7 +254,7 @@ You enter Mr Mireniamu's office as he tosses the last of a large pile of paperwo
 
 "Yeah, you said something about finding our friends?"
 
-"Well, that would be one of the objectives in mind...Has Ms Akane told you what she told me, about this 'Database' organisation?"
+"Well, that would be one of the objectives in mind... Has Ms Akane told you what she told me, about this 'Database' organisation?"
 
 "Uh, no, I guess I forgot to ask her."
 
@@ -269,60 +269,23 @@ Akane sits down and folds her hands together. "The mech you fought is very simil
 "The heroes of Earth united to stop them, but the conflict escalated, until finally a weapon was made that decided the whole thing. The Dark Eva Nova shattered our world, our universe, and left us here..."
 
 Mireniamu nods. "You can see, Ms Tarask, why we'd like to avoid a conflict with these people."
-Goddamn Sandwitches Sat 27 Mar 2010 02:44:39 No.4763101 Report
-Quoted By: >>4763106
->>4763090
-Wait... So Mr Mireniamu is from W as well? I did not realize that... Assuming it is just us in here, it might be time to spill the beans.
-Anonymous Sat 27 Mar 2010 02:45:39 No.4763106 Report
-Quoted By: >>4763111
->>4763101
-No, he isn't.
-Gilliam Yaeger !q0uEtog.ao Sat 27 Mar 2010 02:46:39 No.4763110 Report
->>4763090
-Here we go...
-Goddamn Sandwitches Sat 27 Mar 2010 02:46:39 No.4763111 Report
->>4763106
-Hmm...
 
-Oh, I guess you are right. I simply misread some of Akanes lines as his.
-Stealthyboy !fchRKomfls Sat 27 Mar 2010 02:49:39 No.4763118 Report
-Quoted By: >>4763327
->>4763090
-Maybe we can question Akane on what the Arcus pilot was saying about us interfacing with the next level.
-Sciencegar Sciencebolt Sat 27 Mar 2010 02:53:39 No.4763131 Report
-Quoted By: >>4763163 >>4763170 >>4763184
 "Well, if they could just blow up the universe, why didn't they do it last night?"
 
 Akane raises a finger. "Two nights ago, actually."
 
 "My point is, they're probably no better off than the rest of us are, a couple of mechs hidden in a cave somewhere. We don't need to shit our pants over this."
 
-"Katina...their technology is incredible. They have generate new mechs basically from thin air, by copying the memory they have of mechs and pilots. If they get power to reactivate their technology, they can create an whole army and take over this world in no time. We need to find them and convince them, or stop them, before that happens."
+"Katina... their technology is incredible. They have generate new mechs basically from thin air, by copying the memory they have of mechs and pilots. If they get power to reactivate their technology, they can create an whole army and take over this world in no time. We need to find them and convince them, or stop them, before that happens."
 
-".....FFFFFFuck!!! Why can I have enemies that don't cheat?!?!"
+"...FFFFFFuck!!! Why can I have enemies that don't cheat?!?!"
 
-Mireniamu coughs politely. "More to the point, Ms Tarask...Tokugawa, even if we link up with all the other Crescent Islands, isn't in the right condition to fight a protracted war with that kind of foe. Maybe, given a few months to prepare ourselves, we can make new weapons to fight such things, but as it stands, we must avoid more encounters with them before they're ready. That means, any reason they would have to come to Edo would have to be shunted aside."
+Mireniamu coughs politely. "More to the point, Ms Tarask... Tokugawa, even if we link up with all the other Crescent Islands, isn't in the right condition to fight a protracted war with that kind of foe. Maybe, given a few months to prepare ourselves, we can make new weapons to fight such things, but as it stands, we must avoid more encounters with them before they're ready. That means, any reason they would have to come to Edo would have to be shunted aside."
 
-"You mean...Like me and Akane."
+"You mean... Like me and Akane."
 
 "Exactly. Luckily, you have an excuse to leave anyway, and we have a job for you."
-Anonymous Sat 27 Mar 2010 03:02:39 No.4763163 Report
->>4763131
-Oh good. Well then. ARE YOU GUYS READY?!
-Goddamn Sandwitches Sat 27 Mar 2010 03:03:39 No.4763170 Report
->>4763131
-Well I guess we know who fucked up or plan now.
-GUNDAMU !0smG1gQz9c Sat 27 Mar 2010 03:07:39 No.4763184 Report
-Quoted By: >>4763186
->>4763131
-Huh?
 
-Wait, did we just get our plan to search for our allies shot down? This guy better not be shafting us over in our search for Dumi, or he's going to get a Getter Scarf shoved where the sun don't shine.
-Anonymous Sat 27 Mar 2010 03:07:39 No.4763186 Report
->>4763184
-No, he's telling us to GTFO. In otherwords, that's a YES towards finding our allies.
-Sciencegar Sciencebolt Sat 27 Mar 2010 03:14:39 No.4763206 Report
-Quoted By: >>4763226 >>4763259 >>4763265 >>4763266
 "Tokugawa needs to know what the makeup of this world is, and what that might entail for out future. You need to find your friends, and lose any pursuit the Database may be sending after you. These twin desires coincide beautifully."
 
 You raise an eyebrow at Mr. Mireniamu. "You're sending up to make maps for you."
@@ -345,84 +308,6 @@ You raise an eyebrow at Mr. Mireniamu. "You're sending up to make maps for you."
 
 "To the west is some kind of artificial island, dominated by a large statue of some kind. We couldn't make contact as the radio frequencies were filled with music. And in the northwest, a scout was attacked by some kind of metal monster, and reported sighting several different kinds as it retreated. Some seemed to be fighting each other."
 
-RESPONSE FROM KATINA? QUESTIONS, REQUESTS, OR ACCEPTANCE? You can ask anything at this point.
-Goddamn Sandwitches Sat 27 Mar 2010 03:18:39 No.4763226 Report
-Quoted By: >>4763235 >>4763237
->>4763206
-Northwest, Northwest, Northwest!
-
-Time to go and loot and kill some Zoids for Tech!
-Haken Browning !zHe7DH816A Sat 27 Mar 2010 03:20:39 No.4763235 Report
-Quoted By: >>4763241
->>4763226
-Or to hook up with a certain Sexytime Crocodile and work up a stake on the Zoids Battle circuit...
-Goddamn Sandwitches Sat 27 Mar 2010 03:20:39 No.4763237 Report
-Quoted By: >>4763273
->>4763226
-ALSO, it appears to be the most dangerous area at the moment... If any of our friends are there, they are likely more in need of help than in any of the other directions.
-Goddamn Sandwitches Sat 27 Mar 2010 03:22:39 No.4763241 Report
->>4763235
-Don't forget Haken... We discuss only using the Zoids themselves, as far as i know we never spoke to Sciencegar about using any characters.
-
-... But Grimlock might be there... And THAT would be awesome.
-Anonymous Sat 27 Mar 2010 03:24:39 No.4763250 Report
-I say west. It sounds interesting.
-GUNDAMU !0smG1gQz9c Sat 27 Mar 2010 03:25:39 No.4763259 Report
-Quoted By: >>4763260 >>4763364
->>4763206
-Make sure that we get permission to take that guy who decided to help us scan for our friends.
-
-Because with his scanner and our earpiece, we have a method to scan for Dumi where we go instead of looking around at random and hoping to hit the right spot.
-Haken Browning !zHe7DH816A Sat 27 Mar 2010 03:25:39 No.4763260 Report
->>4763259
-We had to destroy the earpiece last thread. The Database was leeching our bandwidth.
-Anonymous Sat 27 Mar 2010 03:26:39 No.4763265 Report
->>4763206
-Shoot self in head. End retarded story.
-Anonymous Sat 27 Mar 2010 03:26:39 No.4763266 Report
-Quoted By: >>4763327
->>4763206
-
-Look at whatever photos they got.
-
-What source is the artifical island with the statue from?
-Anonymous Sat 27 Mar 2010 03:28:39 No.4763273 Report
-Quoted By: >>4763299 >>4763310
->>4763237
-ALSO Also, theres the possibility of picking up Leena and the Gunsniper for the crew. Think about it, Katina and Leena on the same team...my god there would be nothing left!
-
-Oh, and the west is obviously new york.
-Haken Browning !zHe7DH816A Sat 27 Mar 2010 03:34:39 No.4763299 Report
->>4763273
-Leena to destroy everything, Katina to destroy the target...I'm okay with this.
-
-Also we can finally figure out how those hair poles stay attached to her head. Y'know, to duplicate the levitation tech for the Tesla Drive upgrade we passed up for SWORDSCARF.
-Anonymous Sat 27 Mar 2010 03:37:39 No.4763310 Report
-Quoted By: >>4763323 >>4763326
->>4763273
->go to New York
->meet alternate universe Negotiator
-
-Let's go West.
-Anonymous Sat 27 Mar 2010 03:39:39 No.4763320 Report
-Quoted By: >>4763791
-Speaking of swordscarf(which should have been RIBBON BLADE), IS it big/tough enough to function as a kind of, emergency shield or guard? against solid rounds at least?
-Anonymous Sat 27 Mar 2010 03:40:39 No.4763323 Report
-Quoted By: >>4763325 >>4763338
->>4763310
-
-Noooo, then we'll all start having an existential crisis. it's too soon for that.
-Anonymous Sat 27 Mar 2010 03:42:39 No.4763325 Report
->>4763323
-You are all now hearing that violin music rom the show.
-GUNDAMU !0smG1gQz9c Sat 27 Mar 2010 03:42:39 No.4763326 Report
-Quoted By: >>4763338 >>4763347
->>4763310
-Are you sure? Airwaves, even military ones, being dominated by music? I'm getting vibes of Sharon Apple.
-Sciencegar Sciencebolt Sat 27 Mar 2010 03:42:39 No.4763327 Report
-Quoted By: >>4763340
->>4763118
-
 "Akane, what's the 'Next Level'?"
 
 "Huh?"
@@ -431,11 +316,9 @@ Quoted By: >>4763340
 
 "I don't think they ever mentioned it before....Must be something new. Maybe something they're trying to find."
 
->>4763266
-
 "Ok, this is 'Japan'."
 
-You frown at the grainy black-and-white photo. "Well, it doesn't have a fake Eiffel Tower, so its not Tokyo...Akane?"
+You frown at the grainy black-and-white photo. "Well, it doesn't have a fake Eiffel Tower, so its not Tokyo... Akane?"
 
 "It doesn't look like any Japanese city I know..."
 
@@ -446,35 +329,6 @@ Diego pulls out the next one. "Heres the musical city."
 Diego shrugs. "Heres the metal monster."
 
 "Looks like its made of lego or something. I think I saw a chinese knockoff version on sale at CostCo once."
-Jetpack Explosion Sat 27 Mar 2010 03:43:39 No.4763332 Report
-Quoted By: >>4763340 >>4763341
-I kinda think west is Macross land. The artificial could be a landed colony ship, and the giant statue could even be the SDF macross itself. And you couldn't talk to them because of music l:/.
-
-I may have only actively watched Macross 7, but it seems to fit the bill enough for a mashed up abortion of the macross franchise that this world would spawn.
-Anonymous Sat 27 Mar 2010 03:45:39 No.4763338 Report
->>4763326
-Could have been Schwarzwald hijacking everything to blast Stoning or something.
->>4763323
-Oh, fine. We will be encountering him, though, mark my words. I have good memory.
-GUNDAMU !0smG1gQz9c Sat 27 Mar 2010 03:45:39 No.4763340 Report
->>4763332
->>4763327
-OH GOD I WAS RIGHT
-
-Get our asses over to Macross land before Sharon Apple throws a Macross class ship at us.
-Goddamn Sandwitches Sat 27 Mar 2010 03:45:39 No.4763341 Report
->>4763332
-I think you are right about Macross city... Makes sense with the music as well...
-
-
-Still, I say we head towards the Metal Beasts. They represent the biggest possible danger to people who could have landed there, and if we really intend to go save our friends, i think we should head their ASAP.
-Anonymous Sat 27 Mar 2010 03:46:39 No.4763347 Report
-Quoted By: >>4763369
->>4763326
-Oh damn. Yep, that would make the big statue a Macross. We're staying the fuck away fro- wait, we don't have any pervs. this might not be a bad plan.
-Sciencegar Sciencebolt Sat 27 Mar 2010 03:50:39 No.4763364 Report
-Quoted By: >>4763414
->>4763259
 
 "Can we take Zondark with us?"
 
@@ -484,49 +338,11 @@ Quoted By: >>4763414
 
 "A flying lizard made a trail of destruction across the length of the Crescent Isles, destroying several towns and eating hundreds. Only the Sendai navy were able to stop them, lead by Captain H himself."
 
-"Right...Well, I probably don't need all of them."
+"Right... Well, I probably don't need all of them."
 
 "I'd like to say I have lots of superscience gadgets available, but the truth is recquisition is still a bitch. You'll have to make do with the latest batch of guns we were asked to test, and the Aderu's various bits and pieces. I'll make a special effort to scrounge up anything in particular you need."
-GUNDAMU !0smG1gQz9c Sat 27 Mar 2010 03:51:39 No.4763369 Report
-Quoted By: >>4763381 >>4763386
->>4763347
-...I just had the best idea ever.
 
-Bing a portable hard drive, steal some holographic projectors from Database to bring data into real matter.
-
-Then add Sharon Apple to the harem!
-Fatman !!IqQAJt5OEQw Sat 27 Mar 2010 03:52:39 No.4763376 Report
-Quoted By: >>4763383 >>4763386
-Northwest.
-
-By the way, if Zoids are here, which era would it be? Chaotic Century or New Century Zero? I'm hoping for Chaotic Century. We could use Comrade Flyheight in our quest.
-Anonymous Sat 27 Mar 2010 03:53:39 No.4763381 Report
->>4763369
-I seem to remember an old fanfic along those lines. First one to suggest the UPS Truck From Hell gets to calibrate a PMS Biosensor for Katina.
-Goddamn Sandwitches Sat 27 Mar 2010 03:53:39 No.4763383 Report
->>4763376
-As I said before, we never discussed using PILOTS from zoids, just the Wild mecha from the franchise... And Grimlock.
-
-Which is why I've been saying that leaving anyone stranded there is dangerous.
-Haken Browning !zHe7DH816A Sat 27 Mar 2010 03:54:39 No.4763386 Report
-Quoted By: >>4763393
->>4763376
-It's Zoids Saga. Everybody up to Fuzors at once, and we can make catches and salvages Pokemon-style, but everyone speaks bad Engrish due to piss-poor text compression.
-
->>4763369
-...suddenly, I fear for the Virtual World multi-Shard. Especially my Secret French Waifu.
-Anonymous Sat 27 Mar 2010 03:56:39 No.4763393 Report
->>4763386
-*looks at spoilers*
-
-Wut?
-Anonymous Sat 27 Mar 2010 03:59:39 No.4763412 Report
-On the other hand, if Katina goes to Macross City, we might inadvertently end the world by throwing her into a Monster with Reaction Weaponry.
-
-...FUND IT.
-Sciencegar Sciencebolt Sat 27 Mar 2010 04:00:39 No.4763414 Report
-Quoted By: >>4763426 >>4763437 >>4763441 >>4763462 >>4763483
->>4763364
+---
 
 FINAL EQUIPMENT AND PERSONEL:
 R-Blade Deathscarf Custom
@@ -548,215 +364,3 @@ Nozumi Itoshi: Rule 63 Elf Pirate SM!Kusuha
 Yume: Shoeless Hobo who's good with guns
 
 ALSO, CHOOSE ONE SPECIAL REQUEST. The one with the best combination of making-sense and interesting-ness will get through.
-Goddamn Sandwitches Sat 27 Mar 2010 04:03:39 No.4763424 Report
-CHOOSE ONE OF:
-Dr. Zondark and his Dimensional Scopes
-
-CHOOSE Y/N TO EACH OF THE FOLLOWING:
->Kaijo Maki: Sexy white-tuxed guy, knows things and people
-Y
->Chouko Hotaro: Half-elf woman of mystery, cute way of talking.
-N
->Lord Ogomo: Angry man with a lot of money.
-N
->Nozumi Itoshi: Rule 63 Elf Pirate SM!Kusuha
-Y
->Yume: Shoeless Hobo who's good with guns
-N
-Goddamn Sandwitches Sat 27 Mar 2010 04:04:39 No.4763426 Report
-Quoted By: >>4763460
->>4763414
-Also, what do you mean my "Special Request"?
-Haken Browning !zHe7DH816A Sat 27 Mar 2010 04:06:39 No.4763437 Report
-Quoted By: >>4763464 >>4763469
->>4763414
-- Prof. Morimori and his Chogokin formulae
-- Y to everyone except Hotaro
-- SPECIAL REQUEST: We pull off Operation Streaker...only to be dismayed when we do it at Turn-A's Coming of Age Ceremony or some other occasion where everyone ELSE is naked too.
-Anonymous Sat 27 Mar 2010 04:07:39 No.4763441 Report
->>4763414
-Saotome, because he's the one who can fix and modify our Scarf.
-
-Chouko Hotaro: because of her vagina.
-Nozumi Itoshi: Drinking buddy
-Yume: because he's a Shoeless Hobo who's good with guns
-Zeta Zaku Sat 27 Mar 2010 04:09:39 No.4763452 Report
->Hypnoray
-Perfect for harem building. Also
-
-Kabuto and Photonic weapons.
-Y to everyone except Ogomo and maybe Kajio.
-Uh...custom paintjob for either the R-Blade or the Warship. We need to look good.
-
-Also ask if it's possible to sculpt pretty frills out of armor materials.
-Sciencegar Sciencebolt Sat 27 Mar 2010 04:10:39 No.4763460 Report
-Quoted By: >>4763469 >>4763471 >>4763477 >>4763502
->>4763426
-
-Literally anything you think this city can provide for you. Let your imagination go wild. It can be a thing or a person, or a small number of both. It doesn't nessecarily have to have been mentioned before.
-
-Examples off the top of my head:
-Anti-Kaiju Sleeping Gas Missiles
-An Expert Anthropologist who speaks dozens of languages and knows all types of cultures.
-The Battra Cocoon and the Shobijin to control it (hopefully).
-
-These are just a few ideas that occur to me.
-Anonymous Sat 27 Mar 2010 04:10:39 No.4763462 Report
-Quoted By: >>4763502
->>4763414
-Er:
-Prof. Morimori and his Chogokin formulae
-
-Kaijo Maki: Sexy white-tuxed guy, knows things and people :Yes
-Chouko Hotaro: Half-elf woman of mystery, cute way of talking.: Yes
-Lord Ogomo: Angry man with a lot of money.:No
-Nozumi Itoshi: Rule 63 Elf Pirate SM!Kusuha:No
-Yume: Shoeless Hobo who's good with guns:Yes
-
-for special request, i dunno, I have no idea whats actually up for grabs, so, I'll just leave that to everyone else.
-Sciencegar Sciencebolt Sat 27 Mar 2010 04:11:39 No.4763464 Report
->>4763437
-
-Thats not really something Mireniamu gives to us, its something we share with him.
-Haken Browning !zHe7DH816A Sat 27 Mar 2010 04:12:39 No.4763469 Report
->>4763460
-Oh, I thought you meant something plot-related for down the road.
-
-All right, changing the request for >>4763437: let's take along a few raw tons of the component metals/alloys for Chogokin C, just in case. Also a crate of Pocky/equivalent.
-Zeta Zaku Sat 27 Mar 2010 04:12:39 No.4763471 Report
->>4763460
-Well, any of those would be quite helpful. I'm guessing it would be possible to hook Battra's cocoon up to the warship and tow it along behind us.
-Goddamn Sandwitches Sat 27 Mar 2010 04:12:39 No.4763477 Report
->>4763460
-The Battra Cocoon and the Shobijin to control it (hopefully).
-
-This, This, THIS.
-
-Also, I think we should not take too much of team two with us, they still need them around here. Same with the Non-Zondark Scientists, they need them for weapons, while we can use Zondark to try and find our friends.
-Anonymous Sat 27 Mar 2010 04:14:39 No.4763483 Report
-Quoted By: >>4763497
->>4763414
-As much as I'd love to develop a Photonic Cannon or reinforce the R Blade with Chogokin ZEEEEEET, dimensional scopes are necessary to find our friends. Probably. At the very least, they would help us find Dumi or the Compatible Kaiser.
-
-CHOOSE Y/N TO EACH OF THE FOLLOWING:
-Kaijo Maki: N, he can't be expected to know much outside of Edo.
-Chouko Hotaro: Sure, why not?
-Lord Ogomo: Is there any guarantee his money will be accepted outside of the island? If not, N.
-Nozumi Itoshi: Sure, why not?
-Yume: Sure, why not?
-
-And as for a super special awesome request? If this getter scarf is anything like it was in the show, it's red. And that means we need to paint the R Blade something to match it. So, I'm voting for R-Blade Katina Custom Colors. Black and gold go good with red, as long as the black's the main color and gold is just for minor stuff like vents and edge panels.
-
-If not that, and we do head to Macross City? Use some Valkyrie technology to make a Katina ART-1 Custom.
-Anonymous Sat 27 Mar 2010 04:14:39 No.4763486 Report
-Kaijo Maki: Sexy white-tuxed guy, knows things and people
-Chouko Hotaro: Half-elf woman of mystery, cute
-Nozumi Itoshi: Rule 63 Elf Pirate SM!Kusuha
-Yume: Shoeless Hobo who's good with guns
-
-These.
-Haken Browning !zHe7DH816A Sat 27 Mar 2010 04:16:39 No.4763497 Report
->>4763483
->red on black with hints of gold trim
-A man after my own heart...
-
-And then Katina was an heir to the Bransteins or something of the sort.
-Jetpack Explosion Sat 27 Mar 2010 04:17:39 No.4763498 Report
-Quoted By: >>4763506
-Professor Choice:
-Prof. Saotome and his Morphing Materials
-
-We NEED to keep an eye on this "G-Eta" stuff. We cant have Saotome going all crazy on us like he does in most incarnations. He also seems really cool with building stuff for us " we want cool things" (2 days later) "Here's 2 working prototypes"
-
-CHOOSE Y/N TO EACH OF THE FOLLOWING:
-Kaijo Maki: (N) Leaving him here gives the best chances of Team 3 getting a fantastic array of female pilots....
-Chouko Hotaro:(N) I dont remember much about this character, so yea.
-Lord Ogomo: (N) Money does stuff here, money does NOT do stuff when fighting sentient machine animals. Keep him where he's useful
-Nozumi Itoshi: (Y) I like pirates and pirate related characters
-Yume: (Y) Shoes are for losers anyway
-
-SPECIAL REQUEST: "Akane's Mech"
-Ask for one of the 'Machines' that the army offered to give us when we got Akane. It seemed like they implied they had her mech (i don't even know what it is personally), more mechs = better.
-Anonymous Sat 27 Mar 2010 04:18:39 No.4763500 Report
-Heh. When they arrive at Zoidland and get jumped by a giant wind-up Mr. Ed, you'll be sorry you scoffed at the unimech.
-
-Jokes aside. Has anyone considered the potential utility of a harpoon or javelin made of that morphic "scarf" material? Its ability to wrap around, penetrate, or otherwise screw with internal machinery on a continuing basis makes it potentially more damaging than a kinetic penetrator or explosive round.
-Anonymous Sat 27 Mar 2010 04:19:39 No.4763502 Report
-Quoted By: >>4763510
->>4763460
->>4763462
-
-Oh, well in that case, for the Special request: On an island country that seems to be constantly attacked by giant animal like monster, theres got to be some kind of authority on strange creatures/an explorer or something we can borrow. If we head into zoids land, having someone who knows about animal behavior and basic biology and stuff should be useful.
-Goddamn Sandwitches Sat 27 Mar 2010 04:19:39 No.4763506 Report
-Quoted By: >>4763512 >>4763514
->>4763498
-I should point out that Akane's "mech" was her escape pod... Not very useful in the long run.
-Goddamn Sandwitches Sat 27 Mar 2010 04:21:39 No.4763510 Report
->>4763502
-... That's actually a pretty good one... I'm dropping Battra and switching to this one assuming we end up heading to Zii.
-Jetpack Explosion Sat 27 Mar 2010 04:21:39 No.4763512 Report
->>4763506
-
-..... oh, so it was. A ballot cast is still a ballot cast though :(. Gotta pay more attention next time
-Anonymous Sat 27 Mar 2010 04:22:39 No.4763514 Report
-Quoted By: >>4763529 >>4763627
->>4763506
-Considering that, I wonder what mech Ensign mickey was piloting...
-Anonymous Sat 27 Mar 2010 04:27:39 No.4763529 Report
->>4763514
-Nothing too strong, I'd guess.
-Anonymous Sat 27 Mar 2010 04:28:39 No.4763533 Report
-Autosage get
-Lord Guilford !UuMJgvNa0Y Sat 27 Mar 2010 04:40:39 No.4763594 Report
-CHOOSE ONE OF:
-Dr. Zondark and his Dimensional Scopes
-
-CHOOSE Y/N TO EACH OF THE FOLLOWING:
-Kaijo Maki
-N
-
-Chouko Hotaro
-Y
-
-Lord Ogomo
-N
-
-Nozumi Itoshi
-Y
-
-Yume
-Y
-
-SPECIAL REQUEST: ...dunno lol
-View SameGoogleiqdbSauceNAO LDDScreenShot1.png, 80KiB, 1016x663
-Couch Sat 27 Mar 2010 04:49:39 No.4763627 Report
->>4763514
-Speaking as the one who -created- that company, he was presumably in one of these. It's not exactly weak, but it's a real-type about the size of our R-Blade, so kaijus would have given one trouble.
-Anonymous Sat 27 Mar 2010 05:16:39 No.4763746 Report
-CHOOSE ONE OF:
-Dr. Zondark and his Dimensional Scopes
-
-CHOOSE Y/N TO EACH OF THE FOLLOWING:
-Kaijo Maki: Sexy white-tuxed guy, knows things and people N
-Chouko Hotaro: Half-elf woman of mystery, cute way of talking. Y
-Lord Ogomo: Angry man with a lot of money. N
-Nozumi Itoshi: Rule 63 Elf Pirate SM!Kusuha Y
-Yume: Shoeless Hobo who's good with guns N
-
-Special: Someone who can speak several languages.
-Alt Special: Fix our damn guns.
-Sciencegar Sciencebolt Sat 27 Mar 2010 05:24:39 No.4763791 Report
-Quoted By: >>4763826
->>4763320
-
-The cloth itself is G-Eta strengthened industry-grade linen, tough but not bullet-proof. The real strength of the scarf is a set of metal wires and sharpened strips running through it, that morph according to the hand motions you make. Thus it can be used to wrap around melee weapons or gun barrels, but bullets or beams would pass right through it.
-Anonymous Sat 27 Mar 2010 05:28:39 No.4763826 Report
-Quoted By: >>4763833
->>4763791
-Why is it not new thread yet?
-Goddamn Sandwitches Sat 27 Mar 2010 05:30:39 No.4763833 Report
->>4763826
-He is probably counting up the votes and making his choices before he makes a new thread.
-Sciencegar Sciencebolt Sat 27 Mar 2010 06:31:39 No.4764163 Report
->>4764162
-
