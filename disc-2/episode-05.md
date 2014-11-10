@@ -38,34 +38,12 @@ You tune your radio to the G-Force frequency. "Guysh, guysh, I need backup 'ere!
 
 Diego Mireniamu's voice drones over the static-filled connection. "We're deploying what forces we can. The TDF are moving in, I'm trying to clarify which giant metal man they shouldn't shoot."
 
-"Cool...Where's Akane? She said she knew what dis ting was."
+"Cool.. .Where's Akane? She said she knew what dis ting was."
 
 "I'll have someone find her, the situations a little chaotic right now. Hang tight, and try to lead it towards the harbour! It's half-wrecked anyway!"
 
 Windows and door across the suburbs blow in as the large mech takes off, firing on the biplanes which have begun strafing it. One is clipped and tumbles out of the air in flames, its pilot miraculously diving out and managing to pull his parachute in time.
 
-ATTACK IT WHILE ITS DISTRACTED, TRY TO DRAW IT OFF, OR SOMETHING ELSE?
-Gilliam Yaeger !q0uEtog.ao Fri 26 Mar 2010 15:24:39 No.4760148 Report
->>4760140
-Try and draw it away from the civilians, preferably into Stealthyboy's warehouse district.
-Stealthyboy !fchRKomfls Fri 26 Mar 2010 15:27:39 No.4760157 Report
->>4760140
-Lets try to lead it towards the harbour.
-Fatman !!IqQAJt5OEQw Fri 26 Mar 2010 16:01:39 No.4760219 Report
-Definitely rooting for the harbor. Let's lead it there like the pied piper... OF DEATH
-Goddamn Sandwitches Fri 26 Mar 2010 16:57:39 No.4760391 Report
->>4760140
-They want it in the harbor, we take it to the harbor.
-Gilliam Yaeger !q0uEtog.ao Fri 26 Mar 2010 17:00:39 No.4760395 Report
->>4760140
-Also, ask the lab guys to set up some sort of big gun at the harbour, since we seem woefully underequipped to deal with this threat.
-
-We need guns, or the scarfsword.
-NuBlackAnon !!z6ldXGL61Wm Fri 26 Mar 2010 17:27:39 No.4760483 Report
->>4758226
-We are Oscar Mike
-Sciencegar Sciencebolt Fri 26 Mar 2010 17:33:39 No.4760503 Report
-Quoted By: >>4760512 >>4760517 >>4760526
 "'Ey, ugly!!" You flit around the ring fire, vulcans flaring wildly. You hit very little, almost catching some of the TDF planes. "I'm yer dance partner here! You wanna scan me, you gotta catch me." You reverse the throttle and back away, still dodging the energy rings. The Arm Arcus gains hieght and tries firing down on you, buildings popping like firecrackers beneath you. You swear to yourself.
 
 "Yo, Fuego-san, can't you get some artillery up here? I'm a little short on firepower."
@@ -74,62 +52,6 @@ Quoted By: >>4760512 >>4760517 >>4760526
 
 The municipal buildings and fancy buildings give way to water-logged warehouses and ruined tenements, as you seek cover from the black mechs constant fire. Whatever else its attributes, its not too worried about ammo conservation.
 
-WHAT IS OUR NEXT STEP IN THE PLAN? You have a plan, right?
-Sciencegar Sciencebolt Fri 26 Mar 2010 17:34:39 No.4760505 Report
->>4758226
-
-Don't make Ramirez jokes!! Don't you know what happened on Zeonquest?
-Anonymous Fri 26 Mar 2010 17:34:39 No.4760506 Report
-Lead it to the harbor and then ask if they have a plan.
-Anonymous Fri 26 Mar 2010 17:36:39 No.4760512 Report
->>4760503
-Try to shove it towards the sea.
-Goddamn Sandwitches Fri 26 Mar 2010 17:38:39 No.4760517 Report
->>4760503
-A plan? Other than getting it to the harbor, I'm not sure Katina is rational enough to come up with something that can work.
-
-For now I say we should focus on leading it to the Harbor... And possibly leading it towards the Space/Time Fissure. We should ask the docs whether we can use that to our advantage.
-Gilliam Yaeger !q0uEtog.ao Fri 26 Mar 2010 17:40:39 No.4760526 Report
-Quoted By: >>4760574
->>4760503
-Ask them what the hell that funnel thing is, and whether it would be a good idea to get near it.
-
-If its a bad idea to get near it, knock that bitch into the storm!
-Anonymous Fri 26 Mar 2010 17:53:39 No.4760574 Report
-Quoted By: >>4760577
->>4760526
-We know what it is. A space-time anomaly.
-Gilliam Yaeger !q0uEtog.ao Fri 26 Mar 2010 17:56:39 No.4760577 Report
-Quoted By: >>4760599
->>4760574
-...Oh yeeeeah.
-
-Can't believe I forgot that.
-
-Still a good idea to ask if the Fissure is dangerous though.
-Goddamn Sandwitches Fri 26 Mar 2010 18:04:39 No.4760599 Report
-Quoted By: >>4760604
->>4760577
-Considering the fact that they lost the entire first team when they ventured near it, I believe it is safe to say it is dangerous.
-Gilliam Yaeger !q0uEtog.ao Fri 26 Mar 2010 18:07:39 No.4760604 Report
-Quoted By: >>4760617
->>4760599
-Okay.
-
-Now that I've finished asking questions with obvious answers, I have our plan - We knock it into the fissure, using the R-Blade to harry it and whatever high-yield cannons the ground crew possess to knock it back. Finally, we RIDER KICK it into the Fissure.
-
-It might come back later, but it'll at least buy us some time to get decent weaponry.
-Anonymous Fri 26 Mar 2010 18:11:39 No.4760617 Report
-Quoted By: >>4760646
->>4760604
-It's bigger than us. I'm not sure if we can overcome its inertia in the first place, or without falling into the fissure ourselves.
-Gilliam Yaeger !q0uEtog.ao Fri 26 Mar 2010 18:19:39 No.4760646 Report
->>4760617
-I've said it before, but...
-
-I miss the RaiOh.
-Sciencegar Sciencebolt Fri 26 Mar 2010 18:22:39 No.4760659 Report
-Quoted By: >>4760670 >>4760683 >>4760686 >>4760726 >>4760843
 As you head out over the water, you see on your scope that the Arm Arcus is falling behind. You look back and see weapons unfolding from its hips and shoulders. The emotionless voice comes over the comm again.
 
 "Your unit is not equipped for long-range engagements. Your ability to compensate for this design oversight will be tested."
@@ -138,7 +60,7 @@ The storm of beams erupts around you as you desperately dodge. Perhaps if you'd 
 
 "Insufficient."
 
-"Fuck...you..." You try to right the R-Blade and stop it sinking, grabbing your arm before it sinks to the bottom. Without the underwater OS kicking in, you probably wouldn't have been able to.
+"Fuck... you..." You try to right the R-Blade and stop it sinking, grabbing your arm before it sinks to the bottom. Without the underwater OS kicking in, you probably wouldn't have been able to.
 
 "Your Significance has been overestimated. Explain your ability to interface with the Next Level, and you will be permitted to function normally."
 
@@ -146,102 +68,13 @@ You bring yourself level, and try to scan for the Arm Arcus, but theres too much
 
 A new comm frequency opens up, apparently from G-Forces naval arm, the Science Warship Aderu?
 
-TALK TO THE ARM ARCUS, G-FORCE HQ, OR THE ADERU? And what will you say?
-Anonymous Fri 26 Mar 2010 18:25:39 No.4760670 Report
->>4760659
-Talk to the Arm Arcus. Ask it what the heck it means, attempt to attack while it's distracted.
-Goddamn Sandwitches Fri 26 Mar 2010 18:28:39 No.4760683 Report
->>4760659
-Well, Shit. Frying Pan, Fire, etc, etc.
-
-Assuming we are capable of contacting people one after another:
-
-Tell the Aderu to blast the fucker with the biggest gun they have and try to push it into the Fault.
-
-THEN switch comms back to the DigiMech. Respond to it's inquiry: "What the fuck are you expecting, I'm completely Wasted!" In an attempt to distract it from the Aderu hopefully firing it's laser.
-Gilliam Yaeger !q0uEtog.ao Fri 26 Mar 2010 18:29:39 No.4760686 Report
-Quoted By: >>4760711
->>4760659
-Talk to the Aderu, ask them to give you coordinates of the Arcus then coordinate an assault on it.
-Goddamn Sandwitches Fri 26 Mar 2010 18:36:39 No.4760711 Report
->>4760686
-NOTE: If we can only talk to one source in the next post, go with this idea. If we can talk to more than one, go with my idea.
-
-If we can combine both of them, lets try that as well.
-Thousand Frills Fri 26 Mar 2010 18:41:39 No.4760726 Report
-Quoted By: >>4760751
->>4760659
-Explain my ability to...? Isn't it obvious? it's because I'M JUST THAT AWESOME!
-Gilliam Yaeger !q0uEtog.ao Fri 26 Mar 2010 18:50:39 No.4760751 Report
-Quoted By: >>4760760
->>4760726
-And thats when we emerge from the water directly behind the Arcus, tonfas at the ready, while the Aderu blasts it with everything they have while we use the Arcus as a sheild of sorts while carving it up.
-Goddamn Sandwitches Fri 26 Mar 2010 18:54:39 No.4760760 Report
-Quoted By: >>4760766
->>4760751
-You realize that if the Aderu's weapons are enough to push back the Arcus that means we will get pushed back as well, right?
-
-We want the Arcus to enter the fault, not for ourselves to enter the fault...
-
-
-... Ah, crap... oh geez, this will be interesting...
-Haken Browning !zHe7DH816A Fri 26 Mar 2010 18:56:39 No.4760765 Report
-Quoted By: >>4760818 >>4760845
-Would prefer two talking actions per Sandwitches' plan, but if not, acknowledging the Aderu comes first.
-
-On a side note, every time I see "Arcus," I think "Arceus." This is a dangerous coincidence, given Episode 2's opening image.
-Gilliam Yaeger !q0uEtog.ao Fri 26 Mar 2010 18:56:39 No.4760766 Report
->>4760760
-Thats the plan if they can't get the angle right to knock it into the vortex, then.
-Anonymous Fri 26 Mar 2010 19:14:39 No.4760818 Report
->>4760765
-Speaking of Arceus, that is apparently also the name of the final boss's mech in K
-Anonymous Fri 26 Mar 2010 19:20:39 No.4760843 Report
->>4760659
-Request the Arcus rephrase that in a way we'll understand. Then beat it down.
-Anonymous Fri 26 Mar 2010 19:21:39 No.4760845 Report
-Quoted By: >>4760848 >>4760869
->>4760765
-Arm Arcus is from SRWW, stop being a newfriend
-Anonymous Fri 26 Mar 2010 19:21:39 No.4760848 Report
-Quoted By: >>4760854
->>4760845
-Haken knows that, you moron. Troll harder.
-Anonymous Fri 26 Mar 2010 19:24:39 No.4760854 Report
->>4760848
-sure is haken defense force in here
-Goddamn Sandwitches Fri 26 Mar 2010 19:25:39 No.4760857 Report
-Quoted By: >>4760869
-One other thing I should point out to those that want us to just attack the Arcus head on: Don't forget that we are not wielding our blades due to the fact that we are holding one arm with the other. Only thing we really have that we can attack with at the moment is our vulcans.
-Gilliam Yaeger !q0uEtog.ao Fri 26 Mar 2010 19:29:39 No.4760869 Report
-Quoted By: >>4760882 >>4760890
->>4760857
-Aww fuck, I forgot about that.
-
-Welp, guess the only way to go about this is to do the barrage thing, or maybe use ourselves as a distraction to lure the Arcus close enough to...
-
->>4760845
-...I don't understand what you're trying to say here. Haken KNOWS that, he's just saying the name is similar to the name of a Pokayman.
-Gilliam Yaeger !q0uEtog.ao Fri 26 Mar 2010 19:32:39 No.4760882 Report
->>4760869
-By 'close enough' I mean 'close enough to the Fissure'.
-
-Just to make it clear.
-Haken Browning !zHe7DH816A Fri 26 Mar 2010 19:35:39 No.4760890 Report
-Quoted By: >>4760918
->>4760869
-Don't worry yourself, it's just inept stalkerfag.
-
-As for the Crack, do we have IC knowledge of exactly what happens to things that fall into it? Adjust outcome for drama, depending.
-Sciencegar Sciencebolt Fri 26 Mar 2010 19:39:39 No.4760906 Report
-Quoted By: >>4760922 >>4760937 >>4761149
 You flip the new frequency up on the comm system, noting with some curiousity that its a laser channel, and not simple radio like the others. "Yo, is that the Adelaide? I need guns here!"
 
 A mans voice "This is Captain Wadashu of the Aderu, we're getting out of dock now. Our laser scanners have you and that black thing pinpointed."
 
 "Yeah yeah. What kind of shit ya got on that thing?"
 
-"Uh...the Aderu has quite a bit of 'shit'. Shes a Science Warship, she's been modified by practically every Intellect thats ever set foot on her."
+"Uh... the Aderu has quite a bit of 'shit'. Shes a Science Warship, she's been modified by practically every Intellect thats ever set foot on her."
 
 "I mean guns, dumbass."
 
@@ -253,73 +86,8 @@ A mans voice "This is Captain Wadashu of the Aderu, we're getting out of dock no
 
 "AWESOME!!! Now, listen close, here's my plan..."
 
-WHAT IS KATINAS PLAN?
-Anonymous Fri 26 Mar 2010 19:40:39 No.4760907 Report
-Talk to the Aderu
+---
 
-Also, Whatever happened to Terminal?
-
-I've been wondering why he hasn't made the second Musouquest thread.
-Sciencegar Sciencebolt Fri 26 Mar 2010 19:42:39 No.4760918 Report
->>4760890
-
-All you know is that it sucks in seawater and seafloor sludge, and spits out slightly different water and sludge. And the main G-Force team got lost in it.
-Haken Browning !zHe7DH816A Fri 26 Mar 2010 19:43:39 No.4760922 Report
->>4760906
-Set mortars and gatling on the target, closing in for the drill. R-Blade will run interference and keep the Arcus in the firing line.
-Goddamn Sandwitches Fri 26 Mar 2010 19:47:39 No.4760937 Report
-Quoted By: >>4760950 >>4760956 >>4761062
->>4760906
-SHIT.
-
-Ok, we need to distract it, and keep it at sea level. Full defense, focus on staying alive.
-
-Open a comm to it and tell it we're drunk, of course we are not up to snuff. We might be able to get it to underestimate us if we do that.
-
-While we are keeping it distracted, have the ship do a sneak attack giga dri-, I mean Tokugawa Special to the fuckers back.
-Anonymous Fri 26 Mar 2010 19:51:39 No.4760950 Report
->>4760937
-This.
-
-This this this
-Anonymous Fri 26 Mar 2010 19:53:39 No.4760956 Report
->>4760937
-That seems to be the only viable plan at this point.
-Goddamn Sandwitches Fri 26 Mar 2010 20:18:39 No.4761062 Report
-Quoted By: >>4761070
->>4760937
-Wait a second...
-
-We're getting the absolute crap kicked out of us by an unknown opponent. We are putting our all into a gambit that will either work, or end up with us being out of options. And we are near a strange phenomenon that things have a habit of coming out of randomly.
-
-Does anyone else see the parallel here that I do?
-Haken Browning !zHe7DH816A Fri 26 Mar 2010 20:20:39 No.4761070 Report
-Quoted By: >>4761077 >>4761078
->>4761062
-The deja vu is delicious. I think there's a hint of bacon grease.
-Goddamn Sandwitches Fri 26 Mar 2010 20:21:39 No.4761077 Report
->>4761070
-Alright then, I thought so... Just wanted to be sure I wasn't just imagining things.
-Anonymous Fri 26 Mar 2010 20:22:39 No.4761078 Report
-Quoted By: >>4761103
->>4761070
-Sciencegar truely is a magnificent bastard, isn't he?
-Zeta Zaku Fri 26 Mar 2010 20:26:39 No.4761103 Report
-Quoted By: >>4761115
->>4761078
-Well, the first time was a complete accident caused by our indecisiveness. 40 threads later and we force him to turn into...well, that.
-Anonymous Fri 26 Mar 2010 20:30:39 No.4761115 Report
-Quoted By: >>4761124
->>4761103
-So we've made him grow as a person ^_^
-Anonymous Fri 26 Mar 2010 20:32:39 No.4761124 Report
->>4761115
-And yey, you all have yet to outgrow mary sue fiction. Zoom-zoom-zoom.
-Thousand Frills Fri 26 Mar 2010 20:39:39 No.4761149 Report
->>4760906
-When one has a giant drill on their bow, all plans eventually boil down to RAMMING SPEED.
-Sciencegar Sciencebolt Fri 26 Mar 2010 20:51:39 No.4761206 Report
-Quoted By: >>4761215 >>4761216 >>4761218
 "O-of coursh you beat me, you silly man. I'm DRUNK! If I'd jus' been sober, ida KICK YOUR ASS, but you went and been sneaky and attacked when I was tryin'a drown m'sorrows. So take back what you said, I does have s'fishin' skillses, I CAN tak y-"
 
 "Aquatic vessel detected. Interference unwelcome. Removing."
@@ -339,68 +107,42 @@ The beam of orange death strikes out as the top and bottom of the Aderu open up,
 "I-have-had-enough-of-you KIIIICCCKKK!!!"
 
 Your feet take the thing in the back, and you pull full thrust as the two of you head towards the falling battleship. You break away just as the Arm Arcus smashes into the spinning drill, and its midsection disintegrates, the legs crushed underneath the ship as it hit the water again. The wave smacks right into throwing you back with massive force. Your vision turns grey, and you black out...
-BSRaven !!pZhu/eJf6iW Fri 26 Mar 2010 20:54:39 No.4761215 Report
->>4761206
->"I-have-had-enough-of-you KIIIICCCKKK!!!"
 
-Well I just shat bricks. Win.
-Goddamn Sandwitches Fri 26 Mar 2010 20:55:39 No.4761216 Report
->>4761206
->"I-have-had-enough-of-you KIIIICCCKKK!!!"
+---
 
-Ah Katina, never change...
-Zeta Zaku Fri 26 Mar 2010 20:56:39 No.4761218 Report
->>4761206
-Never thought I'd say this, but thank god for SALVAGE MODO. Hopefully there's enough left to salvage. And that the R-Blade can be repaired.
+####Katina sleeps.
 
-Oh, and that Katina's all right.
-Sciencegar Sciencebolt Fri 26 Mar 2010 21:18:39 No.4761268 Report
-Quoted By: >>4761285 >>4761289 >>4761607
-Katina sleeps.
+####Katina dreams...
 
-Katina dreams....
+---
+
 "So you agree to become my slave, male?"
 
-Absolutely! No questions asked!! I mean, how could a guy say no to a pretty face like yours?
+*Absolutely! No questions asked!! I mean, how could a guy say no to a pretty face like yours?*
 
-"Hmmph....its seems the males on this Patchwork have little spine. If it weren't for the Queen, I doubt we'd even bother staying."
+"Hmmph... its seems the males on this Patchwork have little spine. If it weren't for the Queen, I doubt we'd even bother staying."
 
-Hey, come on, this new world is great. Theres...Ugh...Well, ok, I've only been here a few days, but theres a place at the other end of the city that sells great frozen yoghurt. You want me to get you some, Mistress?[/i]
+*Hey, come on, this new world is great. Theres... Ugh... Well, ok, I've only been here a few days, but theres a place at the other end of the city that sells great frozen yoghurt. You want me to get you some, Mistress?*
 
 "...My sisters have been overzealous as usual. The other side of the city is on fire."
 
-All of it?
+*All of it?*
 
-"It appears the males of this world have bad eyesight as well...."
+"It appears the males of this world have bad eyesight as well..."
 
-I...I'm sure I can be some help to you. Go ahead, I'll do anything, really...
+*I... I'm sure I can be some help to you. Go ahead, I'll do anything, really...*
 
-"...Carry this 'Argo Gulskii' onto my Scabbard, and then pilot it after my Theotokos. I think I'll be leaving the main Shura force for a while...."
+"...Carry this 'Argo Gulskii' onto my Scabbard, and then pilot it after my Theotokos. I think I'll be leaving the main Shura force for a while..."
 
-Th-this guy? He's huge, he probably weighs more than his mech did!
+*Th-this guy? He's huge, he probably weighs more than his mech did!*
 
 "The slaves of a Shura do not countermand their mistresses."
 
-....Aw man, this is gonna be like Kiva all over again, I just know it...
-Goddamn Sandwitches Fri 26 Mar 2010 21:25:39 No.4761285 Report
->>4761268
-Wha? I'm confused except for one things...
+*...Aw man, this is gonna be like Kiva all over again, I just know it...*
 
->Argo Gulskii
-They took down the crazy Russian guy!
-Goddamn Sandwitches Fri 26 Mar 2010 21:26:39 No.4761289 Report
-Quoted By: >>4761302
->>4761268
-Oh wait...
+---
 
-GODDAMIT JAMIE!
-Haken Browning !zHe7DH816A Fri 26 Mar 2010 21:30:39 No.4761302 Report
-Quoted By: >>4761309
->>4761289
-Pretty sure Coop's in this mix, too - consider the frozen yogurt line.
-Sciencegar Sciencebolt Fri 26 Mar 2010 21:33:39 No.4761308 Report
-Quoted By: >>4761312 >>4761313
-ELSEWHERE
+####ELSEWHERE
 
 The Ayers Rock hotel was one of the most prestigious pieces of tourist accomodation on the planet. Normally it was booked 6 months in advance, but apparently Yukiko Date had had little trouble getting rooms for thier meeting. Vindel smiles thinly. She appreciates the fine details as well as the broad.
 
