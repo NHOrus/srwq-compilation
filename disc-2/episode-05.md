@@ -158,44 +158,15 @@ Yukiko adjusts her glasses and sits across the table from Mauser. "So, Colonel, 
 
 Vindels eyes go wide. "The First and Only? Dammit, how are we to deal with their combined forces?"
 
-"Solidarity between the aliens can only be countered in one way: Solidarity between humans. We're going to have to...improve the terms of our alliance."
+"Solidarity between the aliens can only be countered in one way: Solidarity between humans. We're going to have to... improve the terms of our alliance."
 
 "What do you mean? Are you saying you want to absorb the Shadow Mirrors fully? I won't allow that!!"
 
 "Please, Colonel, this is not a situation that requires an Idealistic approach. We'll both have to compromise. In the end, all I truly want is an Earth purged of alien influence. Whether that Earth is united or plunged into eternal war is irrelevant to me, so long as its an Earth of humanity..."
-Goddamn Sandwitches Fri 26 Mar 2010 21:33:39 No.4761309 Report
->>4761302
-Maybe, but he does not appear to be in this specific scene.
 
-We seem to be seeing things from Jamie's point of view due to our connection to him, with both of us being Anti-Psychodrivers.
+---
 
-I am thinking that the the IoS ended up near a city, and it came under attack while they were there. Jamie, but I doubt Coop would just surrender, espcially after these chicks destroyed an awesome Yogurt shop.
-Haken Browning !zHe7DH816A Fri 26 Mar 2010 21:34:39 No.4761312 Report
->>4761308
-MOST OVER-ARCING ELSEWHERE EVER
-Goddamn Sandwitches Fri 26 Mar 2010 21:35:39 No.4761313 Report
-Quoted By: >>4761321
->>4761308
-Well, so my for my theory about these dreams...
-Sciencegar Sciencebolt Fri 26 Mar 2010 21:38:39 No.4761321 Report
-Quoted By: >>4761348
->>4761313
-
-The second one is a proper elsewhere, not a Anti-PD dream. Katina experiences the first as disembodied voices, the second is OOC knowledge only.
-
-Final Elsewhere coming in a moment.
-Goddamn Sandwitches Fri 26 Mar 2010 21:44:39 No.4761348 Report
-Quoted By: >>4761366 >>4761437
->>4761321
-
-Alright then so I was right about the dream then, cool... Assuming Katina remembers the dream, we should ask Akane about the Names "Kiva, and Argo Gulskii", and if she knows what the Shura are... Assuming she realizes something is strange about the dream that is.
-Haken Browning !zHe7DH816A Fri 26 Mar 2010 21:50:39 No.4761366 Report
-Quoted By: >>4761428
->>4761348
-On a side note, if Akane's recollection of "Kiva" winds up conjuring images of violin-obsessed NEETs fighting monsters made out of stained glass, I say we dump her ASAP.
-Sciencegar Sciencebolt Fri 26 Mar 2010 22:08:39 No.4761427 Report
-Quoted By: >>4761441 >>4761444 >>4761450 >>4761452 >>4761607 >>4762014
-ANOTHER ELSEWHERE, BUT MUCH CLOSER
+####ANOTHER ELSEWHERE, BUT MUCH CLOSER
 
 Agent Hayato Jin walks past the busy crisis room, unconcerned by the drama of the Black Metal Man. It has been stopped before it reached Edo Intelligence, that was all that mattered. Jin had a more important job: Stopping a war.
 
@@ -208,276 +179,24 @@ The young man fumbles at his handcuffs. "Stop calling me 'Mee-Kee-Showy', it sou
 "It's just British! It's not that wierd!"
 
 "There's no such place as Britishland on Toholon, kid, and I doubt theres one in this world either. Now, if you'll excuse me, I'll hand you off to someone more diplomatic. Then I'm gonna go drink a lot of coffee, and re-read everything you've said about this 'Corusa Industries'. It seem we're going to be getting even more guests soon..."
-Anonymous Fri 26 Mar 2010 22:08:39 No.4761428 Report
->>4761366
-Bah. At least it means she'll be SOMEWHAT genre savvy when we get into Spirits.
-Sciencegar Sciencebolt Fri 26 Mar 2010 22:10:39 No.4761437 Report
-Quoted By: >>4761450
->>4761348
 
-Even Katina, inattentive as she is, recalls Dr. Kiva Andrews, the ice-queen in the tight silver suit who came with Coop and Jamie.
-Zeta Zaku Fri 26 Mar 2010 22:11:39 No.4761441 Report
-Quoted By: >>4761458
->>4761427
-Ensign Mickey! You got a second chance after all!
-Anonymous Fri 26 Mar 2010 22:11:39 No.4761444 Report
-Quoted By: >>4761458
->>4761427
-Ensign Mickey! :D
-Goddamn Sandwitches Fri 26 Mar 2010 22:13:39 No.4761450 Report
-Quoted By: >>4761461
->>4761427
->Mickey Smith
+---
 
-FUCK YES I GOT MY DOCTOR WHO CAMEO!
-
->>4761437
-As far as I remembered, she was only ever called Dr. Andrews around Katina, but if she knows the name already, then cool.
-View SameGoogleiqdbSauceNAO 1235080440838.jpg, 56KiB, 702x478
-Lord Guilford !UuMJgvNa0Y Fri 26 Mar 2010 22:13:39 No.4761452 Report
-Quoted By: >>4761458
->>4761427
->Another universe's Ensign Mickey.
-Goddamn Sandwitches Fri 26 Mar 2010 22:14:39 No.4761458 Report
-Quoted By: >>4761474
->>4761441
->>4761444
->>4761452
-
-Wait, the guy form the early threads was... Well shit, call em unattentive.
-Sciencegar Sciencebolt Fri 26 Mar 2010 22:15:39 No.4761461 Report
->>4761450
-
-Dumi mentioned her full name at least once. I'm assuming Coop and Jamie told Katina more about her behind the scenes.
-Sciencegar Sciencebolt Fri 26 Mar 2010 22:17:39 No.4761474 Report
-Quoted By: >>4761607
->>4761458
-
-I never actually confirmed his identity as being based on the DW character, I only said he was british, and someone else suggested who he might be. It made sense to me.
-Gilliam Yaeger !q0uEtog.ao Fri 26 Mar 2010 22:39:39 No.4761607 Report
-Quoted By: >>4761633 >>4761636
->>4761427
->No Britain in the new world
-Hah! How wrong he is! There's a Britain in just about every mishmash setting there is! And once again, I say we made the right choice...That said, I wonder who Mickey's bosses are?
-
->>4761268
-I wonder who Coops talking to...Can't be Arc, this lady's much too serious and/or haughty.
-
->>4761474
->and someone else suggested who he might be.
-*Whistles innocently*
-Haken Browning !zHe7DH816A Fri 26 Mar 2010 22:43:39 No.4761633 Report
-Quoted By: >>4761682 >>4761757
->>4761607
-Even if the presence of a Britain isn't guaranteed, lots of planets have a North...
-
-...As for "Corusa Industries," Google produced a LEGO mockup of its HQ, with a bio that references a certain Hades Project...
-Goddamn Sandwitches Fri 26 Mar 2010 22:43:39 No.4761636 Report
-Quoted By: >>4761652
->>4761607
-Gilliam, it's Jamie not Coop. Jamie is a Anti-Psychodriver, and Coop would never ally himself with people who would destroy a yogurt store.
-Gilliam Yaeger !q0uEtog.ao Fri 26 Mar 2010 22:45:39 No.4761652 Report
->>4761636
-...Good point.
-Ratsel Feinschmecker !VFYL66iWMA Fri 26 Mar 2010 22:48:39 No.4761682 Report
-Quoted By: >>4761713
->>4761633
-If not Britain, then perhaps a country that is like Britain?
-Anonymous Fri 26 Mar 2010 22:51:39 No.4761713 Report
-Quoted By: >>4761740 >>4761758
->>4761682
-Britannia?
-Sciencegar Sciencebolt Fri 26 Mar 2010 22:54:39 No.4761732 Report
-Quoted By: >>4761747 >>4761758 >>4761769
 You come to to the sight of Akanes face, before being struck blind once more by the blinding pain in your head. "Aw shiiiitt, I've gotta stop having hangovers and concussions on the same days..."
 
 Akane looks relieved as you manuver out of the bed. "It seems you managed to survive both the Databases and your own attempts to kill you. And with only a day in bed too."
 
-"Being more dangerous to me than anyone else is one of my goals in life. Is my dress here? Shit, I'm going to need to get more...How is the R-Blade?"
+"Being more dangerous to me than anyone else is one of my goals in life. Is my dress here? Shit, I'm going to need to get more... How is the R-Blade?"
 
 "Your mech is being fixed, Professor Saotome wants to talk to you about it. Mr Mireniamu also said he'd like to talk to you once he has time, about finding your friends. And Mr Maki also said he had news of sorts." She looks slightly glum at this. "Not about anyone called Ardygun, though..."
 
-WHO WILL KATINA GO TALK TO? OR IS THERE SOMETHING ELSE SHE WANTS TO DO FIRST?
-Ratsel Feinschmecker !VFYL66iWMA Fri 26 Mar 2010 22:55:39 No.4761740 Report
->>4761713
-
-Remove the ridiculous amount of "FABULOUS", and yes, it would be half decent. (Saging for not being on topic)
-Zeta Zaku Fri 26 Mar 2010 22:56:39 No.4761747 Report
-Quoted By: >>4761773
->>4761732
-Hug Akane. She needs a friend.
-
-After that...just pick a doctor and head off. It doesn't sound like any of their topics are extremely pressing at the moment.
-Sciencegar Sciencebolt Fri 26 Mar 2010 22:57:39 No.4761757 Report
-Quoted By: >>4761801
->>4761633
-
-It's Couchs thing, the Orbit Exceeder Kerykeion setting. He was kind enough to give me a whole bunch of setting and plot details, and free reign to reinterpret them to fit my purposes. I felt it wouldn't hurt to throw in a few details.
-
-(The Zeorymer stuff seems to be old, from when his idea was a bit more fanficcy. I'm using the standalone version he made for a thread on /m/, he linked it during the planning threads I think.)
-Gilliam Yaeger !q0uEtog.ao Fri 26 Mar 2010 22:57:39 No.4761758 Report
->>4761713
-Oh god I hope not.
-
->>4761732
-Talk to them in order. After cheering up Akane a bit, of course.
-Goddamn Sandwitches Fri 26 Mar 2010 22:58:39 No.4761769 Report
->>4761732
-Head over to Mr Mireniamu with Akane. Ask Akane if she knows what the Shura are on the way there.
-Haken Browning !zHe7DH816A Fri 26 Mar 2010 22:58:39 No.4761773 Report
->>4761747
-This. The hugging part, at least.
-
-As for doctors, Saotome takes priority, if only to see just HOW badly we got ourselves wrecked and HOW extensive the repairs will have to be to facilitate R-Boiled conversion.
-Gilliam Yaeger !q0uEtog.ao Fri 26 Mar 2010 23:01:39 No.4761801 Report
-Quoted By: >>4761831
->>4761757
->The Zeorymer stuff seems to be old, from when his idea was a bit more fanficcy.
-Still, it would provide an interesting way to include the Hades Project, don't you agree? And having Zeorymer would allow them to survive some of the nasty things running around in here...
-Sciencegar Sciencebolt Fri 26 Mar 2010 23:04:39 No.4761831 Report
-Quoted By: >>4761848
->>4761801
-
->Zeorymer
-
->Things surviving
-
-I haven't much experience of Zeorymer, but I'm pretty sure thats not how it works.
-Zeta Zaku Fri 26 Mar 2010 23:06:39 No.4761848 Report
-Quoted By: >>4761866 >>4761881
->>4761831
-Admittedly, most of that was Masaki's fault, but yeah. Strategy when piloting Zeorymer seems to be SHIT BLOWS UP EVERYWHERE FOREVER.
-Gilliam Yaeger !q0uEtog.ao Fri 26 Mar 2010 23:09:39 No.4761866 Report
-Quoted By: >>4761881 >>4761886 >>4761896
->>4761848
-Thus they'd probably only bring it out for...special occasions. Chances are they have the other seven, less powerful robots of the set, which would see much more use.
-Ratsel Feinschmecker !VFYL66iWMA Fri 26 Mar 2010 23:12:39 No.4761881 Report
-Quoted By: >>4761889
->>4761848
->>4761866
-
-was it Ass, or King Kekketsu who said that?
-Zeta Zaku Fri 26 Mar 2010 23:13:39 No.4761886 Report
-Quoted By: >>4761919
->>4761866
-None of them are really known for subtlety anyway. I mean, Lanstar is the weakest and its primary method of attack is creating tornadoes strong enough to expose bedrock.
-
-Hell, Burrstone has strategic nuclear warheads and it's strictly middle-class. None of them are really all that weak to begin with.
-Gilliam Yaeger !q0uEtog.ao Fri 26 Mar 2010 23:13:39 No.4761889 Report
-Quoted By: >>4761901
->>4761881
-...?
-Anonymous Fri 26 Mar 2010 23:14:39 No.4761896 Report
->>4761866
-
-Well, excluding Saiga's mech, said to be on par with Zeorymer before, well, the standard finishing move.
-Anonymous Fri 26 Mar 2010 23:14:39 No.4761901 Report
->>4761889
-
-"Shit blows up everywhere forever".
-Goddamn Sandwitches Fri 26 Mar 2010 23:14:39 No.4761904 Report
-Quoted By: >>4761923 >>4761926 >>4761927 >>4761930 >>4761956
-Having only heard the name a couple of times before this, would someone mind telling me just what Zeorymer is?
-Gilliam Yaeger !q0uEtog.ao Fri 26 Mar 2010 23:17:39 No.4761919 Report
-Quoted By: >>4761935
->>4761886
-Well, this is either a very bad idea or it will make things rather interesting further down the line...
-Anonymous Fri 26 Mar 2010 23:18:39 No.4761923 Report
->>4761904
-An anime composed entirely of two things: People talking while trying to blow up Zeorymer, and Zeorymer shrugging it off and nuking them.
-
-Blame it on being squished into 4 OVA episodes.
-Gilliam Yaeger !q0uEtog.ao Fri 26 Mar 2010 23:18:39 No.4761926 Report
->>4761904
-http://tvtropes.org/pmwiki/pmwiki.php/Main/Zeorymer
-
-For more information, either watch it or play J/MX.
-Anonymous Fri 26 Mar 2010 23:18:39 No.4761927 Report
-Quoted By: >>4761932
->>4761904
-
-A terrible show with some terrible characters based off a terrible manga with even worse characters.
-
-But the mechs are all really cool!
-Zeta Zaku Fri 26 Mar 2010 23:19:39 No.4761930 Report
->>4761904
-Hades Project Zeorymer, one of the standards for overpowered robots before things like Gurren Lagann came along. Lots of gigantic explosions and JUST AS PLANNED.
-
-The OVA is somewhat below-average though, but it's been featured in both SRW MX and J, where the title robot was a broken powerhouse.
-Anonymous Fri 26 Mar 2010 23:19:39 No.4761932 Report
->>4761927
->A terrible show with some terrible characters based off a terrible hentai with even worse characters.
-
-FTFY. Also, the anime could have been good if it wasn't four episodes long.
-Ratsel Feinschmecker !VFYL66iWMA Fri 26 Mar 2010 23:20:39 No.4761935 Report
->>4761919
-
-I'd say, only use Zeorymer for emergencies...... or if there is a country that needs leveling.
-Goddamn Sandwitches Fri 26 Mar 2010 23:22:39 No.4761945 Report
-I see...
-
-Ok, back to on topic things:
-
-I will concede to seeing Saotome first, but considering everything that happenend the night before, and the dream we had, we need to see Mireniamu ASAP.
-Sciencegar Sciencebolt Fri 26 Mar 2010 23:24:39 No.4761956 Report
-Quoted By: >>4761979 >>4761989
->>4761904
-
-Hades Project Zeorymer, a late 80s/early 90s OVA based on a H-Manga, based around 8 horribly powerful super robots. 7 were being controlled by Vaguely Chinese Supervillain Crime Syndicate to Take Over the World (Of COURSE!!!), but the 8th and most powerful, Zeorymer of the Heavens, was given to an angsty teen by a morally ambigous government group. It's Evangelion versus Big Fire, but not as awesome as it should be.
-View SameGoogleiqdbSauceNAO ___I_Was_Aiming_at_a_Rat_by_Zatr (...).jpg, 33KiB, 400x400
-Ratsel Feinschmecker !VFYL66iWMA Fri 26 Mar 2010 23:28:39 No.4761979 Report
->>4761956
-
->Big Fire
-Shockwave Alberto?
-
-anyway, back on topic, ne? this thread still has a ways to go, lets not spam it up.
-Gilliam Yaeger !q0uEtog.ao Fri 26 Mar 2010 23:29:39 No.4761989 Report
->>4761956
->It's Evangelion versus Big Fire
->Big Fire
-Oh god I would laugh so hard if the Corusa Hau Dragons were piloted by the Big Fire crew...
-Sciencegar Sciencebolt Fri 26 Mar 2010 23:32:39 No.4762006 Report
-Just to confirm before Couch has a heart attack: No, I will not be using Zeorymer, at least not in any way that it would recognisable to /m/.
-Stealthyboy !fchRKomfls Fri 26 Mar 2010 23:34:39 No.4762014 Report
-Quoted By: >>4762024
->>4761427
-FFFFFF- Ensign Mickey!
-
-We should have chosen him...
-
-Oh well, no use crying over spilt milk.
-
-I agree with hugging Akane. In a completely non-molesty sort of way.
-Haken Browning !zHe7DH816A Fri 26 Mar 2010 23:35:39 No.4762024 Report
-Quoted By: >>4762028
->>4762014
-Oh yes, totally forgot to specify non-molesting hug.
-Ratsel Feinschmecker !VFYL66iWMA Fri 26 Mar 2010 23:36:39 No.4762028 Report
-Quoted By: >>4762032
->>4762024
-
-So you are implying that unless you state otherwise, every hug you give is a Molesting Hug?
-Gilliam Yaeger !q0uEtog.ao Fri 26 Mar 2010 23:37:39 No.4762032 Report
-Quoted By: >>4762045
->>4762028
-This is Katina. Of course it is.
-Stealthyboy !fchRKomfls Fri 26 Mar 2010 23:40:39 No.4762045 Report
-Quoted By: >>4762062
->>4762032
-Yeah, I thought it might have been necessary to specify given Katina's usual mindset...
-Goddamn Sandwitches Fri 26 Mar 2010 23:43:39 No.4762062 Report
->>4762045
-You have a point, but she has been improving lately.
-Sciencegar Sciencebolt Fri 26 Mar 2010 23:44:39 No.4762065 Report
-Quoted By: >>4762071 >>4762075 >>4762076 >>4762082 >>4762084 >>4762088 >>4762091
 Akane is slightly taken aback by the hug. "It'll be ok, Akane, we'll find them. We'll find everyone. I believe in all of them, they'll live..."
 
 "...Thank you Katina, it means a lot to hear that fr-"
 
 "And if any of those assholes die, I'll go down to hell and pop them right in the face for being so stupid!!"
 
-"...."
+"..."
 
 "Ok, I'll go see the Profesors now."
 
@@ -487,84 +206,6 @@ You dress yourself quickly (You've gotten increasingly adept at putting on your 
 
 "Right, we'll get back to those later..." You pause as you see something very odd: Two identical women, about 3 feet tall yet proportioned as adults, walking down the next corridor hand in hand while singing a low melody.
 
-INVESTIGATE THIS, OR CONTINUE TO DR. SAOTOME?
-Gilliam Yaeger !q0uEtog.ao Fri 26 Mar 2010 23:45:39 No.4762071 Report
->>4762065
-Keep on walking...
-BSRaven !!pZhu/eJf6iW Fri 26 Mar 2010 23:46:39 No.4762075 Report
->>4762065
-OH FUCK, IT'S THE BOOZE FAIRIES.
-
-RUN RUN RUN RUN RUN RUN RUN RUN RUN
-Rick Dominated Fri 26 Mar 2010 23:46:39 No.4762076 Report
-Quoted By: >>4762094
->>4762065
-...Aren't they a little tall?
-INVESTIGATE! Its not everyday we see tiny singing priestesses of Lepidopteran Gods.
-Stealthyboy !fchRKomfls Fri 26 Mar 2010 23:47:39 No.4762082 Report
-Quoted By: >>4762087
->>4762065
-Holy crap, Hobbitses!
-Ratsel Feinschmecker !VFYL66iWMA Fri 26 Mar 2010 23:47:39 No.4762084 Report
->>4762065
-
-This seems like it could be interesting.... Investigate.
-Ratsel Feinschmecker !VFYL66iWMA Fri 26 Mar 2010 23:48:39 No.4762087 Report
->>4762082
-
-dont you mean North Koreans?
-Haken Browning !zHe7DH816A Fri 26 Mar 2010 23:48:39 No.4762088 Report
->>4762065
-Wait, if these are The Twins from a couple threads ago, and we've already got Battra on speed dial...
-Goddamn Sandwitches Fri 26 Mar 2010 23:48:39 No.4762091 Report
->>4762065
-No, ignore the mothra twins and keep going, we've seen stranger shit, and we have stuff to do.
-Anonymous Fri 26 Mar 2010 23:48:39 No.4762092 Report
-We need to see how our mech is doing. They'll be here...somewhere, when we get back.
-Zeta Zaku Fri 26 Mar 2010 23:48:39 No.4762094 Report
->>4762076
-That they are...huh. Maybe it's a growth spurt.
-
-Anyway, ask about them. Maybe we can get more info on Battra, so he won't kill us in a fit of rage on the battlefield.
-Gilliam Yaeger !q0uEtog.ao Sat 27 Mar 2010 00:00:39 No.4762177 Report
-So thats 4-3 in favor of Saotome time, I guess.
-Goddamn Sandwitches Sat 27 Mar 2010 00:04:39 No.4762201 Report
-Quoted By: >>4762219 >>4762231
-So guys... When/If we meet the other Mickey... Do you think he might have known an alternate version of Katina?
-Gilliam Yaeger !q0uEtog.ao Sat 27 Mar 2010 00:07:39 No.4762219 Report
-Quoted By: >>4762233
->>4762201
-But of course.
-BSRaven !!pZhu/eJf6iW Sat 27 Mar 2010 00:10:39 No.4762231 Report
->>4762201
-Two is fun.
-
-Three's a crowd... And more molested.
-Goddamn Sandwitches Sat 27 Mar 2010 00:11:39 No.4762233 Report
-Quoted By: >>4762239 >>4762244 >>4762382
->>4762219
-I just realized that while this Mickey would not have come from that particular universe, that somewhere out there in the multiverse, there is a world where Katina became the Doctors companion instead of Rose.
-BSRaven !!pZhu/eJf6iW Sat 27 Mar 2010 00:12:39 No.4762239 Report
-Quoted By: >>4762246 >>4762252 >>4762382
->>4762233
-You forget there's also one where NO KATINA, YOU ARE THE TIME LORD applies.
-Stealthyboy !fchRKomfls Sat 27 Mar 2010 00:13:39 No.4762244 Report
-Quoted By: >>4762252
->>4762233
-Would have made new Who much better
-Gilliam Yaeger !q0uEtog.ao Sat 27 Mar 2010 00:13:39 No.4762246 Report
-Quoted By: >>4762252 >>4762382
->>4762239
-And the one where rule 63'd Docter regenerates into Katina...
-Goddamn Sandwitches Sat 27 Mar 2010 00:14:39 No.4762252 Report
->>4762244
-OH yeah it would have.
-
->>4762239
->>4762246
-Those poor universes... Dark Brain wouldn't even have had a chance to take a peek inside.
-Sciencegar Sciencebolt Sat 27 Mar 2010 00:34:39 No.4762374 Report
-Quoted By: >>4762395 >>4762416 >>4762498
 "...Come along, Akane. We have things to be doing."
 
 "You get used to it after a while, don't you? Sort of sad, in a way."
@@ -587,160 +228,13 @@ He throws you a ragged red scarf, which you catch in midair. The wieght of it fe
 
 "OR, I can make something slightly different. When we were testing your magneto-gravitic flight device, I noticed it operated on one of the 3 fundamental frequencies that G-Eta particles can operate in. I could make a similar covering that'd work with the Tesla Drive, to give you more speed and control. But the two would interfere with each other if we tried both at once."
 
-SHOULD THE R-BLADE GET A DEADLY RYOMA SCARF OR A GETTER WING?
-
-AND WHAT WILL WE DO NEXT?
-Haken Browning !zHe7DH816A Sat 27 Mar 2010 00:35:39 No.4762382 Report
-Quoted By: >>4762408 >>4762410
->>4762233
->>4762239
->>4762246
-Suddenly my memory of New!Who S4 is kicking in and I'm imagining Catherine Tate as Katina.
-
-I'm not bovvered.
-BSRaven !!pZhu/eJf6iW Sat 27 Mar 2010 00:36:39 No.4762395 Report
-Quoted By: >>4762408
->>4762374
-Ryoma Scarf.
-
-We kinda suck for melee range as it is, even with the tonfas.
-Sciencegar Sciencebolt Sat 27 Mar 2010 00:38:39 No.4762408 Report
-Quoted By: >>4762433 >>4762498
->>4762395
-
-Using one arm to wield another seemed to work ok against the Arm Arcus...
-
-But this would be extending our reach to maybe 20 meters. Or you could ask about finally fixing the G-Revolvers...
-
->>4762382
-
-Am I the only person who liked Donna Troy?
-Stealthyboy !fchRKomfls Sat 27 Mar 2010 00:39:39 No.4762410 Report
->>4762382
-FFFFFFFFFFF
-I despise Catherine Tate. I boycotted the whole of the last series because of her.
-Haken Browning !zHe7DH816A Sat 27 Mar 2010 00:40:39 No.4762416 Report
-Quoted By: >>4762429
->>4762374
-Depending on the surface area needed for G-eta Wing, I don't see why we can't just have it in Scarf Mode but with the S-rank in Air rather than the offensive mode.
-
-...Also, we were all sorts of SOL at range last night. Proposing we pitch the Dawn Kraken now.
-Stealthyboy !fchRKomfls Sat 27 Mar 2010 00:41:39 No.4762427 Report
-Also, go with the scarf.
-
-And if we could get those G-revolvers fixed, that'd be good.
-
-Even better would be the production of the Dawn Kraken...
-Sciencegar Sciencebolt Sat 27 Mar 2010 00:42:39 No.4762429 Report
-Quoted By: >>4762442 >>4762450 >>4762459
->>4762416
-
-Brains gone numb, what was the Dawn Kraken again?
-Haken Browning !zHe7DH816A Sat 27 Mar 2010 00:43:39 No.4762433 Report
-Quoted By: >>4762456
->>4762408
-Donna Noble, sir. And the spoilers mean I kinda liked her.
-
-Of course, my scorecard still stands at Martha > Rose > Donna, but then New!Who hasn't produced Shit Tier companions yet.
-View SameGoogleiqdbSauceNAO Night Fowl close-up.png, 28KiB, 222x77
-Haken Browning !zHe7DH816A Sat 27 Mar 2010 00:44:39 No.4762442 Report
->>4762429
-This, except part gatling P90. May also shoot beams instead of bullets, depending on how the pitch turned out.
-
-Sage for flood.
-BSRaven !!pZhu/eJf6iW Sat 27 Mar 2010 00:44:39 No.4762450 Report
->>4762429
-Off the top of my head, I think it was the traditional GIANT FUCKOFF CANNON.
-
-Or was it that Not!Blades of Chaos concept...
-Sciencegar Sciencebolt Sat 27 Mar 2010 00:46:39 No.4762456 Report
->>4762433
-
-FFFFF
-
-ONORE TEEN TITANS
-Stealthyboy !fchRKomfls Sat 27 Mar 2010 00:47:39 No.4762459 Report
->>4762429
-PT scale Gatling P90 with underslung stake bayonette and flick out machette in the stock.
-
-Basically a giant night fowl crossed with an anti Kaiju weapon someone posted.
-Goddamn Sandwitches Sat 27 Mar 2010 00:52:39 No.4762498 Report
->>4762408
-You are not alone my friend.
-
->>4762374
-I say lets go with the G-Eta Wing for now. While I DO like the scarf Idea, a Scarf sword would be easier to replicatie with other types of tech than the S-Rank Flight would.
-
-If we go with the scarf, we should also bring up the revolvers.
-Anonymous Sat 27 Mar 2010 01:00:39 No.4762541 Report
-+1 for scarf. We can save the R-Getter-1 for later.
-Goddamn Sandwitches Sat 27 Mar 2010 01:05:39 No.4762569 Report
-Quoted By: >>4762593
-I believe that puts us at Scarf Blade 3 / G-Eta Wing 2
-
-Saotome said that we cannot just have him make both because they would interfere with each other, correct?
-Haken Browning !zHe7DH816A Sat 27 Mar 2010 01:09:39 No.4762593 Report
->>4762569
-Count and assumption are correct.
-
-Guess they'd be stuck on the same G-Eta frequency, hence the interference.
-Anonymous Sat 27 Mar 2010 01:11:39 No.4762609 Report
-Quoted By: >>4762621
-Scarf. The R-Blade can already fly.
-Goddamn Sandwitches Sat 27 Mar 2010 01:13:39 No.4762621 Report
-Quoted By: >>4762661 >>4762748
->>4762609
-You are not understanding what it does.
-
-The Wing increases the speed and utility of the R-Wing in the Air. It essentially increases our defensive capabilities, something we are in great need of espcially considering our last battle.
-Zeta Zaku Sat 27 Mar 2010 01:14:39 No.4762627 Report
-Quoted By: >>4762677
-If it's as versatile as the Getter Wing from Armageddon, then go for the Wing. Combination flight booster, shield, and weapon? Hell yes please.
-Couch Sat 27 Mar 2010 01:15:39 No.4762644 Report
-And this is what I get for missing the ten hours where shit happened.
-
-I should probably go about deleting some of that old stuff, some of it's -really- out of date and others still need an update...
-
-Also, I'm neutral - on the one hand, we could get some more use out of the scarf-sword, on the other hand, we already have Blade Tonfa for melee. It might be better to get the Wing and get our guns repaired.
-Anonymous Sat 27 Mar 2010 01:18:39 No.4762661 Report
-Quoted By: >>4762677 >>4762690 >>4762756
->>4762621
-Oh yes, because we totally are going to be fighting all of our battles drunk.
-Haken Browning !zHe7DH816A Sat 27 Mar 2010 01:21:39 No.4762677 Report
->>4762661
-Even so, we ARE going to be fighting all of our battles Desu.
-
-This demands a certain degree of mindfuckery, which includes dodging and other ways to diffuse aggro.
-
-Vote count as of >>4762627 is Scarf 4, Wing 3, Couch present.
-Zeta Zaku Sat 27 Mar 2010 01:22:39 No.4762688 Report
-Quoted By: >>4762696
-Also, weren't we going to fortify the tonfas with Chogokin at some point? The scarf would just be redundant.
-Stealthyboy !fchRKomfls Sat 27 Mar 2010 01:22:39 No.4762690 Report
->>4762661
-...well, you never know...
-Stealthyboy !fchRKomfls Sat 27 Mar 2010 01:23:39 No.4762696 Report
->>4762688
-Unfortunately, we only have Chogokin C right now, probably inferior to the Titanium alloy used in the tonfas...
-Thousand Frills Sat 27 Mar 2010 01:31:39 No.4762748 Report
-Quoted By: >>4762765
->>4762621
-Scarf seems a more one-time offer. There are enough flying robots in existance that it's almost inevitable that we'll be able to find someone else who cracked that shit. (Hell, Sopia probably can if we find her)
-Goddamn Sandwitches Sat 27 Mar 2010 01:33:39 No.4762756 Report
->>4762661
-Katina is not in a super robot anymore, we need every shred of defensive boost we can get, espcially if we are going to be fighting Kaiju. The Better our speed and Maneuverability, the better the chance we survive a battle.
-Goddamn Sandwitches Sat 27 Mar 2010 01:34:39 No.4762765 Report
->>4762748
-Sophia could probably also make the Scarf blade with the machine cells as well.
-Sciencegar Sciencebolt Sat 27 Mar 2010 01:35:39 No.4762772 Report
-Quoted By: >>4762781 >>4762785 >>4763003
 "You're sure you can't do both?" You flick the scarf again, and the toolbox is sliced in half. "'Cause fun as this is, it wouldn't beat out a proper gun."
 
 "I tried, worked at it most of yesterday while you were out of it. The material won't hold two different sets of particles. It can take 1, or 3, but the three-mode one would be basically uncontrollable, it'd just end up wrapping itself around the mech and crushing it."
 
 "Ok, fine, I'll take the cutty-crushy-scarf then. Now, where can a girl get some proper-sized guns around here?"
 
-"Hmm...Military surplus is tightly controlled in Tokugawa, with so much left around after the civil war the goverment make sure to keep tabs on it. We're exempt from most of the restrictions, but we have to go through specific channels, and that takes time."
+"Hmm... Military surplus is tightly controlled in Tokugawa, with so much left around after the civil war the goverment make sure to keep tabs on it. We're exempt from most of the restrictions, but we have to go through specific channels, and that takes time."
 
 "What about making our own weapons?"
 
@@ -750,28 +244,12 @@ Quoted By: >>4762781 >>4762785 >>4763003
 
 "Not so long as the military top brass say no. The High Intellect might believe in all government departments getting along and working for the betterment of all, but in practise, anything the military really cares about is done off the books, and they can deny they have anything."
 
-"Fuck...Well, what about my G-Revolvers?"
+"Fuck... Well, what about my G-Revolvers?"
 
 "Magnetism isn't my thing, but I can ask some colleagues maybe."
 
-GO TO KAIJO OR MR MIRENIAMU NOW? OR FIND SOMETHING ELSE TO DO?
-Zeta Zaku Sat 27 Mar 2010 01:37:39 No.4762779 Report
-Kajio. Didn't he have news for us?
-Haken Browning !zHe7DH816A Sat 27 Mar 2010 01:38:39 No.4762781 Report
->>4762772
-Mireniamu. It's time we got to rebuilding the team.
-Goddamn Sandwitches Sat 27 Mar 2010 01:38:39 No.4762785 Report
->>4762772
-Mr Mireniamu.
+---
 
-The faster we can find our friends, the better.
-Anonymous Sat 27 Mar 2010 02:19:39 No.4763003 Report
->>4762772
-Mireniamu. We must gather our party before venturing forth or w/e
-Anonymous Sat 27 Mar 2010 02:30:39 No.4763042 Report
-Tell the Professor he can go ahead and crack open the revolvers and use em for something eles or study them or whatever. they arent exactly doing us any good in the condition they're in, and we might as well get something out of them,
-Sciencegar Sciencebolt Sat 27 Mar 2010 02:41:39 No.4763090 Report
-Quoted By: >>4763101 >>4763110 >>4763118
 You enter Mr Mireniamu's office as he tosses the last of a large pile of paperwork into what you assume is his OUT box. "Ah, Ms. Tarask, your timing is perfect. I'd like to discuss matters with you and Ms Ardygun, if I may."
 
 "Yeah, you said something about finding our friends?"
