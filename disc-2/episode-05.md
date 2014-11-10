@@ -1,5 +1,6 @@
+# Episode 05
 
-SRWQ2 Mission 5: It's a kaiju setting, you get kaiju special effects
+##SRWQ2 Mission 5: It's a kaiju setting, you get kaiju special effects
 Sciencegar Sciencebolt Fri 26 Mar 2010 05:02:39 No.4757923 ViewReplyOriginalReport
 Quoted By: >>4758378
 Previous Threads:
